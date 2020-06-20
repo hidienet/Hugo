@@ -1,0 +1,22 @@
+---
+title: '[明明遊慶州 偏向釜山行] Day4：목장의신선함이살아있는 한라봉요구르트（椪柑乳酪）'
+date: 2014-01-16T21:30:00.000+08:00
+draft: false
+aliases: [ "/2014/01/day4_8944.html" ]
+tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+---
+
+這隻乳酪飲品好好味啊～ （啦啦啦）  
+
+[![](https://1.bp.blogspot.com/-3Ttn7sgQ-2M/XCyfFLDDzsI/AAAAAAAADqM/FR8vGFbgsO0gCU0ybWbK38Mh-WexzzTzgCLcBGAs/s640/42.jpg)](https://1.bp.blogspot.com/-3Ttn7sgQ-2M/XCyfFLDDzsI/AAAAAAAADqM/FR8vGFbgsO0gCU0ybWbK38Mh-WexzzTzgCLcBGAs/s1600/42.jpg)
+
+橙色那隻椪柑味的還有果肉的  
+乳酪跟蜜糖都好香甜  
+酸味和甜味平衡得好好  
+  
+總之就是好喝啦  
+（奇異金果那枝較甜，但還可以啦）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)

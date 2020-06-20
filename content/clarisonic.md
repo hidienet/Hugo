@@ -1,0 +1,38 @@
+---
+title: '[tools] clarisonic mia'
+date: 2014-02-21T07:30:00.000+08:00
+draft: false
+aliases: [ "/2014/02/tools-clarisonic-mia.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+音波功除了在武俠小說出現  
+也需要在洗面時使用  
+
+[![](https://2.bp.blogspot.com/-XjNEf8XWZTM/XC4H8Wayh-I/AAAAAAAAD2E/HEjkkGvJSuMTDkV0ju40A7dhNJkFJzF3gCLcBGAs/s640/60.jpg)](https://2.bp.blogspot.com/-XjNEf8XWZTM/XC4H8Wayh-I/AAAAAAAAD2E/HEjkkGvJSuMTDkV0ju40A7dhNJkFJzF3gCLcBGAs/s1600/60.jpg)
+
+以一秒300下的微震來清潔肌膚  
+而刷頭比雙手更能深入毛孔  
+濕了面放上潔面品後就刷刷刷  
+就這樣由下到上由內到外打圈清潔  
+一分鐘後自動停轉  
+然後過水就OK  
+  
+機身是防水設計  
+可在浴室及洗澡時使用  
+超方便～  
+  
+清潔做得好，之後塗甚麼敷甚麼  
+才會好好吸收  
+加上黑頭上門的時間拖長了  
+不在需要密集地經常對付  
+本身痘痘問題不嚴重  
+所以不知道有沒有減少  
+  
+不得不提是耐用度  
+用了幾年跌過N次都未壞（哈哈）  
+  
+但較重，不能帶去旅行  
+除了這點就沒什麼好挑剔  
+  
+誠意推薦給同樣喜歡乾淨的人 :D

@@ -1,0 +1,36 @@
+---
+title: '[明明遊慶州 偏向釜山行] Day1：쌈밥（菜包飯）'
+date: 2014-01-12T13:00:00.000+08:00
+draft: false
+aliases: [ "/2014/01/day1_5610.html" ]
+tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+---
+
+慶州有名的包飯（쌈밥）  
+就落在大陵苑隔壁，沒有不吃的道理  
+
+[![](https://3.bp.blogspot.com/-HeU4ocW5j4k/XCyUoYWwmyI/AAAAAAAADl8/1CNcoAh4ijcVIYSTYUyDiswy7DEIWIWzQCLcBGAs/s640/06.jpg)](https://3.bp.blogspot.com/-HeU4ocW5j4k/XCyUoYWwmyI/AAAAAAAADl8/1CNcoAh4ijcVIYSTYUyDiswy7DEIWIWzQCLcBGAs/s1600/06.jpg)
+
+一檯食物，每樣都有一點  
+前面有飯；右邊有菜  
+餡料一大堆；再加上有湯水  
+  
+食法很簡單  
+手上攤開一片菜  
+再放上飯，然後放料  
+包起，最後就是吃  
+  
+菜是叫什麼用菜  
+說穿了其實是生菜和白菜  
+另有一些調了味醃了的葉子  
+  
+料可真多⋯⋯  
+kimchi、菇、豆芽、煎餅、鰤魽、魚、煮豬肉等等  
+有鮮味有清淡當然也有辣  
+  
+幾好玩（會亂搭餡料來吃）  
+但好像有點普通，不過味道還好啦～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)

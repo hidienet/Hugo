@@ -1,0 +1,27 @@
+---
+title: '[ice pop] kiwi冰條'
+date: 2013-10-01T13:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/ice-bar-kiwi.html" ]
+tags : [made by H - 開伙]
+---
+
+好味吃不胖，亦不花時間金錢的自製冰品  
+
+[![](https://4.bp.blogspot.com/-Z6R-cSliHBg/XCOLfCq6E_I/AAAAAAAAB0M/IIevR2cPqzkeTuVfFwjuhfWHXX6lWtM6gCLcBGAs/s640/12.jpg)](https://4.bp.blogspot.com/-Z6R-cSliHBg/XCOLfCq6E_I/AAAAAAAAB0M/IIevR2cPqzkeTuVfFwjuhfWHXX6lWtM6gCLcBGAs/s1600/12.jpg)
+
+中秋除了月餅多，果籃亦很多  
+但不能早午晚餐下午茶宵食都在消滅水果嘛  
+亦因為有太多更好吃與不耐放的水果  
+所以沒有人動過的奇異果已儲了個多星期  
+本著不能浪費；而且這陣兒天氣有點濕又有點熱  
+製成微酸的冰條也不錯  
+  
+洗淨去皮切件，放入food processor (or mixer)  
+攪攪攪，試味後覺得太酸便加點蜂蜜  
+再倒入果汁雪條模，雪一晚便成了這條奇異果冰條  
+  
+冰冰涼涼酸酸甜甜的很好吃  
+不但不會致胖，奇異果中的水果酵素更會令人越吃越瘦  
+比出門去便利店買含色素化學品的冰條更懶但更健康  
+加上所有用具只以清水洗淨便可，太方便了～

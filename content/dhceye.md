@@ -1,0 +1,34 @@
+---
+title: '[masque] DHC - 目もとパックシート'
+date: 2013-12-22T22:00:00.000+08:00
+draft: false
+aliases: [ "/2013/12/masque-dhc.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+好mask不怕入手多（其實這裡只是2盒的份量啦哈哈）  
+
+[![](https://2.bp.blogspot.com/-qi0bCwZqMt8/XCiPiQMUPtI/AAAAAAAADQ4/dVE520UXxMcwXT4Si-oY4iwqCdiG2EitQCLcBGAs/s640/84.jpg)](https://2.bp.blogspot.com/-qi0bCwZqMt8/XCiPiQMUPtI/AAAAAAAADQ4/dVE520UXxMcwXT4Si-oY4iwqCdiG2EitQCLcBGAs/s1600/84.jpg)
+
+含橄欖葉精華跟植物性保濕成分（即不知道是甚麼）  
+就是保濕跟保濕  
+如果想要的result是去黑眼圈的話  
+可以直接跳過這篇了  
+  
+不是水水的紙質眼膜而是軟身貼紙型  
+所以就算敷過夜都不會怕掉下  
+也不會像紙造的會因敷太久而倒抽水分  
+  
+貼在眼底，敷20分鐘到一整晚都可以  
+敷20分鐘又是這價錢  
+敷過夜都是這價格  
+當然不要浪費敷足一個晚上  
+敷住睡也沒有不舒服要除下的感覺  
+  
+之後一天撕下就發現  
+眼底滑滑水感充足  
+乾紋減淡了很多（申：超強眼紋的）  
+加上又不會油膩沒有引發油脂粒  
+  
+  
+很不錯用的eye mask呢～

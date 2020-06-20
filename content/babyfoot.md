@@ -1,0 +1,40 @@
+---
+title: '[foot] baby foot ~easy pack~'
+date: 2014-08-03T11:30:00.000+08:00
+draft: false
+aliases: [ "/2014/08/foot-baby-foot-easy-pack.html" ]
+tags : [glamorous - 蛋臉以外, glamorous - 面膜魂]
+---
+
+腳部死皮種族大清洗（吼）  
+
+[![](https://4.bp.blogspot.com/-1pM0UJN9Mic/XEQdyrIo0MI/AAAAAAAAGLk/x2PvCfiovIoMEK9gaTX10GyEbH0ZTPQHwCLcBGAs/s640/9686851576_7bb5176d42_z.jpg)](https://4.bp.blogspot.com/-1pM0UJN9Mic/XEQdyrIo0MI/AAAAAAAAGLk/x2PvCfiovIoMEK9gaTX10GyEbH0ZTPQHwCLcBGAs/s1600/9686851576_7bb5176d42_z.jpg)
+
+不損傷腳部的化學性去死皮  
+洗乾淨腳後套上酸味超濃的膠腳套  
+再用附上的膠紙貼好開口位置  
+然後為了行動自如我會穿對襪子  
+因為要敷上2個小時！  
+  
+...就這樣過了2個鐘  
+  
+過水濕洗腳  
+除了腳濕了味道酸酸的就沒甚麼變化  
+第二三天還是舊腳依然  
+  
+到了第四五天才開始有少少皮脫出  
+之後的個多星期  
+終於大幅度清走死皮  
+有時候會想用手撕  
+不過這樣會對本身新的皮膚不好  
+所以忍不住時會用暖水泡泡腳  
+加速脫皮速度  
+  
+兩個星期換皮完成  
+嫩滑的腳又再來say hello  
+平日好好用foot cream就可以  
+所以我一年只用1-2次都OK  
+  
+雖然十世不穿拖鞋落街  
+（更是沒有買涼鞋呢）  
+可對於腳部護理也沒有忽視喔～

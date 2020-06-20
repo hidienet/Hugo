@@ -1,0 +1,24 @@
+---
+title: '[麻糬] 董師傅手工麻糬'
+date: 2013-10-23T20:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/blog-post_23.html" ]
+tags : [flavor - 螞蟻族]
+---
+
+麻糬不能等，要襯新鮮吃  
+
+[![](https://1.bp.blogspot.com/-g-pZ3C2Pt2k/XCRRxNKZavI/AAAAAAAACCc/TBiSee-5mHg0vOienMyvdOaHMQSxU9vPQCLcBGAs/s640/77.jpg)](https://1.bp.blogspot.com/-g-pZ3C2Pt2k/XCRRxNKZavI/AAAAAAAACCc/TBiSee-5mHg0vOienMyvdOaHMQSxU9vPQCLcBGAs/s1600/77.jpg)
+
+四種口味分別為芝麻花生綠豆紅豆  
+1盒12個，簡單的袋子袋著  
+每個都圓滾滾又很重身  
+外皮很薄，可透出滿滿的餡料  
+  
+將麻糬以袋子壓扁後吃（這是常識，OK?）  
+外皮Q彈有嚼勁，一點也不黏牙  
+越吃米味越香，連同不會太甜的餡  
+超滿足  
+  
+另：花生那個以拉～ 長～方式吃，感覺更「特別」  
+就是像反轉了的糖不甩，哈哈 XD

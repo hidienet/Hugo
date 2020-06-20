@@ -1,0 +1,49 @@
+---
+title: '[食の四国ツアー] Day5：失敗ed之夜訪 - 松山城、道後公園、湯築城跡'
+date: 2020-04-26T10:40:00.002+08:00
+draft: false
+aliases: [ "/2020/04/day5ed.html" ]
+tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+---
+
+食到好飽，諗住膽粗粗夜訪**松山城**...  
+
+![](/images/shikoku5l.jpg)
+
+開始行上山，已經見住高高嘅石垣  
+
+![](/images/shikoku5l1.jpg)
+
+可惜條路非！常！黑！唯有放棄 T-T  
+
+![](/images/shikoku5l2.jpg)
+
+然後搭伊予鉄道從県庁前到**道後公園**  
+裡面仲有**湯築城跡**  
+**湯築城**亦係国の史跡同日本100名城之一  
+於建武2年（1335年）建成  
+响天正15年（1587年）廢城  
+叫得做「跡」當然係無咗個城啦  
+呢度得返護城河同土塁  
+  
+不過無需要夜遊公園  
+行吓**フジ道後店**好過啦  
+地下係大型超市二樓有百円店daiso嘛  
+逛完再搭一個站去道後温泉駅  
+當然又係去浸溫泉 @[道後温泉](https://www.hidie.net/2020/04/day4_18.html)啦哈哈哈
+
+  
+\-----------------------------------------------  
+  
+
+延伸閱讀：
+
+[食の四国ツアー (8D7N)](https://www.hidie.net/2020/05/8d7n.html)  
+[Day1：香川（高松）](https://www.hidie.net/2017/08/day1.html)  
+[Day2：香川（高松、丸亀、琴平）](https://www.hidie.net/2017/08/day2.html)  
+[Day3：香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/2017/08/day3.html)  
+[Day4：香川（高松）→ 愛媛（松山）](https://www.hidie.net/2017/08/day4.html)  
+[Day5：愛媛（松山、宇和島）](https://www.hidie.net/2017/08/day5.html)  
+[Day6：愛媛（松山）→ 高知（高知）](https://www.hidie.net/2017/08/day6.html)  
+[Day7：高知（高知、中村、須崎）](https://www.hidie.net/2017/08/day7.html)  
+[Day8：高知（高知）→ 高松（高松空港）](https://www.hidie.net/2017/08/day8.html)

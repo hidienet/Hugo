@@ -1,0 +1,30 @@
+---
+title: '[base] RMK - make up base'
+date: 2013-09-28T11:37:00.000+08:00
+draft: false
+aliases: [ "/2013/09/base-rmk-make-up-base.html" ]
+tags : [glamorous - 畫皮？]
+---
+
+不是產品沒有顏色啦，只是完全地用光了！  
+（國王的makeup base？哈）  
+
+[![](https://2.bp.blogspot.com/-nLtEXZjqV5Y/XCOJASOBIaI/AAAAAAAABzI/oYOi32sS2xETMjvOo-5qNdz0tTB_J8sqgCLcBGAs/s640/p3.jpg)](https://2.bp.blogspot.com/-nLtEXZjqV5Y/XCOJASOBIaI/AAAAAAAABzI/oYOi32sS2xETMjvOo-5qNdz0tTB_J8sqgCLcBGAs/s1600/p3.jpg)
+
+  
+這款水狀淡肉色的make up base，塗抹在面上便沒有顏色  
+用後感覺肌膚很平很滑，而且保濕程度高  
+不會油膩膩，也不會強行調改面色，極具透明感  
+完全不需擔心與後續的粉底會有「溝色」情況  
+  
+但世事豈有完美，此產品並沒有防曬功能和不能遮蓋毛孔  
+（雖然防曬還是用防曬霜而遮毛孔以corrector/ concealer是傳統）  
+  
+價格相宜，加上用量不需太多故蠻耐用  
+用化妝棉apply，令用量控制得宜也能塗得均勻點  
+keep妝度真的不俗，上妝後大半天皮膚也維持軟軟滑滑不乾燥  
+（當然也要視乎當日的皮膚狀態，用甚麼底妝碎粉等）  
+也不會令我出不必要的面油（雖則本身也沒啥油）  
+  
+  
+這是一款我回購度很高的產品（大心）～

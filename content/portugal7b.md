@@ -1,0 +1,53 @@
+---
+title: '[抱抱葡萄牙] Day7：Igreja Monumento de São Francisco'
+date: 2018-04-03T09:33:00.000+08:00
+draft: false
+aliases: [ "/2018/04/day7igreja-monumento-de-sao-francisco.html" ]
+tags : [travel - Portugal]
+---
+
+佢個樣係黑麻麻咁  
+其實裡面啲嘢係金光閃閃  
+
+[![](https://c1.staticflickr.com/5/4304/35163060434_8ef1cff25a_z.jpg)](https://c1.staticflickr.com/5/4304/35163060434_8ef1cff25a_z.jpg)
+
+1425年建成嘅教堂  
+成間嘢都係巴洛克風格  
+
+[![](https://c1.staticflickr.com/1/874/41183538841_a8fa1773d0_z.jpg)](https://c1.staticflickr.com/1/874/41183538841_a8fa1773d0_z.jpg)
+
+不過入面唔影得相  
+所以睇完就記响個腦度喇  
+（或者睇返官方啲相）  
+
+[![](https://c1.staticflickr.com/1/897/41183537811_0315c99c5c_z.jpg)](https://c1.staticflickr.com/1/897/41183537811_0315c99c5c_z.jpg)
+
+相連嘅另一邊可以影嘅  
+教堂裡面啲嘢就係件件都咁閃  
+
+[![](https://c1.staticflickr.com/1/816/41139186352_0c542d5a85_z.jpg)](https://c1.staticflickr.com/1/816/41139186352_0c542d5a85_z.jpg)
+
+然後仲有15、16世紀啲望族嘅長眠地  
+OK知喇，過兩日係清明要去拜山（咦？）  
+  
+\-----------------------------------------------  
+  
+  
+延伸閱讀：  
+[Day1：Hello Lisbon](https://www.hidie.net/2017/07/day1hello-lisbon.html)  
+[Day2：Lisboa → Porto](https://www.hidie.net/2017/07/day2lisboa-porto.html)  
+[Day3：Porto ↔ Vila Nova de Gaia](https://www.hidie.net/2017/07/day3porto-vila-nova-de-gaia.html)  
+[Day4：Porto](http://www.hidie.net/2017/07/day4porto.html)  
+[Day5：Porto ↔ Barcelos](http://www.hidie.net/2017/07/day5porto-barcelos.html)  
+[Day6：Porto ↔ Guimarães](http://www.hidie.net/2017/07/day6porto-guimaraes.html)  
+[Day7：Porto (～Santa Clara)](http://www.hidie.net/2017/08/day7porto-santa-clara.html)  
+[Day8：Porto ↔ Pinhão](http://www.hidie.net/2017/08/day8porto-pinhao.html)  
+[Day9：Porto (...Matosinhos)](http://www.hidie.net/2017/08/day9porto-matosinhos.html)  
+[Day10：Porto → Lisboa](http://www.hidie.net/2017/08/day10porto-lisboa.html)  
+[Day11：Lisboa ↔ Sintra](http://www.hidie.net/2017/08/day11lisboa-sintra.html)  
+[Day12：Lisboa (～Belém)](http://www.hidie.net/2017/08/day12lisboa-belem.html)  
+[Day13：Lisboa (...Arroios)](http://www.hidie.net/2017/08/day13lisboa-arroios.html)  
+[Day14：Lisboa](http://www.hidie.net/2017/08/day14lisboa.html)  
+[Day15：Lisboa ↔ Cascais](http://www.hidie.net/2017/08/day15lisboa-cascais.html)  
+[Day16：Lisboa（...Oriente）](http://www.hidie.net/2017/08/day16lisboaoriente.html)  
+[Day17：Lisboa](http://www.hidie.net/2017/08/day17lisboa.html)

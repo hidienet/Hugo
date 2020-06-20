@@ -1,0 +1,38 @@
+---
+title: '[masque] tonymoly nutra-energy mask sheet'
+date: 2014-03-24T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/03/masque-tonymoly-nutra-energy-mask-sheet.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+弱弱的問一句：他們是誰？  
+（小不點按：最右邊那個叫朴有天！）  
+（好啦好啦終於知道了他們是JYJ）  
+
+[![](https://2.bp.blogspot.com/-O1pjRS-JE3Y/XDCzAeOfpPI/AAAAAAAAERQ/Sir9Tk4WGNoEf6Qp2ocFZIkTjWV0Jy4MQCLcBGAs/s640/76.jpg)](https://2.bp.blogspot.com/-O1pjRS-JE3Y/XDCzAeOfpPI/AAAAAAAAERQ/Sir9Tk4WGNoEf6Qp2ocFZIkTjWV0Jy4MQCLcBGAs/s1600/76.jpg)
+
+這塊營養全補的面膜  
+是中間那男的手上的精華所製成  
+紙質面膜充滿濕透精華幾重身  
+而剪裁不錯於面部覆蓋率高  
+好貼面的就是  
+精華帶黏但按摩按摩都能完全吸收  
+  
+敷15-20分鐘，要花些時間按摩  
+剛吸收後皮膚表面還是黏黏的  
+不過過多幾分鐘後  
+真正吸收後肌膚就超滑身  
+一點黏膩感都沒有了  
+用後面部就似吃了一整樽「善存」  
+真的好補，肌膚營養足  
+面色光澤明亮，充滿生氣的樣子  
+底層支撐得很好全是彈性彈性  
+好喜歡有這樣皮膚的自己呢  
+  
+翌日醒來面部還是營養足  
+而表面不油也不黏  
+就算不用潔面產品都OK  
+上妝效果好也成為必然的（呵呵）  
+  
+超愛這mask，推介推介！

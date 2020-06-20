@@ -1,0 +1,41 @@
+---
+title: '[明明遊慶州 偏向釜山行] Day4：짬뽕 x 자장면（辣湯麵 x 炸醬麵）'
+date: 2014-01-16T19:30:00.000+08:00
+draft: false
+aliases: [ "/2014/01/day4-x-x.html" ]
+tags : [travel - 남한・부산、경주 (釜山、慶州)]
+---
+
+在food court食飯絕對是最最最錯誤的決定  
+（快要哭出來的樣子！）  
+  
+話說在這世界最大的百貨公司裡  
+對我來說已經沒什麼好逛  
+出去百貨公司附近又很荒蕪的樣子  
+看起來方圓百哩都好像沒有能吃的餐廳  
+所以就選擇了food court  
+  
+點了應該是比較穩陣的麵  
+這些預計也不會在釜山指定要吃  
+但又是傳統的韓式料理  
+
+[![](https://3.bp.blogspot.com/-yD474UR-J48/XCyfRfVaETI/AAAAAAAADqQ/s4jtLCatyMwM3YVNoHGOqjQM8tfgXEXugCLcBGAs/s640/43.jpg)](https://3.bp.blogspot.com/-yD474UR-J48/XCyfRfVaETI/AAAAAAAADqQ/s4jtLCatyMwM3YVNoHGOqjQM8tfgXEXugCLcBGAs/s1600/43.jpg)
+
+辣湯麵（짬뽕）跟炸醬麵（자장면）  
+  
+沒想到，麵條可以TMD那麼難吃  
+麵條太淋沒嚼感，一pat的模樣  
+辣海鮮湯海鮮不鮮都是其次  
+那個湯水水的，只有辣味的味精水  
+炸醬麵跟過份的鹹，那pat醬非常難吃  
+完全屬於不能進口類別  
+  
+原來世上有那麼難吃的東西  
+枉那些世界上有些國家連食都沒有得食  
+這樣浪費食材，那廚師會不會太夭壽？  
+  
+（！！！）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)

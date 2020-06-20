@@ -1,0 +1,65 @@
+---
+title: 'Bake - Cheese Tart'
+date: 2017-10-17T15:19:00.000+08:00
+draft: false
+aliases: [ "/2017/10/bake-cheese-tart.html" ]
+tags : [flavor - 螞蟻族, flavor - say cheese]
+---
+
+基本上大部份嘢食要啱時候先好食  
+
+講嘅唔止係季節食材
+
+仲有係出爐時間解凍後軟化嗰陣
+
+但係當然總有啲係例外嘅...
+
+[![](https://yojkwg.ch.files.1drv.com/y4mC3tAT3mYo4oPqrpMTrD5deD4D9bkLWw7YMIbvOgQ99wy5tD63uNqQNJH90YGXrqBhWWMYjO6PSqGEDJ6DArRnaDq1tQiOLLmh3olcXW28B1Q67nRLc0g8SJks0mFDJdnhfN63X1gkcoosACvgky2V0DWt6LUQKOitcBkLrL_Iv_3AMeofwztM1ibCg4Zz-Fe_u9owcCKoPfpl29bKgI_Lg?width=660&height=371&cropmode=none)](https://yojkwg.ch.files.1drv.com/y4mC3tAT3mYo4oPqrpMTrD5deD4D9bkLWw7YMIbvOgQ99wy5tD63uNqQNJH90YGXrqBhWWMYjO6PSqGEDJ6DArRnaDq1tQiOLLmh3olcXW28B1Q67nRLc0g8SJks0mFDJdnhfN63X1gkcoosACvgky2V0DWt6LUQKOitcBkLrL_Iv_3AMeofwztM1ibCg4Zz-Fe_u9owcCKoPfpl29bKgI_Lg?width=660&height=371&cropmode=none)
+
+好似BAKE呢個cheese tart咁
+
+啱啱出爐撻皮又脆又熱牛油味好香
+
+裡面啲芝士餡面層薄如蟬翼
+
+咬開就係溶化流心芝士漿
+
+聞到亦食得到嘅芝士香
+
+真係大大滿足～
+
+  
+
+然而好漏㗎嘛未必一次過食得晒
+
+放入雪櫃啦！佢凍咗又有另一種風味
+
+個皮嘅牛油味依然封存
+
+凍咗都唔會硬，唔錯
+
+芝士餡同熱嗰陣嘅流心唔同
+
+變得軟滑嘅質地
+
+個芝士味依然爆香
+
+唔會因為唔熱而冇咁香
+
+雖然熱食真係會飄香咁啦啦啦
+
+  
+
+好出色嘅cheese tart
+
+但係唔值得排長龍去買嘅
+
+不過香港人係鐘意排
+
+排排吓就唔排㗎啦
+
+唔係第一水就去就好易食得到
+
+再唔係當然係有人走去排
+
+咪唔駛自己等咪食到囉（遠望）

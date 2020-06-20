@@ -1,0 +1,45 @@
+---
+title: '[tea] kusmi tea'
+date: 2014-03-26T15:30:00.000+08:00
+draft: false
+aliases: [ "/2014/03/tea-kusmi-tea.html" ]
+tags : [flavor - 飲！]
+---
+
+混合tea set真好，可以一次果試多款味道（露齒笑）  
+
+[![](https://1.bp.blogspot.com/-rp1ZHX9Ma-4/XDCyZPJJggI/AAAAAAAAEQw/ChWyCw1Fjf8oOJiTBe7H-nmC6-R8o4RngCLcBGAs/s640/72.jpg)](https://1.bp.blogspot.com/-rp1ZHX9Ma-4/XDCyZPJJggI/AAAAAAAAEQw/ChWyCw1Fjf8oOJiTBe7H-nmC6-R8o4RngCLcBGAs/s1600/72.jpg)
+
+源自俄羅斯，再成為巴黎的品牌  
+所以就是俄羅斯口味  
+加上法國茶的混合多樣性  
+（因此包裝一點都不巴黎風呢）  
+平常也喝的earl grey跟darjeeling  
+這幾種不算太特別就不贅了  
+  
+St Petersburg（左邊第2行，灰色）  
+祁門紅茶加上橘子跟莓果  
+調配而成的甘甜紅茶  
+這款也算是這家的古早味招牌品  
+因為話說第一代老闆Kousmichoff  
+在1827年就是於St Petersburg開了第一間店  
+  
+Prince Vladimir（最上排右二，粉藍色）  
+紅茶裡混合vanilla、橘子香加香料  
+濃滑的味道，像沒有加奶的奶茶般滑身  
+卻有橘子中和令茶本身不會太漏  
+  
+DETOX（最上排右二，明亮綠色）  
+以馬黛葉、綠茶和檸檬草為主  
+能促進新陳代謝、排水去水腫等  
+味道清爽又可以解膩  
+超好喝～  
+  
+SWEET LOVE（最下排右邊，桃紅色）  
+紅茶內加上粉紅胡椒同香料  
+香甜中帶刺激感，簡直是跟此茶戀上了  
+欲罷不能，好喝得要命！  
+  
+這set是茶包袋很方便  
+好喜歡這像紗布袋裝的設計  
+完全是值得推薦的茶品牌（大拇指）

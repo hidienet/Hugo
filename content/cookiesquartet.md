@@ -1,0 +1,37 @@
+---
+title: '[cookies] cookies quartet'
+date: 2014-03-27T15:15:00.000+08:00
+draft: false
+aliases: [ "/2014/03/cookies-cookies-quartet.html" ]
+tags : [flavor - 螞蟻族]
+---
+
+一打開盒蓋就看到的笑臉  
+
+[![](https://4.bp.blogspot.com/-kXH5zXKmZ-Q/XDCxt6fnAlI/AAAAAAAAEQU/ECwtxQBnZXcIrL8dmnMP1_uh2O84_biOwCLcBGAs/s640/68.jpg)](https://4.bp.blogspot.com/-kXH5zXKmZ-Q/XDCxt6fnAlI/AAAAAAAAEQU/ECwtxQBnZXcIrL8dmnMP1_uh2O84_biOwCLcBGAs/s1600/68.jpg)
+
+不會太甜的手作曲奇  
+誠意應該在選料上  
+美國的有機麵粉 x 法國紐西蘭的牛油  
+味道會香濃之餘感覺上對身體好一點  
+（你應該明白我指產地來源的意思吧）  
+然後加上不同的配料  
+好啦好啦，甚麼以「健康」為題  
+亞麻籽、葵花子等喜歡其香味  
+但說健康議題的話  
+「都在吃用麵粉牛油糖製成的東西說甚麼健康咪玩啦！」  
+鬆化的牛油酥條  
+那牛油跟vanilla這組合簡直接近完美  
+另外最愛當然不能沒有  
+這細膩的牛油杏仁片  
+薄薄脆脆又夠香  
+就是一口接一口不能停的貨色  
+愛喝咖啡但平常不愛吃咖啡  
+不過在配上我超愛的合桃  
+又出奇地喜歡這種味道調配  
+而濃郁濃郁的朱古力味薄薄曲奇  
+也都有出色的美味就是  
+  
+這樣一直食一直食會肥的  
+唯有自己一個人吃不跟其他人分享  
+因為「獨食」才「難肥」啊哈哈哈哈哈

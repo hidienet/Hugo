@@ -1,0 +1,35 @@
+---
+title: '[閱讀瘦身法] 書+工具好抵買：超懶人躺住瘦的骨盤枕'
+date: 2013-12-16T10:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/blog-post_16.html" ]
+tags : [amusement - books]
+---
+
+懶到極點的借助外物來瘦之二：骨盤枕！  
+
+[![](https://4.bp.blogspot.com/-ul4YZUlScnI/XCiH3qr79EI/AAAAAAAADNE/7qLhAsqjLxQo4KYlirOxuiM2vjrNcOsZACLcBGAs/s640/54.jpg)](https://4.bp.blogspot.com/-ul4YZUlScnI/XCiH3qr79EI/AAAAAAAADNE/7qLhAsqjLxQo4KYlirOxuiM2vjrNcOsZACLcBGAs/s1600/54.jpg)
+
+「寝るだけ骨盤枕ダイエット」  
+－ 福辻鋭記  
+  
+放住骨盤枕在後腰間  
+然後就躺著5分鐘，甚麼都不用做  
+  
+骨盤枕枕住的地方突出  
+令「移了位」的骨盤歸位  
+從而腰間內臟回到應有的地方  
+又使下半身筆直不在腿歪歪  
+  
+有用嗎？  
+  
+初初頭幾天躺著感覺不舒服  
+可能是骨盤不對位吧  
+之後就沒事，躺著蠻舒服  
+瘦就真的不明顯  
+但腰的周圍沒有鬼鼠肉  
+  
+其實除了後腰，也可以用在其它部位  
+不過那麼懶的我沒又試過  
+有機會才試，我還有太多東西要試  
+哈哈哈～

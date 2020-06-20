@@ -1,0 +1,31 @@
+---
+title: '[臺南喪食遊] Day2：阿村第二代 牛雜湯'
+date: 2013-10-19T10:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day2_3886.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
+---
+
+剛完成飽滿的虱目魚粥，是吃不下包成羊肉的  
+但是，走了一個街口到達國華街後  
+卻被牛湯的香氣吸了進店，坐下乖乖的看餐牌  
+點了碗牛雜湯，因為這比牛肉湯少見到  
+
+[![](https://2.bp.blogspot.com/-C3Co5zb088w/XCRD08WIOrI/AAAAAAAAB9E/EHxJg3aaO3070Lw3F0w2oEaz6DH86eUeACLcBGAs/s640/34.jpg)](https://2.bp.blogspot.com/-C3Co5zb088w/XCRD08WIOrI/AAAAAAAAB9E/EHxJg3aaO3070Lw3F0w2oEaz6DH86eUeACLcBGAs/s1600/34.jpg)
+
+聞起來濃濃的牛湯香氣，在碗中竟然是清澈不濁  
+先呷一口湯，味道鮮香而且純粹，沒有雜味  
+就像是把一隻牛拉去洗白白後原隻拖入爐去燉那般  
+  
+牛雜很新鮮，也洗得乾乾淨淨  
+所以不會有腥腥的味道  
+吃下有爽的脆的軟的嫩的，滿滿而實在  
+  
+連薑絲也很好味！  
+  
+香～ 清～ 甜～  
+這個早餐變得異常飽足，亦很滿足  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

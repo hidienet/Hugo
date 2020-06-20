@@ -1,0 +1,44 @@
+---
+title: '[臺東瘋食遊] Day2：田園米膳坊－麻油雞火鍋、宮保杏鮑菇set'
+date: 2016-01-06T20:30:00.000+08:00
+draft: false
+aliases: [ "/2016/01/day2set.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
+---
+
+有D夜加上落雨同埋未熟路  
+好似搵唔到食顛嘅鋪頭咁（但hidie不哭）  
+見到有間嘢仲未閂咪入去囉  
+吖～ 終於有嘢食喇  
+
+[![](https://c1.staticflickr.com/9/8663/28897591153_ae2128f35a_z.jpg)](https://c1.staticflickr.com/9/8663/28897591153_ae2128f35a_z.jpg)
+
+呢個麻油雞湯底嘅火鍋嘛  
+係細人仔3B嘅  
+湯底好香，邊罏料有菇啦菜啦瓜啦  
+又有丸啦海帶啦粉絲啦  
+仲有海鮮啦... 啦... 啦...好Q多嘢  
+有排打，打到個爐火都熄都仲打緊  
+加火加火please～  
+（白飯都好大碗滿滿滿）  
+
+[![](https://c1.staticflickr.com/9/8118/28897589353_6b44196e27_z.jpg)](https://c1.staticflickr.com/9/8118/28897589353_6b44196e27_z.jpg)
+
+我呢，就食宮保杏鮑菇set  
+配四碟小餸（番茄蛋、蝦米椰菜、燙青菜同唔記得係乜）  
+加碗蘿蔔清湯  
+除咗個宮保，全部味都較家庭式不太重口味  
+所以走飯is okay，反正唔係好有飯癮  
+
+[![](https://c1.staticflickr.com/9/8399/29519948805_1e9b77dbbb_z.jpg)](https://c1.staticflickr.com/9/8399/29519948805_1e9b77dbbb_z.jpg)
+
+本身一入去就有嘅桂圓紅棗茶  
+太好飲，一直refill囉  
+
+[![](https://c1.staticflickr.com/9/8282/28897589833_2fd76b07fa_z.jpg)](https://c1.staticflickr.com/9/8282/28897589833_2fd76b07fa_z.jpg)
+
+個set最後嘅超甜起沙黃西瓜，好滿足呢～～～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)

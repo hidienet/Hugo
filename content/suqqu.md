@@ -1,0 +1,64 @@
+---
+title: '[massage] suqqu - musculate massage cream'
+date: 2014-01-09T21:30:00.000+08:00
+draft: false
+aliases: [ "/2014/01/massage-suqqu-musculate-massage-cream.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+用了會年輕七歲的按摩霜（huh? 真好騙）  
+
+[![](https://3.bp.blogspot.com/-uRVwnu34n7g/XChvZMMSnTI/AAAAAAAAC9g/eMuTrSmXsCMDWntm9HO4qiY3kwhyTDzDwCLcBGAs/s640/01.jpg)](https://3.bp.blogspot.com/-uRVwnu34n7g/XChvZMMSnTI/AAAAAAAAC9g/eMuTrSmXsCMDWntm9HO4qiY3kwhyTDzDwCLcBGAs/s1600/01.jpg)
+
+一般的massage都是血液循環  
+血液循環跟血液循環  
+但這罐是由日本美容界鼎鼎有名的田中宥久子開發  
+哪會跟一般的一樣就能收貨？  
+  
+簡單到不行的包裝  
+（之後田中自立門戶的Y-method是型格黑白路線）  
+淡綠色的膏帶有淡淡的香味  
+  
+一次按摩流程需要的時間爲3分鐘  
+可以的話越勤力效果就越好  
+（最密是早晚一次！）  
+按完後用附送的布抹走  
+那塊布很神奇，乾的時候硬到能掟死人  
+但濕水以後超級軟滑  
+此布還有去死皮作用啊  
+  
+田中創造的按摩step  
+與平常的打圈按穴完全不同  
+其獨特的手法基本上是滑動、推跟提拉  
+沿住骨骼推壓臉部肌肉跟脂肪  
+經由淋巴將多的餘脂肪廢物排出  
+（e？效果跟一般的瘦面massage有何分別？）  
+  
+經過一番努力之後  
+（3分鐘！就只是這3分鐘！）  
+血液循環is a MUST不贅了  
+乾紋（尤其是重災區的眼周）淡的看起來消失般  
+連毛孔裡的髒髒都推走  
+再將毛孔收細  
+輪廓回來了，沒有浮腫  
+V線明顯而且下巴都是尖尖的  
+  
+哇哇哇～  
+  
+好，再再努力  
+1星期3晚massage，一星期過後⋯⋯  
+面的下半part變得緊實有彈性，看起來瘦了  
+毛孔更細緻，面色更是白裏透紅  
+肌膚亮得發光般的非常有生氣  
+加上竟然連色斑都能減淡（少少）  
+  
+如果要對付皺紋、暗沉、鬆弛、粗大毛孔和雀斑  
+又想改善包包面從而令面部瘦起來的話  
+這罐massage絕對實不二之選（好了，除了Y-method吧）  
+  
+肌膚年輕得很明顯  
+是不是7歲就不得而知  
+因為這東西已持續用了超過7個年頭（肯定）  
+好一款超級愛用的massage cream！！！  
+一直在減7的話⋯⋯ 哈哈哈～  
+（7是7，是87\*的那個7）\*不是87年那個，別誤會 :p

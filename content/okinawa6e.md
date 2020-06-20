@@ -1,0 +1,32 @@
+---
+title: '[琉球戀吃活樂遊] Day6：HELIOS - ゴーヤーDRY、青い空と海のビール'
+date: 2013-11-23T10:00:00.001+08:00
+draft: false
+aliases: [ "/2013/11/day6helios-dry.html" ]
+tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
+---
+
+沖縄ビール，除了ORION還有HELIOS！  
+
+[![](https://2.bp.blogspot.com/-B_WrK4ug_Dw/XCeC4sgMVDI/AAAAAAAAC0A/P91DdV-OA3EpoVafXc_IkruL9KmoXD9cQCLcBGAs/s640/q.jpg)](https://2.bp.blogspot.com/-B_WrK4ug_Dw/XCeC4sgMVDI/AAAAAAAAC0A/P91DdV-OA3EpoVafXc_IkruL9KmoXD9cQCLcBGAs/s1600/q.jpg)
+
+**青い空と海のビール**（左）  
+沖縄白啤，一點都不會苦  
+有淡甜的小麥香味  
+雖然建議倒進杯裡滿滿泡泡才喝  
+但人在機場沒有冷杯  
+直接喝也不賴～  
+  
+**ゴーヤーDRY**（右）  
+苦瓜啤酒 XDDD  
+堅有苦瓜味，挺苦的  
+不過是能接受的  
+而且這陣味道非常特別  
+因為有份很清爽的甘苦味  
+其實蠻好喝的！  
+加上在沖縄喝沖縄的ゴーヤー  
+有種很在「當地」的感覺吧！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)

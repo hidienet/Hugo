@@ -1,0 +1,23 @@
+---
+title: '[臺北暴食遊] Day3：紅糟肉圓@九份'
+date: 2014-04-27T13:30:00.000+08:00
+draft: false
+aliases: [ "/2014/04/day3_4894.html" ]
+tags : [travel - 臺灣・臺北]
+---
+
+其實我覺得這碗東西很醜樣  
+
+[![](https://2.bp.blogspot.com/-gkyLTP-k7SE/XDGh34VlqBI/AAAAAAAAEh0/UseixqJ6uhUz2Vr8PQwxd7Mr7fdcki-7gCLcBGAs/s640/72.jpg)](https://2.bp.blogspot.com/-gkyLTP-k7SE/XDGh34VlqBI/AAAAAAAAEh0/UseixqJ6uhUz2Vr8PQwxd7Mr7fdcki-7gCLcBGAs/s1600/72.jpg)
+
+不過味道就很好  
+韌韌的皮層  
+包住爽脆筍絲  
+同炆得香滑的紅糟肉  
+  
+滿滿的一碗藏著飽滿的餡料  
+大滿足呢～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)

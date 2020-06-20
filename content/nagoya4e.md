@@ -1,0 +1,31 @@
+---
+title: '[GO! GO! NaGoYa～] Day4：新雀本店 お団子'
+date: 2015-10-06T11:00:00.000+08:00
+draft: false
+aliases: [ "/2015/10/go-go-nagoya-day4_6.html" ]
+tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 小食部]
+---
+
+很喜歡食煙韌食物的我  
+看到即燒的団子真的好心動  
+（而且是大須名物喔！）  
+
+[![](https://c2.staticflickr.com/6/5820/21743796158_6b8d919eb6_z.jpg)](https://c2.staticflickr.com/6/5820/21743796158_6b8d919eb6_z.jpg)
+
+醬油顏色閃閃的樣子非常誘惑  
+醬汁味道微鹹中帶濃甜的不錯不錯  
+反覆燒了幾次外層燒的焦脆  
+可惜... 不是韌的 T-T  
+這不是糯米是米打成的吧  
+總之它是很好，卻不是我喜愛的東西  
+
+[![](https://c2.staticflickr.com/6/5645/21308916714_0d1fe80551_z.jpg)](https://c2.staticflickr.com/6/5645/21308916714_0d1fe80551_z.jpg)
+
+伯伯一直燒燒燒，忍不住就買了～  
+  
+日本很少街頭垃圾桶  
+所以吃完的籤就放在圖右的收集筒就OK！（綠圈圈）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)

@@ -1,0 +1,28 @@
+---
+title: '[臺北暴食遊] Day2：鴉片粉圓'
+date: 2014-04-23T21:00:00.001+08:00
+draft: false
+aliases: [ "/2014/04/day2_1880.html" ]
+tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
+---
+
+是一碗滿滿的小粉圓  
+
+很QQ的，不太甜的味道  
+就是這個原因會令人吃了會再想吃
+
+[![](https://4.bp.blogspot.com/-RUIDXfKAEYQ/XDGf1yYL8MI/AAAAAAAAEgU/gt7ffp0JHksoxgh1tsoyeCOjRTAknvs9wCLcBGAs/s640/59.jpg)](https://4.bp.blogspot.com/-RUIDXfKAEYQ/XDGf1yYL8MI/AAAAAAAAEgU/gt7ffp0JHksoxgh1tsoyeCOjRTAknvs9wCLcBGAs/s1600/59.jpg)
+
+故此會叫做鴉片粉買吧～  
+這味道真會叫人上癮似的
+
+（不是真的有鴉片在內啦）  
+我覺得粉圓是最好吃
+
+其次是愛玉，再者是珍珠  
+  
+不過香港的珍珠更遜就是啦！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)

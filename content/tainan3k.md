@@ -1,0 +1,55 @@
+---
+title: '[臺南喪食遊] Day3：台南三越中山店﹣黑橋牌現烤香腸、先麥芋頭鮮奶雪糕、銀波布丁'
+date: 2013-10-20T19:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day3b2.html" ]
+tags : [travel - 臺灣・臺南、六龜]
+---
+
+除了吃，做港女豈能不行商場？  
+逛了康士美那些店，行經麵包鋪也逛逛看看  
+到了三越，看到高樓層那裡有美食展  
+還需要多說嗎？  
+  
+香味能提高食慾是沒有錯  
+
+[![](https://3.bp.blogspot.com/-gy4zqDCJH0E/XCRO3LOPhII/AAAAAAAACA8/FoB8lYWHZfko_qOPGIrWIsGANXR8DwpuACLcBGAs/s640/64.jpg)](https://3.bp.blogspot.com/-gy4zqDCJH0E/XCRO3LOPhII/AAAAAAAACA8/FoB8lYWHZfko_qOPGIrWIsGANXR8DwpuACLcBGAs/s1600/64.jpg)
+
+現烤香腸的香氣四溢  
+雖然是在香港打死都不買的黑橋牌  
+但真的很香呀，懶理是黑橋牌抑或occupied  
+甜的甜的甜的甜的，這就是台灣香腸  
+
+[![](https://4.bp.blogspot.com/-Ygz2NisDzGc/XCRPA6Q9KMI/AAAAAAAACBA/vfQYYAngQDMM9NxqurJWb2BQgZJvrhAngCLcBGAs/s640/65.jpg)](https://4.bp.blogspot.com/-Ygz2NisDzGc/XCRPA6Q9KMI/AAAAAAAACBA/vfQYYAngQDMM9NxqurJWb2BQgZJvrhAngCLcBGAs/s1600/65.jpg)
+
+再來一條先麥芋頭鮮奶雪糕  
+名稱是雪糕，香港會稱作雪條吧  
+沒有加水製成，所以滿滿牛奶味與芋頭味  
+而且不太甜，GOOD！  
+  
+  
+再買了一些吃的，然後去逛逛賣書那層．．．  
+  
+  
+當然不會錯過B2層 美食街  
+
+[![](https://1.bp.blogspot.com/-3Dn2rnsyZhk/XCRPLgN1oGI/AAAAAAAACBI/GoiICXWJosASH5mlC_eYaVaMJ2QEKvHtACLcBGAs/s640/66.jpg)](https://1.bp.blogspot.com/-3Dn2rnsyZhk/XCRPLgN1oGI/AAAAAAAACBI/GoiICXWJosASH5mlC_eYaVaMJ2QEKvHtACLcBGAs/s1600/66.jpg)
+
+去台南一定要吃  
+剛好老店銀波布丁（since1939）在這裡做快閃  
+平實的六個裝就二話不說地帶走  
+好像很多的樣子會吃不完嗎？  
+Of course NOT!!!  
+回到酒店已經一口氣 鯨！吞！三！個！  
+滑滑的布丁氣孔不多  
+充滿雞蛋與牛奶的味道  
+焦糖味濃而不苦  
+完全像味吉洋一中的味皇般說出：  
+「好好味呀～～～～～」  
+  
+  
+購物完結，返酒店！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

@@ -1,0 +1,49 @@
+---
+title: '[臺北暴食遊] Day3：阿柑姨@九份'
+date: 2014-04-26T14:00:00.000+08:00
+draft: false
+aliases: [ "/2014/04/day3_3736.html" ]
+tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
+---
+
+QQ的芋圓地瓜圓正港創始店  
+
+豈有不吃的道理？  
+  
+
+[![](https://2.bp.blogspot.com/-qNoF8SXWRjA/XDGhX5lgJGI/AAAAAAAAEhY/01NjT5cO_OIfcRlSBbf-jI0qBZiOItxSwCLcBGAs/s640/69.jpg)](https://2.bp.blogspot.com/-qNoF8SXWRjA/XDGhX5lgJGI/AAAAAAAAEhY/01NjT5cO_OIfcRlSBbf-jI0qBZiOItxSwCLcBGAs/s1600/69.jpg)
+
+買了熱騰騰的芋圓
+
+要坐下吃的話
+
+就要穿過他家的廚房、客廳同走廊  
+（還有看見小朋友蹲著削皮）  
+不過這一切也不會影響品嚐芋買的心情  
+因為在靠窗的位置
+
+可看著一堆堆的山境
+
+人也像放鬆起來  
+  
+阿柑姨將來自大甲的檳榔心芋  
+跟金山的紅心地瓜（蕃薯）
+
+製作出口感綿密且紮實的芋圓  
+而且還發明了以綠豆與太白粉攪拌的綠豆圓  
+我當然選擇三種混合的綜合芋圓
+
+內裡還可加入加了綠豆料、紅豆料及花豆料  
+紅豆，芋圓QQ的不太甜
+
+各有各的淡淡清香但不會互相蓋著味道
+
+  
+
+就這麼一碗滿滿的
+
+溢出來的幸福感  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)

@@ -1,0 +1,25 @@
+---
+title: '[soufflé] 太平館式焗疏乎厘'
+date: 2014-03-05T19:30:00.000+08:00
+draft: false
+aliases: [ "/2014/03/souffle.html" ]
+tags : [flavor - 螞蟻族]
+---
+
+「哇～ 大到核爆」  
+
+[![](https://1.bp.blogspot.com/-5E1nMDN4m64/XC3tVGGqdBI/AAAAAAAADwI/SH4yv2Dmlro-_u-LU4AuQGd2Q4pIKACKgCLcBGAs/s640/11.jpg)](https://1.bp.blogspot.com/-5E1nMDN4m64/XC3tVGGqdBI/AAAAAAAADwI/SH4yv2Dmlro-_u-LU4AuQGd2Q4pIKACKgCLcBGAs/s1600/11.jpg)
+
+比我的頭還要大的soufflé  
+就是把法式精緻甜品  
+弄成港式的大件夾抵食  
+  
+純碎的蛋白+糖+牛油  
+要把蛋白好好打發才有空氣感  
+好好地控制火候  
+先會令成品完美升高  
+  
+如過不吃太多就不會過甜  
+兩個人分就太多了  
+除了太甜當然也太漏  
+適可而止，三五知己分享就最好

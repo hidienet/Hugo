@@ -1,0 +1,32 @@
+---
+title: '[lip] 雪花秀 - 藝 潤唇霜'
+date: 2013-12-12T20:00:00.000+08:00
+draft: false
+aliases: [ "/2013/12/lip.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+很喜歡這枝唇霜，雖然當初只為「湊數」而買  
+
+[![](https://2.bp.blogspot.com/-cFo7PaCf3aw/XCdhvvVu9ZI/AAAAAAAACpQ/dUGxcFxdTgEpd_RXyEt2OweiB6g5UShswCLcBGAs/s640/22.jpg)](https://2.bp.blogspot.com/-cFo7PaCf3aw/XCdhvvVu9ZI/AAAAAAAACpQ/dUGxcFxdTgEpd_RXyEt2OweiB6g5UShswCLcBGAs/s1600/22.jpg)
+
+唧出來像超濃縮的潤燥似的  
+杰身啡色的，不太濃的韓藥味  
+  
+用後像塗上唇彩般  
+令令的唇部飽飽滿漲卜卜    
+  
+經過一段時間   
+咀部血氣更好而令其更紅  
+也不再脫皮   
+  
+於晚間時使用  
+清早起來發現咀上  
+有一堆堆白色軟化了的死皮   
+輕輕抹掉了，唇部的紋更淡  
+也會更紅和滑滑的    
+  
+很平又大的一枝，用量超少  
+半粒小豆就夠塗全咀，很抵用！   
+  
+而且蓋子底部有小鏡子，很貼心又方便

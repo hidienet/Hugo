@@ -1,0 +1,42 @@
+---
+title: '[masque] annie''s way 熊果素玻尿酸淨白果凍面膜'
+date: 2014-04-17T22:00:00.001+08:00
+draft: false
+aliases: [ "/2014/04/masque-annies-way.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+冷卻皮膚的凍gel mask？  
+
+[![](https://2.bp.blogspot.com/-ehTnW_aByHs/XDGFNbAncuI/AAAAAAAAEc0/GRu8tVon_KQ1qmrdYEPOUGtZtydoAFdoQCLcBGAs/s640/31.jpg)](https://2.bp.blogspot.com/-ehTnW_aByHs/XDGFNbAncuI/AAAAAAAAEc0/GRu8tVon_KQ1qmrdYEPOUGtZtydoAFdoQCLcBGAs/s1600/31.jpg)
+
+well，這罐面膜其實是深層清潔的  
+有點奇怪，因為添加美白的熊果素  
+跟保濕的透明質酸，還是清潔mask嗎哈哈  
+  
+再強調，真的是cleansing mask  
+顏色透明gel gel狀  
+超～ 厚～ 的敷上面  
+厚度大概是：「當這東西免費的能塗多厚就多厚」的地步（！）  
+反正太薄的話  
+敷面時乾掉就不會有效果  
+別因為想用多幾次就省著用  
+沒有效果才是更浪費的事  
+  
+敷30分鐘（一般我敷40-45分鐘）  
+用棒刮開多餘的gel後沖洗  
+很易清洗不會有殘留  
+洗面後覺得好清爽就對了  
+不會乾，這透明質酸完全發揮了作用  
+最主要的深層清潔功效非常明顯  
+黑頭面層的都byebye  
+鼻翼比較粗大的毛孔也疏通疏通  
+暗粒亦謝了不少（or收細）  
+加上有熊果素  
+皮膚白起來，使整個面色都很好  
+  
+清潔保濕美白一take過  
+非常好用又有效果  
+如果硬要加上缺點的話  
+那就是花的時間較長  
+以及需要用量真的很多吧～

@@ -1,0 +1,94 @@
+---
+title: '城巿閘誌 | HK Urban Canvas（旺角、油麻地篇）'
+date: 2018-04-16T16:58:00.000+08:00
+draft: false
+aliases: [ "/2018/04/hk-urban-canvas_74.html" ]
+tags : [amusement - exhibition]
+---
+
+落閘放狗係保安  
+落閘放畫係藝術  
+
+[![](https://c1.staticflickr.com/1/889/40781243854_08fbcab9ec_z.jpg)](https://c1.staticflickr.com/1/889/40781243854_08fbcab9ec_z.jpg)
+
+今次行到去旺角油麻地繼續聽人講故  
+出發！@紅磚屋  
+一級歷史建築嚟㗎  
+
+[![](https://c1.staticflickr.com/1/822/41452165672_00af0508e5_z.jpg)](https://c1.staticflickr.com/1/822/41452165672_00af0508e5_z.jpg)
+
+呢間賣秤嘅冇畫閘嘅  
+不過呢種舊式店舖（連阿婆）  
+都係好有歷史㗎  
+
+[![](https://c1.staticflickr.com/1/795/40781246414_34f0d3b927_z.jpg)](https://c1.staticflickr.com/1/795/40781246414_34f0d3b927_z.jpg)
+
+到油麻地果欄  
+導賞員由電視劇開始講  
+但係我冇睇過套劇  
+加上一直暴曬中  
+所以完全唔想聽佢講，遊魂中...  
+
+[![](https://c1.staticflickr.com/1/796/40781246044_0971ab2dec_z.jpg)](https://c1.staticflickr.com/1/796/40781246044_0971ab2dec_z.jpg)
+
+過埋馬路就去到有畫閘嘅舖  
+偉訊廣告工程  
+開咗舖，要即時睇可以用app睇  
+做鎅字膠廣告牌嘅  
+呢度附近有好多呢啲膠招牌㗎  
+
+[![](https://c1.staticflickr.com/1/887/27622691518_0c7c5e010c_z.jpg)](https://c1.staticflickr.com/1/887/27622691518_0c7c5e010c_z.jpg)
+
+勤記不銹鋼工程  
+真正式微嘅打鋅鐵行業  
+香港嘅師傅得返一兩個咋...  
+
+[![](https://c1.staticflickr.com/1/892/27622695358_50262b1240_z.jpg)](https://c1.staticflickr.com/1/892/27622695358_50262b1240_z.jpg)
+
+同利玻璃  
+好少有道閘上面寫咗好多字  
+因為要留低「拉砂」即係切割玻璃手法  
+手要定兼且快、狠、準  
+
+[![](https://c1.staticflickr.com/1/816/40781245434_26e303cce5_z.jpg)](https://c1.staticflickr.com/1/816/40781245434_26e303cce5_z.jpg)
+
+高輝電器工程  
+油麻地呢度以前係海邊  
+有好多船，因此都會有唔少嘅齒輪  
+呢間就係維修同賣齒輪嘅  
+
+[![](https://c1.staticflickr.com/1/817/27622694228_7a079dd53f_z.jpg)](https://c1.staticflickr.com/1/817/27622694228_7a079dd53f_z.jpg)
+
+五金舖：協和隆工程公司  
+黑白色好型格呢～  
+
+[![](https://c1.staticflickr.com/1/871/27622693868_dca2652ced_z.jpg)](https://c1.staticflickr.com/1/871/27622693868_dca2652ced_z.jpg)
+
+再嚟到少見啲嘅上海理髮店  
+少見在連個名係有分男女賓㗎  
+上海新雅蒙娜麗莎男女理髮公司  
+新亞係男賓；蒙娜麗莎就係女賓嘅  
+據講裡面啲理髮凳好貴  
+當年嚟講已經夠買層豪宅  
+
+[![](https://c1.staticflickr.com/1/787/27622693218_0072b3fa88_z.jpg)](https://c1.staticflickr.com/1/787/27622693218_0072b3fa88_z.jpg)
+
+呢道閘就係今次event嘅封面相  
+
+[![](https://c1.staticflickr.com/1/865/27622692928_d3262a4273_z.jpg)](https://c1.staticflickr.com/1/865/27622692928_d3262a4273_z.jpg)
+
+個tour最後嚟到公友祥麻雀象牙  
+吖！都係開咗舖  
+又係買少見少得返唔多嘅手工舖  
+手雕麻雀呀，而家啲麻雀都係電腦雕喇  
+  
+繼續係呢句... 呢篇會keep住update  
+直到有一日影晒呢批閘嘅  
+（我要親身去睇嘛...）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：  
+[城巿閘誌 展覽 | HK Urban Canvas Exhibition](https://www.hidie.net/2018/04/hk-urban-canvas-exhibition.html)  
+[城巿閘誌 | HK Urban Canvas（灣仔、上環、西營盤篇）](https://www.hidie.net/2018/04/hk-urban-canvas.html)  
+[城巿閘誌 | HK Urban Canvas（深水埗篇）](https://www.hidie.net/2018/04/hk-urban-canvas_16.html)

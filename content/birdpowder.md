@@ -1,0 +1,26 @@
+---
+title: '[cleanser] 美容文化社 うぐいすの粉'
+date: 2014-10-14T07:30:00.000+08:00
+draft: false
+aliases: [ "/2014/10/cleanser.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+為了這張蛋臉  
+就連屎，都會用上面（笑喊）  
+
+[![](https://1.bp.blogspot.com/-zjnG5MmRDBI/XE1ShXvLKdI/AAAAAAAAHFc/HLYyIbOjem0B6WG2X_vE3bNHNI5_D9TwACLcBGAs/s640/15223981939_ba19a10444_z.jpg)](https://1.bp.blogspot.com/-zjnG5MmRDBI/XE1ShXvLKdI/AAAAAAAAHFc/HLYyIbOjem0B6WG2X_vE3bNHNI5_D9TwACLcBGAs/s1600/15223981939_ba19a10444_z.jpg)
+
+以夜鶯的便便乾燥後成粉  
+加在起完泡泡的cleanser一齊洗  
+說真的，是有「味道」的  
+為了有光滑的蛋臉就閉氣乖乖用吧～  
+  
+在持續一星期兩隻三次使用  
+大概一個多月後的效果：  
+黑頭會較收斂起來不突出  
+粉刺量也會減少  
+肌膚會更明亮透白  
+  
+以最髒的東西做最有效的清潔  
+護膚品的學問有夠高深啊...

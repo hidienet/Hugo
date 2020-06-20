@@ -1,0 +1,43 @@
+---
+title: '[東京箱根食買浸] Day3：煉瓦亭 ポークカツレツ'
+date: 2013-10-31T18:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day3_6015.html" ]
+tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+---
+
+上百年的元祖炸豬排店  
+
+[![](https://2.bp.blogspot.com/-2eueuxPnDac/XCS0-jVfJEI/AAAAAAAACNE/bSkFaaa4wxEPltffyPoR7ZU1pLpDYAkPACLcBGAs/s640/38.jpg)](https://2.bp.blogspot.com/-2eueuxPnDac/XCS0-jVfJEI/AAAAAAAACNE/bSkFaaa4wxEPltffyPoR7ZU1pLpDYAkPACLcBGAs/s1600/38.jpg)
+
+好大的一碟炸豬扒，配上綠葉：椰菜絲  
+沒有多餘的東西就是能見真章吧！  
+
+[![](https://4.bp.blogspot.com/-5RJQcth4qCo/XCS1IJvZDSI/AAAAAAAACNM/_MUZl3oDyPA42YDu8b6N2gqB56pxRt5RQCLcBGAs/s640/39.jpg)](https://4.bp.blogspot.com/-5RJQcth4qCo/XCS1IJvZDSI/AAAAAAAACNM/_MUZl3oDyPA42YDu8b6N2gqB56pxRt5RQCLcBGAs/s1600/39.jpg)
+
+金黃色的炸麵包糠包住不太厚半肥瘦的豬扒  
+清楚看到不同的脂肪跟肉的分佈  
+外層酥脆，雖為油炸吃起來卻不油不膩  
+豬肉既嫩滑又紮實，一咬下肉汁便飛撲出來  
+好吃得一口接一口不能停下  
+  
+整塊豬扒（連菜絲）清光光後  
+竟只有剛好的滿足又帶點意猶未盡的感覺  
+完全不像吃完一碟滿油炸十級罪惡感的炸豬排  
+  
+超推薦，到銀座必吃喔！  
+  
+  
+餐廳於小巷而且低調，不好找  
+其實看見chanel那街口轉入向前走便是  
+店面是西式的，下層也是  
+
+[![](https://3.bp.blogspot.com/-Q6dD-IJkpoo/XCS1QfTONxI/AAAAAAAACNU/PiEy7db7rxwhVsZodoprBr9QvwxDgAnfACLcBGAs/s640/40.jpg)](https://3.bp.blogspot.com/-Q6dD-IJkpoo/XCS1QfTONxI/AAAAAAAACNU/PiEy7db7rxwhVsZodoprBr9QvwxDgAnfACLcBGAs/s1600/40.jpg)
+
+但我是坐高層和式的  
+坐得腿也酸，幸好很早便到店人流不多  
+不時轉換姿勢 XD  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)

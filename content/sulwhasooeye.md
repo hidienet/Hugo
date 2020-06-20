@@ -1,0 +1,31 @@
+---
+title: '[eye] 雪花秀 - 閃理眼霜'
+date: 2013-12-11T20:00:00.000+08:00
+draft: false
+aliases: [ "/2013/12/eye.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+這枝是我覺得蠻好用  
+但未想過掏腰包買的東西  
+
+[![](https://1.bp.blogspot.com/-HXP4YebIMPc/XCdinHChquI/AAAAAAAACps/K8M5qXRiU4o_QVOOBbga6mdkVxaf762wgCLcBGAs/s640/25.jpg)](https://1.bp.blogspot.com/-HXP4YebIMPc/XCdinHChquI/AAAAAAAACps/K8M5qXRiU4o_QVOOBbga6mdkVxaf762wgCLcBGAs/s1600/25.jpg)
+
+其實也沒有為什麼  
+只是我有太多用不完的眼霜而已  
+（「只有」眼霜太多用不完... 嗎？）  
+  
+也是濃濃的人蔘味  
+與面霜一樣要摩擦和暖後才用   
+  
+apply這眼霜要按穴位的  
+有助血液循環    
+  
+比想像中更輕柔不太厚身  
+而且吸收也算快   
+不會起油脂粒  
+  
+雖然我只是用了數枝sample   
+如果有機會試了很多眼霜之後  
+也沒有甚麼特別好的話  
+才再會考慮買貨裝

@@ -1,0 +1,37 @@
+---
+title: '[東京箱根食買浸] Day2：舟和 あんこ玉'
+date: 2013-10-28T19:30:00.001+08:00
+draft: false
+aliases: [ "/2013/10/day2_3949.html" ]
+tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+---
+
+好可愛好可愛好可愛的波波～（大心）  
+
+[![](https://4.bp.blogspot.com/-RsDmqF-3Puk/XCRhpdVPZTI/AAAAAAAACHA/PE2Ha0stNTEqgycH2YJ2wDtSRJu82EZnQCLcBGAs/s640/36.jpg)](https://4.bp.blogspot.com/-RsDmqF-3Puk/XCRhpdVPZTI/AAAAAAAACHA/PE2Ha0stNTEqgycH2YJ2wDtSRJu82EZnQCLcBGAs/s1600/36.jpg)
+
+あんこ玉，以高濃度而薄薄的寒天衣包著飽飽滿滿的餡料  
+九粒裡面有齊六種味道  
+．．．小豆、白いんげん、抹茶、苺、みかん、珈琲  
+完全適合甚麼也想試少少的我  
+  
+紅豆：不會太甜的香甜紅豆蓉，正！  
+白豆：比紅豆稍甜，但也很香很好吃  
+（雖然白豆餡跟紅豆餡都是傳統和菓子常客，但香港卻很少見）  
+抹茶：抹茶與豆沙混起來，茶味香又能減了少少甜  
+莓：莓的微酸令豆沙沒那麼膩，不過感覺有點fusion  
+蜜柑：酸酸甜甜的，很特別，但與豆餡一齊的感覺有點．．．怪．．．-\_-   
+咖啡：即溶咖啡與豆沙，它們真的不是朋友呢  
+  
+還是紅豆餡最好吃！  
+  
+  
+
+[![](https://4.bp.blogspot.com/-8O2CY_O748E/XCRhwGK2sCI/AAAAAAAACHE/ds81gCiXBtsEk2iRaRj6pIa_MWqQpTXTACLcBGAs/s640/37.jpg)](https://4.bp.blogspot.com/-8O2CY_O748E/XCRhwGK2sCI/AAAAAAAACHE/ds81gCiXBtsEk2iRaRj6pIa_MWqQpTXTACLcBGAs/s1600/37.jpg)
+
+原先也想嚐嚐芋ようかん（蕃薯羊羹）  
+但還是波波比較吸晴，然後便不想買四四方的它 :p  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)

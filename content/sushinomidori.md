@@ -1,0 +1,71 @@
+---
+title: '[寿司] 梅丘 すしの美登利'
+date: 2019-01-17T23:40:00.001+08:00
+draft: false
+aliases: [ "/2019/01/blog-post.html" ]
+tags : [flavor - 行膳積腹]
+---
+
+新年冇得去日本嘛  
+咪食吓寿司就當自己去咗囉…  
+（反正去日本都冇食過）  
+
+![](https://3.bp.blogspot.com/-A_SGt1rqUog/XECWwCdYyVI/AAAAAAAAFpY/OyO1O4dvY-EzRwCHQcAJfUnRNCsajOjjgCLcBGAs/s640/IMG_20190117_210423.jpg)
+
+壽司醬油都係用返自己名同配方  
+
+![](https://3.bp.blogspot.com/-pTR3vYH-Qjw/XECcPjrYIuI/AAAAAAAAFqA/xC9ANbqOeC8NDrW5if9QkuI69tBV1HTWACLcBGAs/s640/IMG_20190117_211510.jpg)
+
+**美登利 日本酒**  
+冇咩idea飲咩好嗌house sake就最穩陣  
+酒精16以上17未滿  
+新潟米味少少甜淡淡哋都唔錯  
+
+![](https://2.bp.blogspot.com/-ly_iCLtE5Kk/XECcgjoRxrI/AAAAAAAAFqM/UB-7o8rCFisjulpsefGDkmIB1D1eumhpQCLcBGAs/s640/IMG_20190117_211712.jpg)
+
+**鮟鱇魚肝軍艦**  
+內臟尤其膶就係好好好濃味嘅嘢  
+魚味勁重，好似啪咗成甖kawaii咁 XD  
+
+![](https://4.bp.blogspot.com/-DkEr_cp5jik/XECdDG2hcjI/AAAAAAAAFqU/jizEZxiUxAYycxzpFwbi-75er-tfWYJdACLcBGAs/s640/IMG_20190117_211721.jpg)
+
+**吞拿魚筋壽司**  
+香港冇點見過嘅吞拿魚部位  
+唔係咩貴嘢而係下欄嘢  
+不過唔好睇小佢  
+魚油味好重，仲係吞拿魚嘅味喎！  
+
+![](/images/sushinomidori.jpg)
+
+**特上壽司組合**  
+哇！响香港第一次見舖頭壽司上面嘅数の子（右下）唔係一片片而係成條上  
+爽爽嘅魚春食得好過癮   
+
+![](https://3.bp.blogspot.com/-f9NaFRe8LLM/XECeJLa2kNI/AAAAAAAAFqg/72qtDHTAXiomYQK8olxsbEHnypguTPLxQCLcBGAs/s640/IMG_20190117_212426.jpg)
+
+**特選壽司組合**  
+哈哈哈哈哈哈哈  
+真係好L正呀呢盤  
+講真佢呢個實物比menu張相更靚  
+好長~ 醬油同魚身都好甜嘅穴子  
+厚身鮮甜嘅大大帶子  
+清甜嘅松葉蟹腳  
+紫蘇葉條包覆嘅白身魚  
+啫喱式爽身嘅牡丹蝦  
+蝦頭裡面仲有超濃郁嘅蝦膏  
+講濃味又有蔥吞拿魚腩蓉手卷  
+魚油味好重嘅口爆子軍艦  
+豐腴嘅中同大吞拿魚腩香到癲  
+濃味最高當然係橙色令面嘅海膽軍艦  
+最後甜甜鬆軟嘅玉子做句號，堪稱完美！  
+
+![](https://1.bp.blogspot.com/-mM3wVcZL888/XECg9Dlz5yI/AAAAAAAAFqo/9xa4nhDe6uUM1IF4RmnyPtJgD-XF1CtjACLcBGAs/s640/IMG_20190117_221122.jpg)
+
+抹茶雪糕係用**丸久小山園抹茶**做  
+茶咩香濃唔會好苦澀  
+雪糕質地滑身，好味呀都  
+芝麻味都唔錯但抹茶太出色  
+  
+雖然唔算貴不過日本仲平啲  
+但係响香港用呢個價錢食到呢個質素  
+C/P值好高呀（讚）

@@ -1,0 +1,28 @@
+---
+title: '[臺中怒食遊] Day4：鹿港龍山魷魚肉粳'
+date: 2014-08-24T09:30:00.000+08:00
+draft: false
+aliases: [ "/2014/08/day4.html" ]
+tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+到達鹿港，放低行李後當然是要找吃的  
+
+[![](https://2.bp.blogspot.com/-cRMPBbe1ENk/XEwmzRyUL-I/AAAAAAAAGjI/9_-ibIfsXAwnEn0u-cZDJRmb5aau7HdjQCLcBGAs/s640/14975958566_83f067acfc_z.jpg)](https://2.bp.blogspot.com/-cRMPBbe1ENk/XEwmzRyUL-I/AAAAAAAAGjI/9_-ibIfsXAwnEn0u-cZDJRmb5aau7HdjQCLcBGAs/s1600/14975958566_83f067acfc_z.jpg)
+
+滿滿料子的粳（羹）  
+主料有魷魚蝦丸同肉丸  
+而湯裡面又加上筍絲香菇等等  
+湯頭屬於清淡帶甜  
+筍絲爽脆（好吧我承認我超喜歡吃筍）  
+土魷新鮮能一咬斷開  
+丸子都不會很鹹不錯不錯  
+但因為還是不愛粉芡湯  
+所以是沒有將整碗東西一飲而盡  
+  
+整體來說也算好食  
+美好的鹿港第一印象呢～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

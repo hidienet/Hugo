@@ -1,0 +1,68 @@
+---
+title: '[cleanser] 雪花秀 - 順行 潔顏泡 + 宮中蜜皂'
+date: 2013-12-03T20:00:00.000+08:00
+draft: false
+aliases: [ "/2013/12/cleanser.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+很怕一些cleansing product洗完面會很乾的感覺   
+所以乾性皮膚的我選潔面產品會有點揀擇     
+
+[![](https://2.bp.blogspot.com/-qx5D5vRIA6Q/XCd2ANyBx8I/AAAAAAAACtI/nMXhCWdEBeUIYe5vlfYjeDEpjD7Khc5QgCLcBGAs/s640/52.jpg)](https://2.bp.blogspot.com/-qx5D5vRIA6Q/XCd2ANyBx8I/AAAAAAAACtI/nMXhCWdEBeUIYe5vlfYjeDEpjD7Khc5QgCLcBGAs/s1600/52.jpg)
+
+先說潔顏泡，右邊的一枝二枝就是   
+大枝貨裝不是買的，是VIP生日的gift   
+  
+很好用，也很方便用  
+只是濕手濕面就可以  
+pump一下勁易起泡  
+而且是豐盈的泡絕不欺場  
+再將厚厚的泡於面上打圈後過水  
+  
+乾淨而不乾燥，又快又好用    
+但這也不是我最喜歡的雪花秀cleansing product...     
+  
+反而喜歡要用多一點時間起泡的潔面皂   
+  
+是！宮中蜜皂是超好用及抵用的產品    
+圖中左邊的，面是舊包裝的盒  
+  
+舊的好處是   
+  
+原來舊裝有三件貨；新版得返兩件！  
+加上舊的是有蓋盒子，新裝是花花碟一隻    
+姑勿論甚囂塵上樣的包裝  
+產品才是重點   
+  
+雖然比一按便可的潔顏泡多花了時間去起泡  
+（把這皂於手裡起一樣豐盈的泡真的要好有心機+耐性）  
+但論潔淨度和保濕度便更勝一籌   
+就比喻為潔顏泡是cleansing；  
+宮中蜜皂便是washing   
+是這麼樣的乾淨乾爽而不乾燥  
+加上我喜歡蜜皂的氣味多一點   
+因為蜜皂是以在「東醫寶鑒」和「本草綱目」中   
+認為具有清潔和柔軟肌膚作用的玉竹、芍藥及地黃   
+加入橄欖油，蜂蜜和6年根紅蓼珍液  
+用傳統手工熬製40天的手制工藝品    
+很利害的產品嘛！  
+  
+加上我覺得此皂如潔顏泡的最大分別是   
+蜜皂內有綠豆成份，有甚麼好？就是清「熱氣」   
+洗面後毛孔完全沒有一絲焗促的感覺  
+雖然潔顏泡也沒有，但蜜皂是更為清爽  
+  
+還有，如果背部生了暗粒  
+（我不多，一年也沒有幾次）  
+用這皂洗澡便快快去走，皂子大大舊  
+其實夏天用來沖涼也很好   
+一來清涼； 二來大大舊的  
+用上全身也不肉赤  
+正常的早晚使用，只洗面能用三個月；  
+洗全身+面就大概一個月  
+
+[![](https://1.bp.blogspot.com/-plM1pc-CGhM/XCd2KU6yxzI/AAAAAAAACtM/mD2NWjl_anowguTKoEzH6Ku_HTKxMmuBgCLcBGAs/s640/53.jpg)](https://1.bp.blogspot.com/-plM1pc-CGhM/XCd2KU6yxzI/AAAAAAAACtM/mD2NWjl_anowguTKoEzH6Ku_HTKxMmuBgCLcBGAs/s1600/53.jpg)
+
+tips：蜜皂底部的貼紙不會撕  
+因為撕破了皂會變型成一pat野

@@ -1,0 +1,94 @@
+---
+title: '[Happy Days！鹿児島宮崎！] Day 8：砂むし会館 砂楽、指宿駅（w/駅前足湯）'
+date: 2017-06-14T09:33:00.000+08:00
+draft: false
+aliases: [ "/2017/06/happy-days-day-8-w.html" ]
+tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+---
+
+鹿児島梗係要玩指宿砂浴啦～  
+
+[![](https://c1.staticflickr.com/5/4266/34373051254_c46e18f7a0_z.jpg)](https://c1.staticflickr.com/5/4266/34373051254_c46e18f7a0_z.jpg)
+
+**砂むし会館 砂楽**  
+備受遊客同旅遊書歡迎  
+裡面有最緊要嘅砂溫泉之外  
+仲有好普通公眾浴池式嘅溫泉  
+
+[![](https://c1.staticflickr.com/5/4235/34373051364_8e80decc45_z.jpg)](https://c1.staticflickr.com/5/4235/34373051364_8e80decc45_z.jpg)
+
+換好件浴衣就可以落去玩砂  
+
+[![](https://c1.staticflickr.com/5/4221/34373051534_6965472e51_z.jpg)](https://c1.staticflickr.com/5/4221/34373051534_6965472e51_z.jpg)
+
+沿海邊嘅砂都係出哂煙㗎  
+佢係因為呢帶地底嘅溫泉水熱埋啲砂  
+而人呢就「浸」响啲熱砂度  
+同浸溫泉一樣都會出晒汗  
+熱啦總之就係  
+
+[![](https://c1.staticflickr.com/5/4205/34408308063_cc6e3f5785_z.jpg)](https://c1.staticflickr.com/5/4205/34408308063_cc6e3f5785_z.jpg)
+
+熱砂之外，一大個海景真係好靚  
+仲要係咁好嘅天氣  
+
+[![](https://c1.staticflickr.com/5/4208/35087676471_e3974856c6_z.jpg)](https://c1.staticflickr.com/5/4208/35087676471_e3974856c6_z.jpg)
+
+然後入去呢間茅屋  
+
+[![](https://c1.staticflickr.com/5/4265/34408308403_a406b6818f_z.jpg)](https://c1.staticflickr.com/5/4265/34408308403_a406b6818f_z.jpg)
+
+成日响啲poster上面見到露天先有嘅遮仔冇得上場  
+
+[![](https://c1.staticflickr.com/5/4207/35217443155_706d2f5f37_z.jpg)](https://c1.staticflickr.com/5/4207/35217443155_706d2f5f37_z.jpg)
+
+～呢條hihi就係咁被活埋喇～  
+工作人員一路炒砂  
+唔係要炒熱啲砂  
+相反係要令到啲砂同空氣接觸多啲  
+等佢地降吓溫  
+越深嘅砂就越熱所以佢哋一直响度炒炒炒  
+當然啦活埋你哋呢班契弟都係好重要嘅工作（！）  
+如果唔係老細做乜要開舖做生意呀  
+  
+瞓咗大概廿分鐘先起身  
+好鬼重㗎堆砂，起身有少少吃力  
+呀～ 出完呢身汗好鬼爽  
+離開堆重砂仲成身輕晒  
+堅爽皮，不過成個過程係睇唔到出面個海景嘅  
+起身行出嚟先再一次見到個靚海景  
+  
+然後快速返入大樓剝衫沖身  
+去浸埋個好流又細嘅公眾浴池式溫泉  
+最後隊幾杯水  
+兜埋商店仔就搭巴士走喇  
+
+[![](https://c1.staticflickr.com/5/4267/35217443935_51d467150e_z.jpg)](https://c1.staticflickr.com/5/4267/35217443935_51d467150e_z.jpg)
+
+**指宿駅**  
+因為呢次咁糟糕嘅安排  
+感覺上成個指宿都冇點去過就要走  
+話說，原本我係想去**たまて箱温泉**同**西大山駅**  
+
+[![](https://c1.staticflickr.com/5/4197/35087676121_d4039823e5_z.jpg)](https://c1.staticflickr.com/5/4197/35087676121_d4039823e5_z.jpg)
+
+無啦無啦帶住遺憾仲嘥晒啲飛咁走喇  
+個西大山啲飛仲要係買去指宿嗰陣  
+賣飛姐姐知我想去而送俾我㗎 TT  
+
+[![](https://c1.staticflickr.com/5/4258/34373051724_77b9f0fe18_z.jpg)](https://c1.staticflickr.com/5/4258/34373051724_77b9f0fe18_z.jpg)
+
+**指宿駅前足湯**  
+at the end 走之前又去浸吓腳  
+
+[![](https://c1.staticflickr.com/5/4195/34408308783_9a48588780_z.jpg)](https://c1.staticflickr.com/5/4195/34408308783_9a48588780_z.jpg)
+
+無料，仲要無人浸  
+
+[![](https://c1.staticflickr.com/5/4281/35217443675_6a455ebe38_z.jpg)](https://c1.staticflickr.com/5/4281/35217443675_6a455ebe38_z.jpg)
+
+自己慢慢嘆啦... （and 嘆氣）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)

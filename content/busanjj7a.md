@@ -1,0 +1,55 @@
+---
+title: '[明明遊慶州 偏向釜山行] Day7：허심청（虛心廳）'
+date: 2014-01-20T10:00:00.000+08:00
+draft: false
+aliases: [ "/2014/01/day7.html" ]
+tags : [travel - 남한・부산、경주 (釜山、慶州)]
+---
+
+「最開心 浸溫泉 浸溫泉⋯⋯」  
+
+[![](https://1.bp.blogspot.com/-tj6MEgB7_dU/XCyWuTxHjdI/AAAAAAAADnE/LgS6tpfUvkgap1Fcghvl7YaKxExPKKP5ACLcBGAs/s640/16.jpg)](https://1.bp.blogspot.com/-tj6MEgB7_dU/XCyWuTxHjdI/AAAAAAAADnE/LgS6tpfUvkgap1Fcghvl7YaKxExPKKP5ACLcBGAs/s1600/16.jpg)
+
+同日本的溫泉一樣全裸（男女分開的啦）  
+洗乾淨身體才浸，有不同的水溫  
+有不同主題，聽說有不同作用  
+愛每樣都試的我當然每個泉都去浸  
+  
+因為排隊等阿豬媽刷身的時間太久  
+所以沒有試了（殘念）  
+（之後在daiso買那種刷身布，超好用的）  
+  
+另，試了很有名的韓式艾草蒸  
+就是pat pat坐在燒起的艾草  
+目的令子宮更好云云  
+初初坐上去微暖挺舒服  
+可惜噩夢來了  
+皆因未能按時把加熱爐關掉  
+艾草越來越熱連關掉爐的餘溫也很高  
+熱到跳起來，過一兩分鐘再坐  
+不到30秒還是太熱又跳起來  
+來來回回跳幾次之後還是頂不順  
+終於走去房間  
+完全體驗到甚麼是「**火燒後欄**」XDDD  
+  
+原本都想試在首爾有名的汗蒸幕  
+免費區有sauna又不用跑到樓下  
+沒有去試了  
+  
+這裡的汗蒸幕看起來都幾過癮  
+
+[![](https://4.bp.blogspot.com/-R2Mjb4b6npE/XCyWz6cPnTI/AAAAAAAADnM/G9HWAjRp3i0L6VrnJW1LpYwUiozz6vaKwCLcBGAs/s640/17.jpg)](https://4.bp.blogspot.com/-R2Mjb4b6npE/XCyWz6cPnTI/AAAAAAAADnM/G9HWAjRp3i0L6VrnJW1LpYwUiozz6vaKwCLcBGAs/s1600/17.jpg)
+
+有傳統的泥蒸  
+
+[![](https://4.bp.blogspot.com/-qv8jDPjbG_A/XCyW5sdv91I/AAAAAAAADnQ/I-htHFZ6Faca6eDUsjwLrJS1TtK-2AfkwCLcBGAs/s640/18.jpg)](https://4.bp.blogspot.com/-qv8jDPjbG_A/XCyW5sdv91I/AAAAAAAADnQ/I-htHFZ6Faca6eDUsjwLrJS1TtK-2AfkwCLcBGAs/s1600/18.jpg)
+
+也有寶石蒸，蒸完皮膚會閃令令的嗎？  
+哈哈  
+  
+  
+超喜歡，絕對是推薦行程之一！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)

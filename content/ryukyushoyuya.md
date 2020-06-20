@@ -1,0 +1,37 @@
+---
+title: '[油菓子] 琉球醤油屋 - 黒糖醤油かりんとう、生姜醤油かりんとう'
+date: 2013-11-25T11:30:00.001+08:00
+draft: false
+aliases: [ "/2013/11/blog-post_9385.html" ]
+tags : [flavor - 螞蟻族]
+---
+
+かりんとう的中文譯做花林糖  
+但其實不是糖果，是以糖霜包面的米餅  
+
+[![](https://2.bp.blogspot.com/-8BAyvPocvK8/XCd_tizfUKI/AAAAAAAACx0/g-QmfxuPaKMJSTCQIe5fx1_LMplxgIL8QCLcBGAs/s640/91.jpg)](https://2.bp.blogspot.com/-8BAyvPocvK8/XCd_tizfUKI/AAAAAAAACx0/g-QmfxuPaKMJSTCQIe5fx1_LMplxgIL8QCLcBGAs/s1600/91.jpg)
+
+包裝又種很古早的感覺  
+  
+兩種的かりんとう都比一般吃的尾指大小的大很多  
+每條都大概有我差不多整隻手掌板長  
+而且是扁身扭起來，想過年吃的蛋散脆麻花那樣  
+  
+比較硬的，不適合無牙和不喜歡咬東西的人  
+（但我超喜歡咬咬咬～ ）  
+雖然是炸的不過一點油膉味都沒有  
+  
+左邊的**生姜醤油かりんとう**  
+甜甜的醬油帶生薑的味道  
+生薑只有少少的辣味  
+配搭得宜，令人一口接一口的吃  
+完全欲罷不能！  
+  
+右邊的**黒糖醤油かりんとう**  
+是原味（黑糖）的甜醬油味道  
+有種原始的感覺，很好吃～  
+  
+  
+兩包都不會太死甜，也不覺得很油膩  
+我個人就比較喜歡生姜醤油味那款  
+因為味道較原味特別

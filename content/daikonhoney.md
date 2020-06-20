@@ -1,0 +1,38 @@
+---
+title: '[養生館] 大根飴'
+date: 2013-10-26T11:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/blog-post_26.html" ]
+tags : [made by H - 開伙]
+---
+
+天氣越來越乾燥，喉嚨也容易感覺乾涸  
+這時候，自製的大根飴便會出動  
+
+[![](https://1.bp.blogspot.com/-fn6-dgWWm_g/XCRVQSfaEuI/AAAAAAAACD4/EDrKifcHva4a5jZ_lJ3bDBDOlUX3A1abQCLcBGAs/s640/11.jpg)](https://1.bp.blogspot.com/-fn6-dgWWm_g/XCRVQSfaEuI/AAAAAAAACD4/EDrKifcHva4a5jZ_lJ3bDBDOlUX3A1abQCLcBGAs/s1600/11.jpg)
+
+過年時有些人會將柑桔以鹽醃製成鹹柑桔  
+但要放置至少一年，對味的更要動輒上十年  
+完全不能想像喉嚨痛時要痛足十年等這粒桔是有多痛苦  
+而且我個人不喜歡鹹鹹酸酸的東西  
+（基本上不吃鹹醃菜如雪菜梅菜冬菜那些）  
+還是快的甜的又有效的適合我  
+加上做法超～ 簡～ 單～ 喔！  
+只是白蘿蔔跟蜂蜜就OK  
+  
+白蘿蔔3cm厚，切大約1cm x 1cm粒粒  
+放入闊口樽內  
+倒入蜂蜜，份量就是能蓋過蘿蔔便可  
+  
+之後會慢慢地看到蘿蔔出水跟浮起  
+放置室溫地方，待三幾日蘿蔔變成蘿蔔乾  
+（緊急時半天內已可先混起來飲用）  
+而蜂蜜變得水水的稀釋了便把蘿蔔夾出  
+然後蜜汁放入雪櫃  
+  
+喉痛時就以一湯匙加同等份量水飲用  
+只感覺喉乾便加多一點水解涸  
+  
+白蘿蔔能消炎；蜂蜜則能抗菌  
+所以能有效對付喉嚨乾痛的問題  
+最重要還是：很好味～ :)

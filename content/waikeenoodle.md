@@ -1,0 +1,36 @@
+---
+title: '[麵] 維記﹣豬膶麵'
+date: 2013-10-17T11:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/blog-post_17.html" ]
+tags : [flavor - 行膳積腹]
+---
+
+一堆豬膶放在煮好的公仔麵上  
+碗邊圍了些豬血x熱湯混合了的啡色泡渣  
+
+[![](https://3.bp.blogspot.com/-V0UyJsrRBOg/XCRBMpTouxI/AAAAAAAAB7c/jKgydv-HLgYxDCzLLn0l1C-cod-XlR70gCLcBGAs/s640/20.jpg)](https://3.bp.blogspot.com/-V0UyJsrRBOg/XCRBMpTouxI/AAAAAAAAB7c/jKgydv-HLgYxDCzLLn0l1C-cod-XlR70gCLcBGAs/s1600/20.jpg)
+
+賣相就是那麼的不討好  
+但味道卻是重點：  
+薄薄的豬膶剛好燙熟，入口爽脆  
+  
+  
+
+湯底薑味甚濃，把豬膶的腥味辟去
+
+  
+
+雖然我本身不愛吃即食麵
+
+但豬膶麵不配即食麵便不對味
+
+（甚麼米粉河粉生麵烏冬都不夾豬膶！）
+
+可惜都麵太吸湯汁，有點糊
+
+  
+  
+整體上都不錯  
+不過要排長龍的話就不值得了  
+（不用排隊或只排兩三個我才會吃）

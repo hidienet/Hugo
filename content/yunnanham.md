@@ -1,0 +1,38 @@
+---
+title: '[生活原味] 宣威 ‧ 劈腿記'
+date: 2013-12-27T19:00:00.000+08:00
+draft: false
+aliases: [ "/2013/12/blog-post_27.html" ]
+tags : [flavor - 揀飲宅食]
+---
+
+呢個blog整天都被說無美女沒拋胸欠長腿一點都不吸引  
+好～ 這篇就豁出去，show足一整條美腿！  
+
+[![](https://1.bp.blogspot.com/-AdoavCzmRPI/XCiG1-fPb3I/AAAAAAAADMc/SrCJItPxZqwJi61ol7hYuWPj5l9jXVG6wCLcBGAs/s640/48.jpg)](https://1.bp.blogspot.com/-AdoavCzmRPI/XCiG1-fPb3I/AAAAAAAADMc/SrCJItPxZqwJi61ol7hYuWPj5l9jXVG6wCLcBGAs/s1600/48.jpg)
+
+真的是一！整！條！童叟無欺！  
+  
+飛機行李帶運來的時候  
+因為飛機上有其他跟團的人  
+看著我那隻腿（雲腿啦拜託！）  
+就一直在問我在哪裡哪裡買  
+為甚麼她們看不到云云  
+當然啦，我又不是跟旅行團  
+買什麼都可以自己揀  
+（她們跟領隊導遊買甚麼咖啡和蛋糕等等）  
+  
+當然沒有像漫畫般把腿打斜放在背上  
+只是直接拿住腿骨而已  
+  
+不過，又因為是全隻腿運回來  
+我當然沒有力氣劈  
+要帶去朋友家，他爸爸是一個青筋人  
+很瘦但很有力氣那種  
+拜託他就可以啦，哈哈  
+  
+肉質緊密，又不像金華那麼死鹹  
+直接吃、送啤酒、煮菜都可以  
+放湯去煲就有點浪費  
+超～ 好～ 吃～～～  
+不愧爲烏金豬（雖然只買普通等級不太大款式）

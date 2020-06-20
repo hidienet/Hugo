@@ -1,0 +1,22 @@
+---
+title: '[湯圓] 糖朝 明爐麻蓉湯圓'
+date: 2014-03-03T15:15:00.000+08:00
+draft: false
+aliases: [ "/2014/03/blog-post_3.html" ]
+tags : [flavor - 螞蟻族]
+---
+
+感覺像在打湯圓邊爐般  
+
+[![](https://2.bp.blogspot.com/-l8rToERyG8k/XC3uT2fPsSI/AAAAAAAADw4/PYqyBVF5mXM-lLjFCxHOPvOkl_mSaGYxwCLcBGAs/s640/17.jpg)](https://2.bp.blogspot.com/-l8rToERyG8k/XC3uT2fPsSI/AAAAAAAADw4/PYqyBVF5mXM-lLjFCxHOPvOkl_mSaGYxwCLcBGAs/s1600/17.jpg)
+
+一整個明爐上檯，有點氣勢  
+薑湯的氣味就一直飄出來  
+喝了薑湯，不太甜而且老薑味濃  
+驅寒驅風一流  
+圓滾圓滾的湯圓皮厚薄適中  
+柔韌而有嚼勁不會覺得削  
+餡料的流心黑芝麻蓉  
+香甜濃郁卻清爽不黏膩  
+明爐又能讓由頭到尾吃下時都是熱的  
+整個組合也太好了吧（大滿足）

@@ -1,0 +1,30 @@
+---
+title: '[臺北暴食遊] Day2：楊記—花生玉米冰@西門町'
+date: 2014-04-23T13:30:00.000+08:00
+draft: false
+aliases: [ "/2014/04/day2_23.html" ]
+tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
+---
+
+我吃花生是一粒粒形態那種：不喜歡花生醬；更是討厭花生油！  
+
+[![](https://3.bp.blogspot.com/-Z5p3MA-zFMM/XDGfiX7P73I/AAAAAAAAEgE/XzwBqt4aXksIcBUOLwBRBD1E7jBaSvNOwCLcBGAs/s640/57.jpg)](https://3.bp.blogspot.com/-Z5p3MA-zFMM/XDGfiX7P73I/AAAAAAAAEgE/XzwBqt4aXksIcBUOLwBRBD1E7jBaSvNOwCLcBGAs/s1600/57.jpg)
+
+看到這奶白色一pat的花生糊，其實有點抗拒  
+但本著「人一世物一世來到這裡不吃這個就笨」的心態  
+還是點了．．．  
+  
+綿密的花生吃起來幾乎感受不到顆粒的存在  
+陣陣甜味散發出不是人工的味道（像平日吃的花生醬那般）  
+反之而來是微鹹的粟米醬  
+剛吃覺得不習慣，不過咀嚼後又轉化為甜很好吃  
+花生的甜與玉米的微鹹的搭配簡直就是絕配  
+底部的冰也很綿沒有糖水味  
+令上面的料不會因多吃而覺得太濃郁  
+  
+  
+幸好自己為了吃，踏出了這一步～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)

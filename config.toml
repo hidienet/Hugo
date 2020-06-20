@@ -1,0 +1,56 @@
+baseURL = "https://hidie.net/"
+languageCode = "zh-hk"
+title = "Ḧidie.net"
+theme = "mediumish"
+summaryLength = 25
+copyright = "Ḧidie.net - All rights reserved"
+enableEmoji = true
+publishDir = "docs"
+#disqusShortname = "your-shortname-here"
+googleAnalytics = "UA-169364038-1"
+
+[params]
+  logo = "/images/header.png"
+  description ="Ḧidie.net"
+#  mailchimp = "you can provide a mailchimp-link here"
+
+[params.author]
+#  name = "Ḧidie"
+#  thumbnail = "/images/h.png"
+#  description = ""
+
+[params.index]
+  picture = "/images/author.png"
+  title = "Ḧidie.net"
+  subtitle = "Ḧidie.net"
+  mdtext = '''
+Currently trying to get this blog running, still don't know what the blog will be about!\
+**This textblock is a demonstration of the mdtext-param.**\
+### This is a markdown heading
+'''
+  alertbar = false
+
+[params.social]
+#  github = "<username>"
+#  linkedin = "<username>"
+#  xing = "<username>"
+#  medium = "<username>"
+  twitter = "hidie_net"
+#  instagram = "<username>"
+
+## Main Menu
+[[menu.main]]
+     name = "facebook-square"
+     weight = 100
+     identifier = "facebook"
+     url = "http://fb.com/hidie.net"
+[[menu.main]]
+     name = "twitter"
+     identifier = "twitter"
+     weight = 200
+     url = "https://twitter.com/hidie_net"
+## [[menu.main]]
+##     name = "Imprint"
+##     identifier = "imprint"
+##     weight = 200
+##     url = "/static/imprint"

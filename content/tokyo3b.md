@@ -1,0 +1,58 @@
+---
+title: '[東京箱根食買浸] Day3：松露﹣高級玉子焼、大定﹣江戶前玉子焼'
+date: 2013-10-30T11:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day3_3798.html" ]
+tags : [flavor - 小食部, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+---
+
+一大清早到築地當然是為了吃最新鮮的海鮮  
+不過玉子焼也是築地的另一名物  
+加上搭乘JR的我沿路走，蛋比魚更早在步行範圍  
+金黃帶微焦的玉子焼，我來了～  
+松露跟大定都買了，都是外帶品  
+在街上隨便拍個照便大口吃 XD  
+這裡的玉子焼不像平日吃熱騰騰而是凍的  
+熱騰騰那種中間有空隙  
+半熟的蛋汁跟湯汁在裡面流動流動  
+而凍的這個是綿密紮實沒有空隙  
+兩者各有各好，不用比較  
+  
+雖然沒有了熱騰騰跟半熟卵的幸褔感  
+但完全不減其美味，而且能大啖大啖吃的豪氣  
+  
+  
+
+[![](https://1.bp.blogspot.com/-24IRcP6fnaw/XCRnGHPMJaI/AAAAAAAACKs/ibWRiStKJBk5z6tKqPwQUkJhJUYlzoQQwCLcBGAs/s640/11.jpg)](https://1.bp.blogspot.com/-24IRcP6fnaw/XCRnGHPMJaI/AAAAAAAACKs/ibWRiStKJBk5z6tKqPwQUkJhJUYlzoQQwCLcBGAs/s1600/11.jpg)
+
+松露 高級玉子焼
+
+蛋非常有彈性，還像海棉般的吸了滿滿的醬汁
+
+充滿蛋香與淡淡的甜味在口中散開  
+甜而不膩，吃完還想再encore  
+  
+幸好，還有．．．  
+  
+  
+
+[![](https://3.bp.blogspot.com/-DxfqMTaC5yE/XCRnNvikrFI/AAAAAAAACKw/rbsEDN4tBIQm4NqBshzA8HdWdC1k-u-ZACLcBGAs/s640/12.jpg)](https://3.bp.blogspot.com/-DxfqMTaC5yE/XCRnNvikrFI/AAAAAAAACKw/rbsEDN4tBIQm4NqBshzA8HdWdC1k-u-ZACLcBGAs/s1600/12.jpg)
+
+大定 江戶前玉子焼  
+鬆軟的蛋，有著醇厚的醬汁甜味  
+偏甜味道雖令蛋味不太濃，卻感覺較純撲  
+若清淡為都市人所追求；  
+江戶前便是把當年的時間停留  
+對於尚要趕著去吃海鮮的我吃完這個是有點膩  
+可是滿腹的幸福感就是親口嚐過才知道  
+  
+  
+結論是，兩家的蛋各有千秋  
+也吃清光～  
+  
+  
+去築地一定要留肚子吃玉子焼！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)

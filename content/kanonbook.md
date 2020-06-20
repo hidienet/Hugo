@@ -1,0 +1,30 @@
+---
+title: '[閱讀瘦身法] 按住瘦：把脂肪推推推走'
+date: 2013-12-09T10:30:00.001+08:00
+draft: false
+aliases: [ "/2013/12/blog-post_9.html" ]
+tags : [amusement - books]
+---
+
+如其脂肪分佈位置有問題  
+就把它們推至「歸位」～  
+
+[![](https://4.bp.blogspot.com/-KAzCJD0MPbM/XCdkXeozCiI/AAAAAAAACqo/upxEV3xcz9QUa5KvR6LFB2wsTYtfdnc4gCLcBGAs/s640/33.jpg)](https://4.bp.blogspot.com/-KAzCJD0MPbM/XCdkXeozCiI/AAAAAAAACqo/upxEV3xcz9QUa5KvR6LFB2wsTYtfdnc4gCLcBGAs/s1600/33.jpg)
+
+「夜寝る前！なでるだけ☆ダイエット」  
+－蓮水カノン＊  
+  
+超簡單，只是把想瘦的位置的脂肪  
+以手掌推推推至集中排泄的地方  
+當然也可以推到想變「有脂肪」的部位  
+不花時間，動作亦不難  
+  
+那麼，效果呢？  
+  
+數字上有很輕微的減少  
+不過有推過的地方看起來線條確實好看了點  
+而且每次推後都有暖暖的感覺  
+好像血液脂肪都在流動流動  
+可惜想推「大」的地方就還是甚麼都沒有  
+  
+還好啦～

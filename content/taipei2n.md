@@ -1,0 +1,25 @@
+---
+title: '[臺北暴食遊] Day2：福州世祖胡椒餅@饒河街夜市'
+date: 2014-04-25T19:30:00.000+08:00
+draft: false
+aliases: [ "/2014/04/day2_25.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
+---
+
+圓滾滾的胡椒餅，超好吃的呢～  
+
+[![](https://2.bp.blogspot.com/-oQXS0haBZUs/XDGg0K-9B4I/AAAAAAAAEhE/SqFYCuvIiiobam-Ooei9SUbvjuU122fSACLcBGAs/s640/66.jpg)](https://2.bp.blogspot.com/-oQXS0haBZUs/XDGg0K-9B4I/AAAAAAAAEhE/SqFYCuvIiiobam-Ooei9SUbvjuU122fSACLcBGAs/s1600/66.jpg)
+
+又是要排隊先有得食  
+（因為新鮮現烤的）  
+不過花一點時間排這個這個絕對值得  
+外脆內香軟，面層酥酥脆  
+裡面的豬肉餡充滿肉汁  
+加上爆香的胡椒味  
+配合著爽脆卻帶汁的宜蘭蔥  
+  
+好吃到眼淚也要流出來了（激動）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)

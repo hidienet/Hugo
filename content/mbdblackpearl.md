@@ -1,0 +1,27 @@
+---
+title: '[masque] 我的美麗日記 黑珍珠奈米面膜'
+date: 2013-10-16T22:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/masque_16.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+還以為面膜會是黑色的，哈～  
+
+[![](https://4.bp.blogspot.com/-XYEu3Knhfps/XCRBAoYJA2I/AAAAAAAAB7Y/4ajm5Z3lW3UW3NnaVcfV2DO_I4V_2EmFQCLcBGAs/s640/19.jpg)](https://4.bp.blogspot.com/-XYEu3Knhfps/XCRBAoYJA2I/AAAAAAAAB7Y/4ajm5Z3lW3UW3NnaVcfV2DO_I4V_2EmFQCLcBGAs/s1600/19.jpg)
+
+沒有甚麼奇怪氣味的面膜  
+其功效是美白與加強皮膚彈性  
+面膜從包裝拿出，喔喔喔精華太多太多  
+一直滴滴滴滴滴下，幸好怎滴面膜紙還是濕濕的  
+  
+敷20﹣30分鐘，這塊的精華較爽身  
+用後不會黏黏的想去沖洗  
+  
+美白，完全看不出效果  
+一點也沒有白，少少也沒有  
+但能感受到用後肌膚更有彈性  
+而且精華水水的好吸收，皮膚也更水嫩  
+  
+整體用後感尚算不俗  
+不過以作美白mask的便會給負分喔

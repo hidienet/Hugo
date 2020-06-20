@@ -1,0 +1,56 @@
+---
+title: '[食の四国ツアー] Day2：骨付鳥 一鶴 本店'
+date: 2020-04-01T15:05:00.001+08:00
+draft: false
+aliases: [ "/2020/04/day2_1.html" ]
+tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+---
+
+雖然仲有啲飽，不過都係走咗去食嘢  
+因為丸亀除咗うどん出名之外仲有**骨付鳥**呢  
+
+![](/images/shikoku2d.jpg)
+
+要食，就食1952年發祥店嘅**一鶴**  
+**骨付鳥 おやどり**  
+用特製窯以300度高溫短時間整熟  
+雞髀肉勁韌加上超香雞味  
+而骨付鳥係指帶骨嘅雞  
+所以大大隻感覺非常豪氣啊  
+...不過就鹹咗啲  
+
+![](/images/shikoku2d1.jpg)
+
+咁佢就有配埋鮮椰菜一齊食中和吓  
+
+![](/images/shikoku2d2.jpg)
+
+不過都係要送生啤一齊先最OK  
+（隻玉露入り緑茶齋飲都唔錯，但係唔適合送鹹雞）  
+
+![](/images/shikoku2d3.jpg)
+
+**アジの三杯酢**  
+齋食鹹雞都係搵返條酸酸嘅鯵魚平衡吓味覺  
+魚仔皮脆肉香仲帶酸又幾開胃㗎喎  
+至少可以成功KO到隻大雞髀  
+
+![](/images/shikoku2d4.jpg)
+
+都話骨付鳥係丸亀名物之一啦  
+有吉祥物㗎！  
+  
+\-----------------------------------------------  
+  
+
+延伸閱讀：
+
+[食の四国ツアー (8D7N)](https://www.hidie.net/2020/05/8d7n.html)  
+[Day1：香川（高松）](https://www.hidie.net/2017/08/day1.html)  
+[Day2：香川（高松、丸亀、琴平）](https://www.hidie.net/2017/08/day2.html)  
+[Day3：香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/2017/08/day3.html)  
+[Day4：香川（高松）→ 愛媛（松山）](https://www.hidie.net/2017/08/day4.html)  
+[Day5：愛媛（松山、宇和島）](https://www.hidie.net/2017/08/day5.html)  
+[Day6：愛媛（松山）→ 高知（高知）](https://www.hidie.net/2017/08/day6.html)  
+[Day7：高知（高知、中村、須崎）](https://www.hidie.net/2017/08/day7.html)  
+[Day8：高知（高知）→ 高松（高松空港）](https://www.hidie.net/2017/08/day8.html)

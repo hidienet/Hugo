@@ -1,0 +1,46 @@
+---
+title: '[琉球戀吃活樂遊] Day3：首里そば、煮付け、氷ぜんざい'
+date: 2013-11-15T12:00:00.000+08:00
+draft: false
+aliases: [ "/2013/11/day3_15.html" ]
+tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+---
+
+世界上怎會有這麼好吃的そば？！  
+
+[![](https://1.bp.blogspot.com/-Bd0per1CXIM/XCdP8dpSTjI/AAAAAAAAClA/KeJBsXbi5eYYt9ckPKFrqbVoH327VNzBACLcBGAs/s640/80.jpg)](https://1.bp.blogspot.com/-Bd0per1CXIM/XCdP8dpSTjI/AAAAAAAAClA/KeJBsXbi5eYYt9ckPKFrqbVoH327VNzBACLcBGAs/s1600/80.jpg)
+
+**首里そば**  
+手打的面條粗硬而且非常有嚼勁  
+是以純小麥粉去搓製2小時後  
+再發酵5小時才下水煮的成  
+  
+魚片軟滑，豬肉更是入口即化沒有渣  
+滷汁入味又不會過鹹，一點也不覺得油膩  
+  
+湯底是以豬肉、鰹魚和昆布熬成  
+故有點像豚汁（みそ）的味道  
+淡淡的味道令人有種將它一飲而盡的衝動  
+  
+另點的**煮付け**中，蘿蔔跟海帶很甘甜  
+除了好吃還是好吃  
+
+[![](https://3.bp.blogspot.com/-s9m6lKq9LLM/XCdQCCuMB2I/AAAAAAAAClE/idSYOhH3ApY5FlyxCM6pc2bNwjeAkMIKACLcBGAs/s640/81.jpg)](https://3.bp.blogspot.com/-s9m6lKq9LLM/XCdQCCuMB2I/AAAAAAAAClE/idSYOhH3ApY5FlyxCM6pc2bNwjeAkMIKACLcBGAs/s1600/81.jpg)
+
+這就是美味的證據！  
+
+[![](https://3.bp.blogspot.com/-4nn2OYYDYwk/XCdQIYb5c1I/AAAAAAAAClI/dmPZbWsTRs0JnB4SJhDeVDPbWqT3Q1izwCLcBGAs/s640/82.jpg)](https://3.bp.blogspot.com/-4nn2OYYDYwk/XCdQIYb5c1I/AAAAAAAAClI/dmPZbWsTRs0JnB4SJhDeVDPbWqT3Q1izwCLcBGAs/s1600/82.jpg)
+
+追加的**氷ぜんざい**  
+紅豆冰不是香港飲用那種  
+是刨冰，底下有紅豆湯  
+刨冰綿綿滑滑  
+紅豆湯裡有大大粒煮得一咬便溶化的紅豆  
+味道香甜，加上刨冰一起吃便不會過甜  
+非常好吃的！  
+  
+誠意推薦這餐廳，此等美味在哪裡都不能再找到！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)

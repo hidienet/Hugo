@@ -1,0 +1,65 @@
+---
+title: '回憶咖喱'
+date: 2014-06-22T14:30:00.000+08:00
+draft: false
+aliases: [ "/2014/06/blog-post_22.html" ]
+tags : [collections - ？]
+---
+
+如果在超級市場看到這盒那麼殘的咖喱  
+
+一定不會買吧～  
+
+[![](https://4.bp.blogspot.com/-lBaklErFblw/XEMmaepcITI/AAAAAAAAFwI/_ShTeKp6ZTAsR3OAn3JtwyrFrVeEK3dOgCLcBGAs/s640/14233561148_100824be66_z.jpg)](https://4.bp.blogspot.com/-lBaklErFblw/XEMmaepcITI/AAAAAAAAFwI/_ShTeKp6ZTAsR3OAn3JtwyrFrVeEK3dOgCLcBGAs/s1600/14233561148_100824be66_z.jpg)
+
+我承認是保管不善
+
+因為此盒東東已經跟了我搬四五次家了
+
+一盒歷史「悠久」的陳年咖喱還可以吃嗎？  
+當然不能啦！哪裡通知你這個是吃的？
+
+[![](https://2.bp.blogspot.com/-umqdv5vy4w4/XEMmecBfawI/AAAAAAAAFwM/sj3pNpapfXUYVjHsUHFKjg20BiA-rqs4ACLcBGAs/s640/14419018394_e732bd531c_z.jpg)](https://2.bp.blogspot.com/-umqdv5vy4w4/XEMmecBfawI/AAAAAAAAFwM/sj3pNpapfXUYVjHsUHFKjg20BiA-rqs4ACLcBGAs/s1600/14419018394_e732bd531c_z.jpg)
+
+開盒後，看到很多很多滿堂紅的chili，辛辣的感覺
+
+[![](https://1.bp.blogspot.com/-vfGfWSvBSU8/XEMmjNtgsyI/AAAAAAAAFwQ/r3uddfLR1Yo83u6A3kkEruhPZeKrD2WhQCLcBGAs/s640/14420150865_fe648a47fc_z.jpg)](https://1.bp.blogspot.com/-vfGfWSvBSU8/XEMmjNtgsyI/AAAAAAAAFwQ/r3uddfLR1Yo83u6A3kkEruhPZeKrD2WhQCLcBGAs/s1600/14420150865_fe648a47fc_z.jpg)
+
+開估：是本小姐的相簿
+
+（這四隻小東西都是我啦）  
+  
+每次把這相簿拿出
+
+其他人會覺得很奇怪  
+「為什麼拿盒咖喱給我？」  
+  
+就是喜歡收藏古怪的東西
+
+  
+小時候有很多照片
+
+父母給我拍下來  
+人大了，覺得沒有甚麼好影
+
+也不再拍下自己的照  
+比起被拍，還是主動拍下人家更好（or東西）
+
+  
+就算現在拍下的
+
+也不像從前的一張張那麼實在  
+知道照片可曬出來
+
+但影了還是放在電腦的file便算  
+人越大東西也會越來越冷冰冰嗎？
+
+所以的也越來越不實在嗎？  
+可能只是自己不去再踏前一步吧  
+  
+其實是覺得現在的自己還不夠美
+
+怎樣拍也不美（尤其濕柴！）  
+抑或是害怕給人拍了被點了相？
+
+（你以為你自己是誰？）

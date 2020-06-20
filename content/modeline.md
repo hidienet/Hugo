@@ -1,0 +1,40 @@
+---
+title: '[stocking] modeline おそと用タイツ 80デニール'
+date: 2014-01-29T08:30:00.000+08:00
+draft: false
+aliases: [ "/2014/01/stocking-modeline-80.html" ]
+tags : [glamorous - 衫衫不盡 物慾無窮]
+---
+
+像我這種脂肪+肌肉+水腫三重打擊的胖胖腿  
+日瘦夜瘦當然是目標之一（絕不認命）  
+
+[![](https://1.bp.blogspot.com/-cC-27kx9ZYk/XCi1bigVH2I/AAAAAAAADdg/jPgAFip0YK00WNvtEfTMiRMJHx3mjfERACLcBGAs/s640/13.jpg)](https://1.bp.blogspot.com/-cC-27kx9ZYk/XCi1bigVH2I/AAAAAAAADdg/jPgAFip0YK00WNvtEfTMiRMJHx3mjfERACLcBGAs/s1600/13.jpg)
+
+made in japan的80針黑絲  
+（強調來源是因為多數同類型產品都是M.I.C.的）  
+其實看起來跟一般的黑絲無異  
+那就最好，別人看不出來的小小心機  
+雖然是壓力襪，不過一點都不會有壓迫感  
+密密的織法使摸上手很順滑  
+著上比一般普通絲襪易穿也更舒服  
+  
+神奇的事來了  
+  
+雖然平常黑絲已有顯瘦得效果  
+而著上這襪後，腿部的線條更美  
+整條腿看起來緊實了  
+最明顯的腳踝位置  
+修到不見了腫的問題  
+再從提，有這樣的收緊效果  
+卻一點都不覺得有壓迫感不舒服  
+  
+有次著上後下半身配膝蓋以上的裙跟平底鞋  
+跟一班每個月都會見到的朋友  
+她們居然問我用什麼方式那麼快瘦了  
+然後有個新相識的說我一點都不肥  
+雖然知道那是恭維的說話  
+不過也夠開心呢～  
+（女人）  
+  
+延伸閱讀：[Dr. Scholl Medi QttO](http://www.hidie.net/2013/12/leg-dr-scholl-medi-qtto.html)

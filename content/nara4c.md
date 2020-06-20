@@ -1,0 +1,71 @@
+---
+title: '[ララ奈良] Day4：東大寺'
+date: 2017-11-10T09:22:00.000+08:00
+draft: false
+aliases: [ "/2017/11/day4_10.html" ]
+tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+---
+
+飽住咁行呢個大大個地方嘅世界文化遺產  
+千二年歷史嘅**東大寺**就啱啱好  
+
+[![](https://c1.staticflickr.com/5/4440/36932670562_7a97b93b53_z.jpg)](https://c1.staticflickr.com/5/4440/36932670562_7a97b93b53_z.jpg)
+
+**大仏殿**  
+曾經燒咗兩次又再响鎌倉同江戸時代再建造  
+呢個国寶建造物都係現存世界最大嘅木造寺廟  
+好\_\_大囉咪就係  
+睇啲人同個殿嘅比例就知幾大喇啩  
+咁都想像唔到就飛一轉奈良啦唉  
+
+[![](https://c1.staticflickr.com/5/4479/37953972266_ca579bd216_z.jpg)](https://c1.staticflickr.com/5/4479/37953972266_ca579bd216_z.jpg)
+
+**八角燈籠**  
+高四米六嘅八角形銅製燈籠  
+都係国寶嚟㗎  
+
+[![](https://c1.staticflickr.com/5/4481/38007359641_eab01de15a_z.jpg)](https://c1.staticflickr.com/5/4481/38007359641_eab01de15a_z.jpg)
+
+**大仏尊像**  
+大仏殿裡面梗係有尊佛像啦  
+（唔通係有磚腐乳咩？）  
+15公尺，全日本最大嘅銅造佛像  
+好大好大座向上望得耐會頸痛嘅程度咁啦  
+
+[![](https://c1.staticflickr.com/5/4494/38007359251_89694a3f49_z.jpg)](https://c1.staticflickr.com/5/4494/38007359251_89694a3f49_z.jpg)
+
+呢碌木個窿叫「大佛個鼻窿」  
+穿過就會一年唔病同有神明庇佑咁話喎（哈）  
+
+[![](https://c1.staticflickr.com/5/4448/37298544414_0de42a7e55_z.jpg)](https://c1.staticflickr.com/5/4448/37298544414_0de42a7e55_z.jpg)
+
+**廣目天**  
+冇名牌就唔知咩打咩嘅神佛  
+
+[![](https://c1.staticflickr.com/5/4472/37953972596_e872ab6652_z.jpg)](https://c1.staticflickr.com/5/4472/37953972596_e872ab6652_z.jpg)
+
+**虛空藏菩薩**  
+當然啦，寫咗個名都唔知係咩打咩嘅其實  
+
+[![](https://c1.staticflickr.com/5/4499/37953971686_aff75e2bdd_z.jpg)](https://c1.staticflickr.com/5/4499/37953971686_aff75e2bdd_z.jpg)
+
+**賓頭盧尊者**  
+據說話摸邊醫邊嘅木雕... 喎  
+
+[![](https://c1.staticflickr.com/5/4459/37298546404_6497c21fb9_z.jpg)](https://c1.staticflickr.com/5/4459/37298546404_6497c21fb9_z.jpg)
+
+**東大寺ミュージアム**  
+大大隻佛手响門口  
+諗起《西遊記》㖭，哈哈  
+  
+  
+行得耐攰攰地，搵個地方坐下先。  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：  
+[Day1：志津香 | 興福寺五重塔 | 猿沢池 | なら泉勇斎 | 中谷堂 | 栗 ならまち店](https://www.hidie.net/2017/09/day-1.html)  
+[Day2：春日大社 | 奈良公園と鹿 | 玄 | 春鹿 | ならまち格子の家 | 樫舎 | 大仏プリン | 亜耶](https://www.hidie.net/2017/09/day-2.html)  
+[Day3：浮見堂 | 平宗柿の葉ずし | 奈良国立博物館 | 茶房暖暖 | 茶道体験 | 和やまむら](https://www.hidie.net/2017/09/day-3.html)  
+[Day4：吉城園 | 天極堂 | 東大寺 | 麺闘庵 | 江戸川 | あけび](https://www.hidie.net/2017/09/day-4.html)  
+[Day5：柿の葉すし たなか → 大阪](https://www.hidie.net/2017/09/day1.html)

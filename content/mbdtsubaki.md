@@ -1,0 +1,22 @@
+---
+title: '[masque] 我的美麗日記 山茶花極潤保濕面膜'
+date: 2014-10-15T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/10/masque_15.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+保濕加滋潤，水分一滴都不能在皮膚裡偷走  
+
+[![](https://2.bp.blogspot.com/-PxnGMMoMKLI/XE1T2bUfIpI/AAAAAAAAHGA/s-lPzfE3SNEItzfOvSJsK1lALm7ut3d2QCLcBGAs/s640/9999846103_d95198af65_z.jpg)](https://2.bp.blogspot.com/-PxnGMMoMKLI/XE1T2bUfIpI/AAAAAAAAHGA/s-lPzfE3SNEItzfOvSJsK1lALm7ut3d2QCLcBGAs/s1600/9999846103_d95198af65_z.jpg)
+
+超～ 薄～ 的面膜紙  
+面膜濕濕的很貼面（鼻翼兩旁就...）  
+帶有花香氣味，感覺很舒服  
+  
+敷20-30分鐘，精華都吸進皮膚不用再按摩  
+保濕程度不錯，都漲卜卜似的  
+滋潤感很足，但感覺有點黏黏稍微悶  
+差點 想洗個面不過最後也終於抹了次toner  
+  
+難度是天氣還未夠乾燥嗎？

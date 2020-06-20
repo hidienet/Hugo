@@ -1,0 +1,30 @@
+---
+title: '[臺南喪食遊] Day3：李媽媽民族鍋燒老店﹣鍋燒意麵＋活魷魚'
+date: 2013-10-20T16:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day3_8035.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
+---
+
+在酒店休息了一陣，又走落樓吃東西  
+
+[![](https://1.bp.blogspot.com/-cKXnKm7-8xA/XCROeOomgLI/AAAAAAAACAs/ZPyHm8XEF6AEk-BSF0Bjr1vH2eu9Oh_HACLcBGAs/s640/62.jpg)](https://1.bp.blogspot.com/-cKXnKm7-8xA/XCROeOomgLI/AAAAAAAACAs/ZPyHm8XEF6AEk-BSF0Bjr1vH2eu9Oh_HACLcBGAs/s1600/62.jpg)
+
+又吃魷魚，這個叫活魷魚  
+但其實是燙魷魚  
+肥大肉厚爽口彈牙  
+就是沒甚麼味道，一定要沾上醬汁  
+醬汁名叫「山海醬」甜甜的  
+醬裡還有黃色的薑泥跟綠色的わさび  
+有了醬的魷魚才對味  
+
+[![](https://1.bp.blogspot.com/-xIoYuOoruEo/XCROlHKpGOI/AAAAAAAACAw/TKSPPsrrgAgQWu7xgz7KZQ5N5YoJuaLYQCLcBGAs/s640/63.jpg)](https://1.bp.blogspot.com/-xIoYuOoruEo/XCROlHKpGOI/AAAAAAAACAw/TKSPPsrrgAgQWu7xgz7KZQ5N5YoJuaLYQCLcBGAs/s1600/63.jpg)
+
+鍋燒意麵的湯底是柴魚熬煮的  
+所以油炸過的意麵麵條吸了湯汁後蠻鮮的  
+還有天ぷら水波蛋魚蛋滿滿一碗  
+不是不好吃， 只是我對這種泡在湯中的油炸麵沒甚興趣  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

@@ -1,0 +1,51 @@
+---
+title: '[seoul time] Day6：BHC치킨'
+date: 2014-11-02T21:00:00.000+08:00
+draft: false
+aliases: [ "/2014/11/seoul-time-day6bhc.html" ]
+tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+---
+
+有啤酒就會有炸雞  
+
+[![](https://3.bp.blogspot.com/-GUScxygYFjQ/XE2fLshwfKI/AAAAAAAAHmU/MnNRqhfF-twJ4A33smmKruIdc91-YQM0gCLcBGAs/s640/15060239963_428d433324_z.jpg)](https://3.bp.blogspot.com/-GUScxygYFjQ/XE2fLshwfKI/AAAAAAAAHmU/MnNRqhfF-twJ4A33smmKruIdc91-YQM0gCLcBGAs/s1600/15060239963_428d433324_z.jpg)
+
+但齋食雞好悶  
+一個拼盤就甚麼都有  
+**綠色炸雞**是這裡獨有的  
+是含菠菜做的炸漿  
+因為就算炸雞都要講求健康（哈）  
+味道其實同「麥甩吉」沒大分別  
+不過比較清新，對吧...  
+順時針反向的是**酥皮火腿芝士卷**  
+說不上特別不過簡單東西就是不會不好吃  
+超脆的炸**薯條**上撒了香草同芝士粉  
+再佐以中間那兜爆濃郁的**cheddar cheese sauce**  
+又一次證明簡單就是美味  
+**salad**，菜新鮮醬汁不會肥漏漏的不錯  
+少不了**原味炸雞加甜辣醬**這口味  
+無骨的脆口雞記  
+配上其實都幾辣的醬汁  
+好惹味，要一直喝啤酒啤酒  
+右後方的冷蘿蔔又酸又爽脆  
+韓國人食炸雞除了有啤酒就是蘿蔔  
+還有最後面的零食  
+啤酒同零食世界通行就是  
+
+[![](https://3.bp.blogspot.com/-owbaFIfz-C4/XE2fQHo6hzI/AAAAAAAAHmY/CDRUJ3PrUtcbMIv62SkSJutXmWCqQf_tgCLcBGAs/s640/15494800950_2e0f1b1f7d_z.jpg)](https://3.bp.blogspot.com/-owbaFIfz-C4/XE2fQHo6hzI/AAAAAAAAHmY/CDRUJ3PrUtcbMIv62SkSJutXmWCqQf_tgCLcBGAs/s1600/15494800950_2e0f1b1f7d_z.jpg)
+
+為甚麼要食綠色炸雞？  
+當然因為這位女神太吸引  
+
+[![](https://2.bp.blogspot.com/-YGIxeDdgTYU/XE2fUtrxbJI/AAAAAAAAHmc/zZBuVbS8wFE7fwNTca7d_thn1X0rksquwCLcBGAs/s640/15677674121_2d67db2de3_z.jpg)](https://2.bp.blogspot.com/-YGIxeDdgTYU/XE2fUtrxbJI/AAAAAAAAHmc/zZBuVbS8wFE7fwNTca7d_thn1X0rksquwCLcBGAs/s1600/15677674121_2d67db2de3_z.jpg)
+
+門口的人形紙牌  
+（旁邊是玄彬我知道了）  
+
+[![](https://2.bp.blogspot.com/-kUanUXbKUqo/XE2fZhXnCsI/AAAAAAAAHmg/Mc0CRVN3P-YqKhdyyapxw-cJPL3cyW5TwCLcBGAs/s640/15494801220_20ef470c50_z.jpg)](https://2.bp.blogspot.com/-kUanUXbKUqo/XE2fZhXnCsI/AAAAAAAAHmg/Mc0CRVN3P-YqKhdyyapxw-cJPL3cyW5TwCLcBGAs/s1600/15494801220_20ef470c50_z.jpg)
+
+樓高三層，不難找到喔～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)

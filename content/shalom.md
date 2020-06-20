@@ -1,0 +1,26 @@
+---
+title: '[sundae] 嚐樂 黑咕嚕'
+date: 2014-03-15T15:15:00.000+08:00
+draft: false
+aliases: [ "/2014/03/sundae.html" ]
+tags : [flavor - 螞蟻族]
+---
+
+「一次過滿足三個願望」  
+
+[![](https://3.bp.blogspot.com/-iaG_zArnuCQ/XDC5Rs_4ADI/AAAAAAAAEV8/X5pBPrp4fIACJbFRvdlZFPSqznM73-V4wCLcBGAs/s640/g.jpg)](https://3.bp.blogspot.com/-iaG_zArnuCQ/XDC5Rs_4ADI/AAAAAAAAEV8/X5pBPrp4fIACJbFRvdlZFPSqznM73-V4wCLcBGAs/s1600/g.jpg)
+
+朱古力雪糕 x 咖啡jelly x 朱古力脆脆波  
+這組合就是有淋有滑又有脆  
+雪糕雖然說不上人間美味  
+但加上了朱古力漿後  
+朱古力未非常濃  
+那麼會很甜嗎？  
+就以不太甜的濃濃味咖啡jelly調和  
+啡味算濃郁，香味足也不會很苦  
+甜品咖啡味請不要跟飲用的標準比較  
+早餐波波就是波波  
+脆脆的好像小朋友般  
+吃下有種開心的感覺就是  
+  
+滿足耶～（笑顏）

@@ -1,0 +1,37 @@
+---
+title: '[masque] UGBang facial essence collagen mask'
+date: 2014-02-03T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/02/masque-ugbang-facial-essence-collagen.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+完全不知皺紋同乾燥是何物（嘿～）  
+
+[![](https://1.bp.blogspot.com/-5N4KR8kmK0M/XCirwye0tJI/AAAAAAAADbI/Z-37xkB5-ncBkSCCvHMKezHkl-F2_atBQCLcBGAs/s640/16.jpg)](https://1.bp.blogspot.com/-5N4KR8kmK0M/XCirwye0tJI/AAAAAAAADbI/Z-37xkB5-ncBkSCCvHMKezHkl-F2_atBQCLcBGAs/s1600/16.jpg)
+
+每片含25g精華，除了人參+膠原  
+還加上保濕、除皺因子  
+（即不知道是甚麼的東西）  
+精華全滲進去棉質面膜裡  
+包裝袋沒剩一滴，面膜也很重身  
+手伸入包裝袋極力抹抹後  
+整隻手都塗滿那透明色的精華  
+反覆抹了幾次，已夠搽落手臂+小腿  
+因為精華是黏度高的水狀  
+延展度高，搽上身很潤很黏不舒服  
+但過大概半小時後吸收完就超滑  
+  
+敷20-30分鐘（再對摺敷頸15分鐘）  
+打圈按摩按摩加強吸收  
+感覺超級潤，除了潤還覺得很黏膩  
+不過非常滋潤有光澤  
+皮膚不像吸飽水，直頭像吸飽膠原一樣  
+整塊面的細胞都pump漲了  
+乾紋統統消失，整塊面充滿彈性  
+不論睡醒後或者再去洗面  
+那光澤水潤彈性全部都繼續hold住  
+美好的效果還可以維持數天  
+  
+令皮膚摸起來看起來非常好  
+超喜歡，強烈推薦～

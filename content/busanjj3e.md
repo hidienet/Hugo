@@ -1,0 +1,35 @@
+---
+title: '[明明遊慶州 偏向釜山行] Day3：천안곰탕（天安）'
+date: 2014-01-14T21:30:00.000+08:00
+draft: false
+aliases: [ "/2014/01/day3_1230.html" ]
+tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+---
+
+雪濃湯（설렁탕）是以牛骨跟內臟以長時間熬煮（10小時以上）  
+故湯頭呈現濃郁的奶白色  
+今天晚餐品嘗「天安（천안）」這家老店（since 1951）  
+
+[![](https://1.bp.blogspot.com/-gqUSLmqTbEw/XCyjoGmaq9I/AAAAAAAADso/rL0OyLd6O20sWfZk5vwVqNPa3SMi4T0kQCLcBGAs/s640/62.jpg)](https://1.bp.blogspot.com/-gqUSLmqTbEw/XCyjoGmaq9I/AAAAAAAADso/rL0OyLd6O20sWfZk5vwVqNPa3SMi4T0kQCLcBGAs/s1600/62.jpg)
+
+配以牛筋的雪濃湯  
+（對面是配牛尾）  
+湯的味道很清爽卻香醇  
+沒有牛臊味，一點都不覺得油膩  
+牛筋既漿且滑，感覺吃下一大堆骨膠原  
+（吃晚後摸摸面好像滑了嘻嘻）  
+
+[![](https://4.bp.blogspot.com/-HOtO-M0O8fg/XCyjtxY-WmI/AAAAAAAADss/XfkGbnir-9sAEf5oiOg0noxgeLqZ2MIJwCLcBGAs/s640/63.jpg)](https://4.bp.blogspot.com/-HOtO-M0O8fg/XCyjtxY-WmI/AAAAAAAADss/XfkGbnir-9sAEf5oiOg0noxgeLqZ2MIJwCLcBGAs/s1600/63.jpg)
+
+鹽是店家自己炒，反覆超三次這樣  
+所以樣子是灰灰黑黑的  
+加在湯裡不會很鹹反而是提鮮了～  
+  
+老闆人很好，英文也很流利  
+完全溝通無誤的！  
+  
+是去南浦洞不能錯過的美味啊！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)

@@ -1,0 +1,31 @@
+---
+title: '[GO! GO! NaGoYa～] Day7：宮きしめん'
+date: 2015-10-28T19:00:00.000+08:00
+draft: false
+aliases: [ "/2015/10/go-go-nagoya-day7_28.html" ]
+tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+---
+
+今日上晝食得兇狠  
+晚餐就清清地食個麵啦  
+
+[![](https://c2.staticflickr.com/8/7303/28114171381_3f0db1dddf_z.jpg)](https://c2.staticflickr.com/8/7303/28114171381_3f0db1dddf_z.jpg)
+
+**冷やし宮きしめん**  
+好熱呀今日梗係食冷麵啦！  
+きしめん係名古屋又一名物  
+麵條粗韌有嚼勁，好好咬（心）  
+凍食當然最爽，配埋超脆天ぷら好滿足～  
+
+[![](https://c1.staticflickr.com/9/8683/27576798773_3865e550d6_z.jpg)](https://c1.staticflickr.com/9/8683/27576798773_3865e550d6_z.jpg)
+
+熱食宮きしめん配天丼聽講都好味  
+不過我飽喇一啖都無試過...  
+  
+話時話，名古屋嘅名物麵食  
+好在只係得一間係伏  
+其他間間都好食，包括呢間～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)

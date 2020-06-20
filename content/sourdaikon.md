@@ -1,0 +1,33 @@
+---
+title: '[醃] 醋醃蘿蔔'
+date: 2013-12-08T13:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/blog-post_8.html" ]
+tags : [made by H - 開伙]
+---
+
+醃小菜，就是為了不知道有什麼好煮的時候有東西吃  
+也可以在喝酒時有佐酒的小吃吧  
+
+[![](https://2.bp.blogspot.com/-pwciPL79iLk/XCdmMEnKGyI/AAAAAAAACrE/BmX0xDiKIBoD6_GLqKMM3AXlDNAzG8YuwCLcBGAs/s640/36.jpg)](https://2.bp.blogspot.com/-pwciPL79iLk/XCdmMEnKGyI/AAAAAAAACrE/BmX0xDiKIBoD6_GLqKMM3AXlDNAzG8YuwCLcBGAs/s1600/36.jpg)
+
+白蘿蔔洗淨抹乾後去皮切片狀條狀也可  
+（皮較韌，醃另一種的會比這個好吃）  
+加清水白醋跟糖（我用蜂蜜的，用暖水開）  
+＊份量又是隨意的，一邊調味一邊試味便可以  
+然後再加一條辣椒  
+（不喜歡可以不加，但加了味道很好）  
+  
+入玻璃容器後放雪櫃醃一個星期就可以食用  
+
+  
+
+味道酸酸辣辣，也因為加了蜜糖的味道
+
+令整道蘿蔔不只有單一口味
+
+爽薄片脆，條狀耐嚼
+
+  
+
+好吃的東西就是那麼簡單～

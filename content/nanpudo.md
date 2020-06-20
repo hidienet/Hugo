@@ -1,0 +1,28 @@
+---
+title: '[cookies] 南風堂 雪塩ちんすこう'
+date: 2013-11-29T15:30:00.000+08:00
+draft: false
+aliases: [ "/2013/11/cookies_29.html" ]
+tags : [flavor - 螞蟻族]
+---
+
+貴爲連續3年世界零食金獎的雪塩ちんすこう  
+有甚麼獨特之處呢？  
+
+[![](https://4.bp.blogspot.com/-OptpV5ZD-8Q/XCd6cB5pGII/AAAAAAAACvE/FGFyW86xczQhVJGLFcdkoBoJl30rmK3gwCLcBGAs/s640/68.jpg)](https://4.bp.blogspot.com/-OptpV5ZD-8Q/XCd6cB5pGII/AAAAAAAACvE/FGFyW86xczQhVJGLFcdkoBoJl30rmK3gwCLcBGAs/s1600/68.jpg)
+
+ちんすこう又譯金楚糕  
+是傳統的琉球菓子  
+金黃色的cookie  
+是宮古島的雪塩的口味  
+  
+味道幾香的，因為用的是豬油  
+（全成分爲：小麦粉・砂糖・ラード（豚肉由来）・ショートニング・雪塩（食塩）・膨張剤）  
+不會很甜，雪塩的鹹味跟糖味的配合剛好  
+  
+但其實蠻普通的啦  
+所以這包在吉豬島買的  
+不需要從沖縄托回來 XD  
+  
+  
+申延閱讀：[\[琉球戀吃活樂遊\] Day4：塩屋 雪塩ソフトクリーム](http://www.hidie.net/2013/11/day4_19.html)

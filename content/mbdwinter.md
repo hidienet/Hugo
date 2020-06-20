@@ -1,0 +1,47 @@
+---
+title: '[masque] 我的美麗日記 冬季晶潤透白組'
+date: 2014-05-02T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/05/masque.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+春天都差不多要說byebye  
+為何還在用冬季的面膜呢？  
+對於既潮濕又悶熱的天氣  
+家中當然早早就開行冷氣啦 XD  
+（環保分子別打我）  
+所以又涼涼的又乾爽  
+
+[![](https://4.bp.blogspot.com/-8G0zoQpfhBA/XDGk12dbE2I/AAAAAAAAEkA/4GOgOR-NY3wJuznAu3gYXropAK9pLKHhACLcBGAs/s640/91.jpg)](https://4.bp.blogspot.com/-8G0zoQpfhBA/XDGk12dbE2I/AAAAAAAAEkA/4GOgOR-NY3wJuznAu3gYXropAK9pLKHhACLcBGAs/s1600/91.jpg)
+
+一分二的mask，感覺上有點麻煩的樣子  
+又如果part 1已經很潤  
+再用part 2就一定會叫救命  
+在戰戰兢兢的情況下，試就試啦  
+（天下沒有不吃魚的貓；也沒有不敷面的我）  
+  
+先來step 1的橄欖葉晶潤面膜  
+超薄的面膜紙，size有點大  
+但鼻子不夠長鼻翼也未能覆蓋  
+精華水滿滿的所以摺摺好便很貼服  
+敷20分鐘後輕輕按摩  
+像水一般的精華就全吸收  
+清爽不黏膩的感覺不錯不錯  
+不是滋潤而只是純補水  
+肌膚柔軟柔軟，細胞也pump pump  
+  
+之後是step 2的乳油木果亮白凍膜  
+份量挺多，可以敷面敷頸同手臂  
+輕身的乳白色滑滑gel cream  
+質地吸收度很好不會悶熱  
+（人家說明了是凍膜吧！）  
+敷過夜的sleeping mask  
+立即是沒有亮白的效果  
+然而睡醒後也沒有  
+不過膚色也有點不算明顯的均勻  
+保濕度足，面仔水潤卻不油膩  
+  
+沒因為這mask而白了  
+但保濕功效就不錯  
+加上價格和藹，OK啦～

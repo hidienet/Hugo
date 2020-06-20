@@ -1,0 +1,27 @@
+---
+title: '[臺中怒食遊] Day6：鹿港牛舌餅'
+date: 2014-09-04T20:30:00.000+08:00
+draft: false
+aliases: [ "/2014/09/day6_14.html" ]
+tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+平時一般說的臺灣牛舌餅  
+其實是宜蘭那種  
+跟這款鹿港版本的完全不同的喔～  
+
+[![](https://1.bp.blogspot.com/-rJJLaaDkBl8/XExMwiz6XxI/AAAAAAAAGx4/-d2mqu23UFYDJiHYxxa_tMHW3sD12pmrQCLcBGAs/s640/9976961235_a8fec29a6d_z.jpg)](https://1.bp.blogspot.com/-rJJLaaDkBl8/XExMwiz6XxI/AAAAAAAAGx4/-d2mqu23UFYDJiHYxxa_tMHW3sD12pmrQCLcBGAs/s1600/9976961235_a8fec29a6d_z.jpg)
+
+宜蘭那種形狀窄長薄  
+脆脆硬硬的而且無內餡  
+像餅乾的樣子  
+  
+鹿港這種寬短厚  
+吃落較酥軟，加上包有麥芽糖內餡  
+比較似薄版的脆口老婆餅  
+  
+總之都比港版牛脷酥好吃多（吐舌）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

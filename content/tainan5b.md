@@ -1,0 +1,34 @@
+---
+title: '[臺南喪食遊] Day5：高雄牛乳大王﹣木瓜牛奶'
+date: 2013-10-22T18:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day5_22.html" ]
+tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
+---
+
+六龜搭巴士轉大巴士到高雄的高鐵左營站  
+喪食之旅將近完結，到三越找吃的  
+和買點東西（有玩具，當然主要都是買吃的）  
+到了餐廳吃了湯品粥點與牛肉卷  
+沒啥特別也不是太好吃不特意寫了  
+  
+拿著一袋二袋（行李早已放入儲物櫃）  
+坐下喝一杯鍾愛的木瓜牛奶  
+
+[![](https://1.bp.blogspot.com/-VQ8Ey6caSXE/XCRRXoV696I/AAAAAAAACCM/PGfE1h0n3VkdU5X9qnch0XfsWnN0h_jggCLcBGAs/s640/75.jpg)](https://1.bp.blogspot.com/-VQ8Ey6caSXE/XCRRXoV696I/AAAAAAAACCM/PGfE1h0n3VkdU5X9qnch0XfsWnN0h_jggCLcBGAs/s1600/75.jpg)
+
+這一杯濃到不能再濃，像喝奶昔一樣  
+木瓜瓜味濃郁，帶少許苦味  
+但這樣才是真正的木瓜而不是香精  
+牛奶也是濃而香，不愧稱為大王  
+  
+這一杯好好喝啊！  
+  
+  
+  
+  
+臺南喪食遊尾聲了，買回去吃的回去吃了再講～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

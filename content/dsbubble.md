@@ -1,0 +1,28 @@
+---
+title: '[masque] D’s(ディーズ) ブラックホイップピーリングジェル'
+date: 2013-10-07T22:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/masque-ds.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+剝殼雞蛋般？還未夠！要去埋衣 :p  
+
+[![](https://1.bp.blogspot.com/-h0tLr9aKZwg/XCOSe11ANoI/AAAAAAAAB3M/7NE6MR4YAPECuiYuIg9VUxKfU3olD4n6gCLcBGAs/s640/25.jpg)](https://1.bp.blogspot.com/-h0tLr9aKZwg/XCOSe11ANoI/AAAAAAAAB3M/7NE6MR4YAPECuiYuIg9VUxKfU3olD4n6gCLcBGAs/s1600/25.jpg)
+
+我承認因為個包裝真的很可愛而買的  
+個BB的樣子真的超～可～愛～嘛～  
+  
+打開包裝，灰黑色近水狀gel緩緩流出  
+這個灰色是來自炭，炭能清潔毛孔  
+上面後好好玩：會一直blublublublu起泡泡  
+少少痕，但不是敏感那種而是泡泡一直在動的感覺  
+去死皮成份是Keratoline，所以在1﹣2分鐘過水後．．．  
+  
+換！面！  
+死皮byebye了，最面層的黑頭沒有那麼黑  
+看起來因為去了黃變得白一些  
+卻不像一般強力去死皮產品用後令皮膚乾燥  
+  
+但最重要還是：  
+包裝靚！敷上時好玩！哈～

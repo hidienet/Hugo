@@ -1,0 +1,58 @@
+---
+title: '[西貢西貢食食貢] Day2：Temple Club'
+date: 2014-04-04T20:30:00.000+08:00
+draft: false
+aliases: [ "/2014/04/day2temple-club.html" ]
+tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+---
+
+天還未黑但已經想早一點吃晚餐  
+因為實在很早，所以不用訂檯也有靠窗的位置  
+
+[![](https://2.bp.blogspot.com/-EBGuElq3VrA/XDB2e5Rvh_I/AAAAAAAAEIw/ZZwWK0rS3uQwEG_U1wKT7buBCnEooSFyACLcBGAs/s640/04.jpg)](https://2.bp.blogspot.com/-EBGuElq3VrA/XDB2e5Rvh_I/AAAAAAAAEIw/ZZwWK0rS3uQwEG_U1wKT7buBCnEooSFyACLcBGAs/s1600/04.jpg)
+
+**椰青蒸蝦**  
+蝦連椰青一同蒸  
+所以每隻蝦都充滿清香的椰子味  
+新鮮的蝦子配這味令其更更更鮮甜  
+不過裡面的椰青水不能喝  
+感覺好像有點浪費  
+
+[![](https://3.bp.blogspot.com/-zaeTl9Nu12k/XDB2kv19tZI/AAAAAAAAEI4/f3vT4Qh-yU4NOjqQi5TisKfPisfbxcXWgCLcBGAs/s640/05.jpg)](https://3.bp.blogspot.com/-zaeTl9Nu12k/XDB2kv19tZI/AAAAAAAAEI4/f3vT4Qh-yU4NOjqQi5TisKfPisfbxcXWgCLcBGAs/s1600/05.jpg)
+
+**春卷拼盤**  
+是這裡的特色地道菜  
+一次過食了幾種口味的越式春卷  
+中間的菜葉擺盤好漂亮呢  
+米紙卷韌韌的包起豐富的餡料  
+炸的那款超脆一咬就爆  
+像macaron外皮一樣  
+香葉包肉後炸，雖然食炸的肉  
+卻因為住香葉令整件清新了很多  
+再捲了生菜一起食就更perfect  
+另一種的生香葉包粉絲  
+味道會淡一點所以蘸上濃味的醬料就剛好  
+
+[![](https://4.bp.blogspot.com/-0QC8o7fOASs/XDB2qPqwszI/AAAAAAAAEI8/WnOr3WiwRs8_b-4VG8tlI7w-HU8LDkVrACLcBGAs/s640/06.jpg)](https://4.bp.blogspot.com/-0QC8o7fOASs/XDB2qPqwszI/AAAAAAAAEI8/WnOr3WiwRs8_b-4VG8tlI7w-HU8LDkVrACLcBGAs/s1600/06.jpg)
+
+**缽仔焦糖煮魚**  
+樣子像薯仔一般的其實是甜甜的魚  
+似有醬汁的上海熏魚  
+表面有點乾，裡面也說不上很滑  
+但新鮮的味道就吃的出來就是  
+  
+  
+
+[![](https://4.bp.blogspot.com/-jh87XcmYTew/XDB2vEmGZdI/AAAAAAAAEJE/tjMPfMnFmDwSVBP-4t6oPeog3Gv28BkwACLcBGAs/s640/07.jpg)](https://4.bp.blogspot.com/-jh87XcmYTew/XDB2vEmGZdI/AAAAAAAAEJE/tjMPfMnFmDwSVBP-4t6oPeog3Gv28BkwACLcBGAs/s1600/07.jpg)
+
+這餐真的很好吃  
+建築物是舊法色的  
+裝修式中色加上古董  
+越式的食物  
+（老闆是香港人）  
+很fusion卻一點都不混亂  
+推薦推薦呢～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)

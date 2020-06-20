@@ -1,0 +1,20 @@
+---
+title: '[tea] 臺灣牛蒡茶'
+date: 2014-09-30T15:30:00.000+08:00
+draft: false
+aliases: [ "/2014/09/tea.html" ]
+tags : [flavor - 飲！]
+---
+
+去臺灣看到必買的  
+這個一定榜上有名  
+
+[![](https://1.bp.blogspot.com/-9kGBqhh3-10/XE1EWtbqpfI/AAAAAAAAHAQ/qaLNSgHMYnQyMj68GTipvLRc3tly7KUXACLcBGAs/s640/15178006560_da43a9a34c_z.jpg)](https://1.bp.blogspot.com/-9kGBqhh3-10/XE1EWtbqpfI/AAAAAAAAHAQ/qaLNSgHMYnQyMj68GTipvLRc3tly7KUXACLcBGAs/s1600/15178006560_da43a9a34c_z.jpg)
+
+樣子醜醜的乾牛蒡  
+沖泡出金黃色澤的牛蒡茶  
+味道清香甘醇（有些人不喜歡，可以加蜜糖）  
+這製法是經日曬同炒過所以不會寒涼  
+喝後喉嚨都不會乾乾的  
+  
+能降脂解膩的茶，真好！

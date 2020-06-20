@@ -1,0 +1,30 @@
+---
+title: '[臺南喪食遊] Day3：永樂牛肉湯'
+date: 2013-10-20T09:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day3_319.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
+---
+
+仍然時早餐時間．．．坐下點了牛肉湯，不用等的好滋味  
+
+[![](https://1.bp.blogspot.com/-j7Q5OwbIOO0/XCRLDOsAXVI/AAAAAAAAB_o/iuoFmeFDv1gQfKl1nDBZEqDQ873c-zhzgCLcBGAs/s640/55.jpg)](https://1.bp.blogspot.com/-j7Q5OwbIOO0/XCRLDOsAXVI/AAAAAAAAB_o/iuoFmeFDv1gQfKl1nDBZEqDQ873c-zhzgCLcBGAs/s1600/55.jpg)
+
+湯頭色澤比昨天喝的阿村深  
+鮮甜濃味的超燙高湯  
+特意寫上超燙因為牛肉是生的  
+淋上湯之後很快使轉色了  
+紅紅粉嫩我薄片牛肉味道很濃很鮮  
+這是鮮宰的黃牛肉才有的味道  
+沒有羶味也沒有血的腥味  
+跟爽爽的薑絲一起吃  
+爽與嫩同時咀嚼，牛的味道亦更鮮香味美  
+  
+湯味濃郁牛味也很足  
+不用再另沾醬油膏  
+  
+要快點吃不要拍太多照，否則牛太熟會不好吃  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

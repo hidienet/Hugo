@@ -1,0 +1,29 @@
+---
+title: '[臺南喪食遊] Day3：北港碳烤魷魚＠安平老街'
+date: 2013-10-20T11:45:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day3_1781.html" ]
+tags : [travel - 臺灣・臺南、六龜, flavor - 小食部]
+---
+
+不論身處哪裡與哪時代，現烤魷魚都是在遠遠的地方也聞得到  
+等呀等，日上三竿時分企街等食真是有種說不出的享受  
+
+[![](https://1.bp.blogspot.com/-5c_pcpEVC9o/XCRMp_D2PvI/AAAAAAAACAQ/_xkGdVrvmcwIf72UHLGjQTQepDAxybXFACLcBGAs/s640/59.jpg)](https://1.bp.blogspot.com/-5c_pcpEVC9o/XCRMp_D2PvI/AAAAAAAACAQ/_xkGdVrvmcwIf72UHLGjQTQepDAxybXFACLcBGAs/s1600/59.jpg)
+
+see！等是值得的！  
+（加上我只是排了一兩個人在前面的隊，  
+久等也是因為魷魚是落單了才開始烤）  
+烤香的外層微焦又有點脆  
+魷魚肉超juicy，不會過韌也沒有渣  
+絕對不是魷魚味香口膠那般  
+醬汁是帶甜味的加上香口的芝麻  
+味道夠鮮，但味道還是淡了點  
+  
+  
+這是因為我怕吃辣沒有加辣粉  
+豬了！我肯定加辣粉會更香更惹味！！！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

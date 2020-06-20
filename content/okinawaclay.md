@@ -1,0 +1,28 @@
+---
+title: '[masque] 沖縄くちゃパック'
+date: 2013-11-24T22:00:00.000+08:00
+draft: false
+aliases: [ "/2013/11/masque_24.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+沖縄的海泥，清潔masque  
+
+[![](https://4.bp.blogspot.com/-v41s3frBebw/XCeAKyaBWYI/AAAAAAAACyA/UXTdS57814YnRMIoG8HfBcZNkXzbmIIZACLcBGAs/s640/92.jpg)](https://4.bp.blogspot.com/-v41s3frBebw/XCeAKyaBWYI/AAAAAAAACyA/UXTdS57814YnRMIoG8HfBcZNkXzbmIIZACLcBGAs/s1600/92.jpg)
+
+一小粒磚可以用兩次（面部）  
+以水1:1開成泥狀便可  
+敷幾分鐘乾了用水清洗就可以  
+  
+用後皮膚會很乾淨  
+因為泥中加上月桃エキス  
+故此不會抽乾皮膚水份  
+而且沒有難聞的氣味  
+  
+蠻好用呢～  
+  
+內有12塊，以每次用1/2來計算  
+398円用24次？平均每次個幾港紙一次！哈哈  
+（398円是在平和通有間美妝店特價購入）  
+  
+除了敷面，這泥也可以敷頭敷身的

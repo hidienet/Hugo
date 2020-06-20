@@ -1,0 +1,15 @@
+---
+title: 'Art Gallery Night by HKaga'
+date: 2018-03-26T17:30:00.000+08:00
+draft: false
+aliases: [ "/2018/03/art-gallery-night-by-hkaga.html" ]
+tags : [amusement - exhibition, lifestyle - 嗨啲的極樂世界]
+---
+
+[![](https://c1.staticflickr.com/1/811/41008013761_19ab331e27_z.jpg)](https://c1.staticflickr.com/1/811/41008013761_19ab331e27_z.jpg)
+
+今日...  
+冇嘢可以  
+阻！我！收！工！！！  
+  
+#發藝術家脾氣

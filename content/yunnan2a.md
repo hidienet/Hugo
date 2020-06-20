@@ -1,0 +1,34 @@
+---
+title: '[昆明飽hihi] Day2：建新园 过桥米线'
+date: 2013-12-24T09:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/hihi-day2.html" ]
+tags : [flavor - 行膳積腹, travel - 中國・昆明]
+---
+
+去雲南，哪有不吃過橋米線的道理？  
+原名「三合春」的建新园，是始建於1906年  
+哇～ 過百年了，現在已經是一家全國經營的連鎖店  
+
+[![](https://4.bp.blogspot.com/-KJo3ZWaF1LM/XCiSGf-RqhI/AAAAAAAADSo/9rkHgP1COS0fSYsPxRlkWYxbiImSeZ9JgCLcBGAs/s640/02.jpg)](https://4.bp.blogspot.com/-KJo3ZWaF1LM/XCiSGf-RqhI/AAAAAAAADSo/9rkHgP1COS0fSYsPxRlkWYxbiImSeZ9JgCLcBGAs/s1600/02.jpg)
+
+碗子大大，每樣都少少的  
+加起來份量也很多  
+身邊的人大多數都是以這碗作早餐  
+不會過飽了嗎？  
+
+[![](https://1.bp.blogspot.com/-rFk_6dS-UAA/XCiSL5q-MDI/AAAAAAAADSs/QD_viJcvxZwaM4fZRwNFyMesRsx0p1XBQCLcBGAs/s640/03.jpg)](https://1.bp.blogspot.com/-rFk_6dS-UAA/XCiSL5q-MDI/AAAAAAAADSs/QD_viJcvxZwaM4fZRwNFyMesRsx0p1XBQCLcBGAs/s1600/03.jpg)
+
+把所有東西放入之後  
+就是甚麼都看不見  
+只有一大碗米線 XD  
+  
+湯是很油的那種  
+所以吃到底整碗東西還是熱的  
+（太大一碗，吃不到底已經放棄了）  
+  
+豐富的早餐～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[昆明飽hihi（5D4N）](http://www.hidie.net/2013/12/hihi5d4n.html)

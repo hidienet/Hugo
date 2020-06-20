@@ -1,0 +1,24 @@
+---
+title: '晃記餅家 肉切酥'
+date: 2013-10-04T15:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/blog-post.html" ]
+tags : [travel - macao, flavor - 小食部]
+---
+
+我不吃雞仔餅的，從小已覺得這東西很臭  
+
+[![](https://4.bp.blogspot.com/-xU0ZOFk_n48/XCOPJAr0XyI/AAAAAAAAB1c/yx1F_121CfsGJ6HYCcfdSzxcirMrtnnuACLcBGAs/s640/11.jpg)](https://4.bp.blogspot.com/-xU0ZOFk_n48/XCOPJAr0XyI/AAAAAAAAB1c/yx1F_121CfsGJ6HYCcfdSzxcirMrtnnuACLcBGAs/s1600/11.jpg)
+
+雖然跟雞仔餅一樣難聞，但我卻喜愛吃肉切酥  
+臭臭的氣味是來自焗後的南乳味  
+  
+看著薄薄的餅，咬下是實實脆脆的  
+雖是用南乳跟肥豬肉製成卻沒有油膩感  
+這種甜味有點吃肉包的味道，但包子被壓扁成餅乾  
+  
+太～ 香～ 口～ 了～  
+一塊接一塊吃吃吃，幸好始終是含肥豬肉  
+吃幾片已經足夠，可以停口了  
+口腔酥餅甜味一直散發；聞起來臭味依然  
+（矛盾？）

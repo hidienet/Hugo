@@ -1,0 +1,44 @@
+---
+title: '[麵] 東京築地ラーメン'
+date: 2015-02-28T20:30:00.000+08:00
+draft: false
+aliases: [ "/2015/02/blog-post_28.html" ]
+tags : [flavor - 行膳積腹]
+---
+
+用膳時，食物質素、環境、服務、氣氛與陪行者同樣重要...  
+因為剛吃了純粹因為後者而美好的餐廳  
+
+[![](https://farm9.staticflickr.com/8598/16048354774_3f722a30e0_z.jpg)](https://farm9.staticflickr.com/8598/16048354774_3f722a30e0_z.jpg)
+
+就是這樣子的拉麵，明白了嗎？  
+很普通甚至覺得求其的港式拉麵  
+味道也沒有特別同令人驚豔的地方  
+雖然說是店家自製麵條  
+不過也是毫無誠意的出品  
+
+[![](https://farm9.staticflickr.com/8578/16669629632_7dd9ef8393_z.jpg)](https://farm9.staticflickr.com/8578/16669629632_7dd9ef8393_z.jpg)
+
+另一款，也像茶記的貨色  
+
+[![](https://farm9.staticflickr.com/8670/16670640275_b6ed9efa4b_z.jpg)](https://farm9.staticflickr.com/8670/16670640275_b6ed9efa4b_z.jpg)
+
+有醬的牛肉粒，除了鹹了些就不置評  
+（唯一符合標準是上菜時時熱的）  
+
+[![](https://farm9.staticflickr.com/8563/16050745233_5588c9ab67_z.jpg)](https://farm9.staticflickr.com/8563/16050745233_5588c9ab67_z.jpg)
+
+餃子與759吉豬島買那些急凍翻熱的沒分別  
+
+[![](https://farm9.staticflickr.com/8675/16670663695_dd9f3d0e36_z.jpg)](https://farm9.staticflickr.com/8675/16670663695_dd9f3d0e36_z.jpg)
+
+瘦弱的炸蝦，真的很港式日本料理（唉～）  
+  
+原本看餐牌時有想過叫甜品  
+最後當然放棄了  
+  
+因為是太興集團的所以這家店的成品也很茶餐廳  
+（見了照片就知道並非先入為主啦）  
+但同行的人實在令人舒服吃得開懷  
+裝修也不賴，店裡服務都很好  
+算是能吃的不過回吃度是零（看遠方）

@@ -1,0 +1,32 @@
+---
+title: '[臺南喪食遊] Day3：赤崁擔仔麵﹣香煎虱目魚肚'
+date: 2013-10-20T21:45:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day3_36.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
+---
+
+晚飯宵夜時段，當然又是吃吃吃  
+酒店附近的赤崁擔仔麵  
+但因為不想吃麵就沒有叫擔仔麵  
+點了一碟豬手做的餸  
+再要了碟燙青菜  
+台南的東西很多時候也淋上肉燥  
+還是想吃點香口的  
+
+[![](https://2.bp.blogspot.com/-p1pAPibuWyA/XCRPepY0A1I/AAAAAAAACBQ/97OzszeQKIw0pxnEGXJbhfJCAdiNxMsuACLcBGAs/s640/67.jpg)](https://2.bp.blogspot.com/-p1pAPibuWyA/XCRPepY0A1I/AAAAAAAACBQ/97OzszeQKIw0pxnEGXJbhfJCAdiNxMsuACLcBGAs/s1600/67.jpg)
+
+香煎虱目魚肚！  
+去「阿堂」的時候是一大清早  
+不想吃太油膩  
+其實一直也對煎的虱目魚肚念念不忘  
+終於能吃到，啦啦啦  
+煎了的魚肚香香酥酥的  
+跟魚肉肥香滑滑的，就有種噗滋噗滋感覺  
+魚沒有骨，一大口咬下油花全傾入口  
+虱目魚呀虱目魚，真的很肥美～  
+（啤酒please）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

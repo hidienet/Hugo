@@ -1,0 +1,43 @@
+---
+title: '[masque] 美肌一族 チョコレートシートマスク'
+date: 2014-04-15T22:00:00.001+08:00
+draft: false
+aliases: [ "/2014/04/masque.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+濃濃的朱古力口味（呵）  
+
+[![](https://4.bp.blogspot.com/-ktLwwNSt_iQ/XDGDf6mmt_I/AAAAAAAAEbk/bKW9Z4tkJoMBqV_if1AEvRmbU6W0nqbCwCLcBGAs/s640/20.jpg)](https://4.bp.blogspot.com/-ktLwwNSt_iQ/XDGDf6mmt_I/AAAAAAAAEbk/bKW9Z4tkJoMBqV_if1AEvRmbU6W0nqbCwCLcBGAs/s1600/20.jpg)
+
+辻口さん是個朱古力職人  
+所以這塊crossover mask就散發出  
+又香又濃的無糖黑朱古力氣味  
+朱古力色的面膜紙不太厚身  
+有股令我一直想吞落肚的衝動 XD  
+mask裡面真的有可可多酚  
+加上膠原跟玻尿酸等成分  
+潤澤 x 保濕的感覺  
+一向的其品牌mask  
+都是剪裁好又夠貼面  
+精華帶點黏黏而且爆多  
+這塊也是這樣  
+  
+敷15分鐘，不過其面膜是超多精華  
+所以不會很快乾，可以摺起敷頸不浪費  
+「超～ 級～ 潤～」  
+簡直是潤到爆（！）  
+儘管一直按摩精華  
+按摩到面上不會水水的（手都軟）  
+但也是覺得好潤  
+潤得一直想過水那般  
+雖然面部細胞都像pump漲了  
+可惜還是感覺的太舒服  
+（頸也敷了一會就放棄）  
+隔天醒來，有點暗粒跑了出來  
+如果油性肌膚應該會爆瘡吧  
+  
+保濕度潤澤度都很好  
+只是太潤不太適合香港的悶熱天氣  
+氣味一流，敷的時候也不辛苦  
+面膜本身算好，只是跟我八字不夾而已（笑）

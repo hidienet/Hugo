@@ -1,0 +1,63 @@
+---
+title: '[moisturizer] 92％、95％、100％蘆薈show'
+date: 2014-09-13T11:00:00.000+08:00
+draft: false
+aliases: [ "/2014/09/moisturizer-9295100show.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+嗚嗚嗚～ 在鹿港食食食  
+又桃又菠蘿又蠔又蝦又蟹  
+總之不濕熱毒都不放入口就是  
+終於發生了人生第一次敏感  
+最最最可憐是居然**只在面部**有紅粒粒  
+好啦好啦，甚麼都不刺激了  
+乖乖地用蘆薈舒緩啦  
+
+[![](https://1.bp.blogspot.com/-RSEkSgmYHfo/XExTa_QtxWI/AAAAAAAAG44/jAZfsaokSwA3U4l-FepPe4B8sVvUPB20gCLcBGAs/s640/14976555160_b4d91b5305_z.jpg)](https://1.bp.blogspot.com/-RSEkSgmYHfo/XExTa_QtxWI/AAAAAAAAG44/jAZfsaokSwA3U4l-FepPe4B8sVvUPB20gCLcBGAs/s1600/14976555160_b4d91b5305_z.jpg)
+
+nature republic - aloe vera 92% soothing gel  
+大多數認識韓國品牌蘆薈的  
+也都看過聽過這罐平靚正產品  
+透明色的gel，加州蘆薈  
+敷上面即時冰冰涼涼  
+有極好的舒緩感  
+大大一罐用來塗面塗手腳身體頭髮都可以  
+平日閒來無事都可以用，百搭product  
+
+[![](https://4.bp.blogspot.com/-4KAcC5GB-fE/XExTgfjrQ2I/AAAAAAAAG48/KJP8wrnmZWUU_dkD4hA62S3r66Bgl9gHgCLcBGAs/s640/14976484279_fce152254f_z.jpg)](https://4.bp.blogspot.com/-4KAcC5GB-fE/XExTgfjrQ2I/AAAAAAAAG48/KJP8wrnmZWUU_dkD4hA62S3r66Bgl9gHgCLcBGAs/s1600/14976484279_fce152254f_z.jpg)
+
+the saem - big brother aloe 95% soothing gel  
+也是採用加州蘆薈  
+（但現在的新裝已經是用濟州蘆薈）  
+7無添加：無對羥基苯甲酸酯（防腐劑）、人工色素、二苯基甲酮、動物原料、甲醛、聚乙二醇、丙二醇  
+質地是三種之中最稠（杰）  
+不過用落跟上面的無甚麼大分別  
+  
+講一下這些天下無敵的蘆薈：  
+外敷有鎮靜舒緩保濕輕度美白消炎修復等作用  
+當然內服也有對腸胃有良好作用的功效  
+可是次這三款的都只供外用  
+而且說實話，對於這些平價品  
+不要抱太大能改善肌膚的效果  
+只是拿來舒緩保濕就好  
+
+[![](https://3.bp.blogspot.com/-ZFrNNEGKxoA/XExTkxH9WfI/AAAAAAAAG5A/Sw16_OyQ2AEhjnogU-0r1xv5J4qkJIuZACLcBGAs/s640/14976542950_34696fbc0c_z.jpg)](https://3.bp.blogspot.com/-ZFrNNEGKxoA/XExTkxH9WfI/AAAAAAAAG5A/Sw16_OyQ2AEhjnogU-0r1xv5J4qkJIuZACLcBGAs/s1600/14976542950_34696fbc0c_z.jpg)
+
+fruit of the earth - aloe vera 100% gel  
+美國品牌，無添加的純蘆薈  
+這枝是在鹿港時緊急用而買的  
+（加上細細枝又有特價超抵用）  
+保濕度很好，不過相比上面兩種  
+用的時候就有點刺眼的感覺  
+但對皮膚沒有傷害性  
+  
+個人覺得這些蘆薈gel那麼方便易用  
+真的比自己買一條蘆薈慢慢批  
+再取汁液去用方便多  
+  
+至於開首所說的敏感紅粒粒  
+我花了一個星期甚麼美白抗皺修護等都停用  
+只是用蘆薈同以[防曬爽身粉](http://www.hidie.net/2014/07/body-johnsons-uv-white-powder.html)拍面去擋太陽  
+之後就平復了也沒有痘印呀疤呀這樣  
+這算是有效啦，對吧（笑）

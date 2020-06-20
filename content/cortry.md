@@ -1,0 +1,30 @@
+---
+title: '[masque] 可采 眼貼膜'
+date: 2013-12-27T22:00:00.000+08:00
+draft: false
+aliases: [ "/2013/12/masque_27.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+雖然個人盡量都不會選擇M.I.C.的東西  
+不過這眼膜真的很好用，一直用已經過了十多個年頭  
+（我不會說我幾歲就開始敷的 XD）  
+
+[![](https://3.bp.blogspot.com/-1gGeXbk7fq4/XCiGrydf_qI/AAAAAAAADMU/DLMc5oT-4yAZNc7QoLtLPt03Uq4f40SPQCLcBGAs/s640/47.jpg)](https://3.bp.blogspot.com/-1gGeXbk7fq4/XCiGrydf_qI/AAAAAAAADMU/DLMc5oT-4yAZNc7QoLtLPt03Uq4f40SPQCLcBGAs/s1600/47.jpg)
+
+超強勁的中藥味道  
+有些人很不喜歡  
+但我覺得完全可以接受  
+眼膜也是浸滿中藥啡色的  
+  
+敷15-20分鐘  
+  
+水份補充了不再乾  
+眼下的乾紋都淡了不少  
+最重要是能淡化黑眼圈！！！  
+  
+而且不會油膩，不用擔心會出油脂粒  
+  
+  
+超好用又便宜（當年買當然更平就是）  
+絕對推薦！

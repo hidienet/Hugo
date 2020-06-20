@@ -1,0 +1,35 @@
+---
+title: '[臺南喪食遊] Day2：東巧鴨肉羹'
+date: 2013-10-19T19:20:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day2_1765.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
+---
+
+濃稠的湯頭，內有切片了鴨肉跟蘿蔔，上面放了薑絲，再淋些黑醋  
+
+這碗是東巧鴨肉羹
+
+[![](https://4.bp.blogspot.com/-l0pblndggZU/XCRHhSLC91I/AAAAAAAAB-E/seosnPO5C3MAyqBfH2tTuDDZxCHIlT15ACLcBGAs/s640/41.jpg)](https://4.bp.blogspot.com/-l0pblndggZU/XCRHhSLC91I/AAAAAAAAB-E/seosnPO5C3MAyqBfH2tTuDDZxCHIlT15ACLcBGAs/s1600/41.jpg)
+
+甘香濃厚的湯是以新鮮鴨子熬煮而成
+
+沒有甚麼藥材味跟香料的味道
+
+故每啖都像是喝下香濃的鴨精華
+
+  
+
+吸飽了湯汁的鴨肉鮮甜軟嫩且有彈性
+
+大配角白蘿蔔很香甜沒有渣
+
+與黑醋和薑絲加起來整碗湯羹清爽不膩
+
+  
+
+很好吃喔！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

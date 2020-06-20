@@ -1,0 +1,36 @@
+---
+title: '[masque] 森田藥粧 黃金活膚生物水凝面膜'
+date: 2013-12-07T22:00:00.000+08:00
+draft: false
+aliases: [ "/2013/12/masque_7.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+敷金上面，數十元幾片的小奢華  
+
+[![](https://4.bp.blogspot.com/-z244KrtVN6Y/XCdmabj9qZI/AAAAAAAACrI/-E-xH6Q03REAI_sY6LiWjSDnFh-LYEsAgCLcBGAs/s640/37.jpg)](https://4.bp.blogspot.com/-z244KrtVN6Y/XCdmabj9qZI/AAAAAAAACrI/-E-xH6Q03REAI_sY6LiWjSDnFh-LYEsAgCLcBGAs/s1600/37.jpg)
+
+除了金，還有很多「珍貴」的用料在mask內  
+哇～ 面仔細細吸不吸收這麼多東西...  
+  
+土豪金般色澤的面膜是厚厚的生物水凝材質  
+覺得像是拿起一隻水母來敷面的樣子 XD  
+  
+敷15-20分鐘  
+期間面膜在面上一直一直跌！下！來！  
+邊緣位置又常常翹起來  
+用一點力把其歸位，就爛掉了（討厭）  
+  
+雞手鴨腳的完成整個過程  
+跟未敷之前完全沒有甚麼分別（！）  
+我的光陰就這樣溜走了 T-T  
+  
+袋子裡面其實還有很多精華  
+再說一遍，精華水在袋子裡面  
+不在面膜上更遑論在我的面上  
+  
+但是此面膜也有個好玩的地方  
+它可以在熱水裡溶解  
+變成一灘淡金色的水這樣  
+不過只是好玩但沒效果的東西買來幹嗎？  
+拿錢買好玩但同樣沒有效果的玩具更好啦哈哈～

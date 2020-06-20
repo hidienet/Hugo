@@ -1,0 +1,34 @@
+---
+title: '[臺中怒食遊] Day4：鹿港第一市場久年老店 － 招牌冰'
+date: 2014-08-24T20:00:00.000+08:00
+draft: false
+aliases: [ "/2014/08/day4_42.html" ]
+tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+話說有東西果腹後就出發逛逛看看  
+但天氣實在太太太熱  
+（尤其剛從清境下來還未完全適應溫差）  
+雖然這家冰品店並不是最老字號的一家  
+不過那家的要坐在馬路邊  
+未食就已經熱死了  
+還是坐在店裡舒舒服服食就好  
+原本想點「招牌冰」（米苔目 + 粉條 + 粉粿）  
+不過更想食愛玉，所以...  
+
+[![](https://1.bp.blogspot.com/-SF4VFoBpSx4/XEwnUIhyUII/AAAAAAAAGjc/N7t3sco4RdwzOpnCcoutkfx7GV4jdosWQCLcBGAs/s640/15005483082_c767261965_z.jpg)](https://1.bp.blogspot.com/-SF4VFoBpSx4/XEwnUIhyUII/AAAAAAAAGjc/N7t3sco4RdwzOpnCcoutkfx7GV4jdosWQCLcBGAs/s1600/15005483082_c767261965_z.jpg)
+
+米苔目 + 愛玉 + 粉粿  
+加上這樣的天氣中最重要的冰山一座  
+糖水不算太凍，也不太甜  
+（好啦在夏天我是想吃超超超凍的）  
+也知道那些粉東西們都食沒有味道的  
+可爽、軟、韌、脆在一身  
+也令身體稍微稍微降溫  
+  
+整體算OK，卻說不上很驚豔  
+好～ 繼續旅程  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

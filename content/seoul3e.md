@@ -1,0 +1,42 @@
+---
+title: '[seoul time] Day3：雪冰설빙 - 年糕雪冰인절미설빙、番薯蛋糕雪冰고구마케익설빙'
+date: 2014-10-25T20:30:00.000+08:00
+draft: false
+aliases: [ "/2014/10/seoul-time-day3_1.html" ]
+tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
+---
+
+像真雪的粉粉感覺在口中融化 （陶醉）  
+
+[![](https://1.bp.blogspot.com/-xcXjtAGzC7o/XE1_Y-G0C0I/AAAAAAAAHWU/i1pjoxOZBu89u6K_wzgZ60GgAZOXX1BIgCLcBGAs/s640/15607451975_c517319873_z.jpg)](https://1.bp.blogspot.com/-xcXjtAGzC7o/XE1_Y-G0C0I/AAAAAAAAHWU/i1pjoxOZBu89u6K_wzgZ60GgAZOXX1BIgCLcBGAs/s1600/15607451975_c517319873_z.jpg)
+
+餐盤紙印的那球블루베리치즈설빙（藍莓芝士雪冰）  
+超似鬼眼俠呀哈哈哈  
+  
+左邊是新口味的番薯蛋糕雪冰고구마케익설빙  
+兩層的番薯蓉香甜不漏  
+正方粒粒的芝士非常濃郁  
+杏仁純粹香脆  
+吃到最底才覺得有點甜  
+（整碗都沒有落煉奶）  
+  
+右邊是招牌也是最好賣的五大之一  
+年糕雪冰인절미설빙  
+杏仁片 x 黃豆粉 x 年糕粒粒的組合  
+配上雪冰簡直是美味到極致  
+K了整碗都不會覺得很甜  
+（也是沒有加煉奶的情況）  
+炒香的黃豆粉同脆脆薄片杏仁  
+就是種香到不行的味道  
+黃豆粉有兩層  
+不會吃到一半就只吃雪這樣  
+內藏的年糕小粒粒  
+超～～～ 煙～ 韌～  
+脆、粉、韌同時在口裡  
+太幸福了吧！  
+  
+爆好吃呢（大大拇指）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)

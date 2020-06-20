@@ -1,0 +1,27 @@
+---
+title: '[生活原味] ぴにおん'
+date: 2013-11-30T20:00:00.000+08:00
+draft: false
+aliases: [ "/2013/11/blog-post_30.html" ]
+tags : [flavor - 揀飲宅食]
+---
+
+在沖縄買的東西，除了怕[蔬菜片](http://www.hidie.net/2013/11/blog-post_24.html)會壓碎之外  
+就是怕不能把這些豬急凍地帶回家  
+
+[![](https://1.bp.blogspot.com/-_vqG_PDkRVs/XCd5tfeCK9I/AAAAAAAACu0/FDkUVEeG28YCHaysqSKQPrtRomisKMSUgCLcBGAs/s640/65.jpg)](https://1.bp.blogspot.com/-_vqG_PDkRVs/XCd5tfeCK9I/AAAAAAAACu0/FDkUVEeG28YCHaysqSKQPrtRomisKMSUgCLcBGAs/s1600/65.jpg)
+
+**ロース生ハム**（左）  
+生火腿就跟平常吃parma ham般  
+**豚タンレアースモーク**（中）  
+煙豬舌，舌頭獨特的嚼感和味道  
+加上淡淡的煙熏味很好吃  
+**パンチェッタ**（右）  
+Pancetta，風乾腿肉的味道又香又濃  
+  
+三款用來做頭盤小吃跟佐酒也很適合  
+跟平常不同的應該是價格  
+比在意大利的西班牙的便宜很多  
+每舊跟我手掌般大的肉肉們全部加起來  
+也只是港幣四百多少少！  
+真的又平又好吃，我愛沖縄～

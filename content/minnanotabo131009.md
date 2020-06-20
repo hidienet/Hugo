@@ -1,0 +1,20 @@
+---
+title: '大口仔拖鞋 x2'
+date: 2013-10-09T19:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/x2.html" ]
+tags : [collections - みんなのたあ坊]
+---
+
+左邊那對人字拖會夾著腳趾，不太好受  
+
+[![](https://2.bp.blogspot.com/-dGMjrXQ5arE/XCOUXvWVEdI/AAAAAAAAB4A/S9NGCJtf6gIxTc9_CYmK80-m7WTnBJMJwCLcBGAs/s640/31.jpg)](https://2.bp.blogspot.com/-dGMjrXQ5arE/XCOUXvWVEdI/AAAAAAAAB4A/S9NGCJtf6gIxTc9_CYmK80-m7WTnBJMJwCLcBGAs/s1600/31.jpg)
+
+加上是日本受權的港版貨，我不算太喜愛就是  
+愛穿的是右邊的拖鞋，01年日版貨仔  
+淺藍底圈圈公仔，輕而厚的鞋底  
+腳板位很闊的一對，不會穿得腳痛    
+  
+穿了三幾年也未爛，超級耐用！  
+  
+不過最後都逃不了太污糟+著爛了的命運．．．

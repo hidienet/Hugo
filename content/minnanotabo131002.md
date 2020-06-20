@@ -1,0 +1,27 @@
+---
+title: 'みんなのたあ坊 minna no tàbò 大口仔'
+date: 2013-10-02T20:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/minna-no-tabo.html" ]
+tags : [collections - みんなのたあ坊]
+---
+
+從小就喜歡人類，不是貓貓狗狗  
+
+[![](https://2.bp.blogspot.com/-Nii49XJti_g/XCONgUk9VFI/AAAAAAAAB04/UvaGD3J_4PEFfnxEt5bF1dhOjP2BYoBpwCLcBGAs/s640/6.jpg)](https://2.bp.blogspot.com/-Nii49XJti_g/XCONgUk9VFI/AAAAAAAAB04/UvaGD3J_4PEFfnxEt5bF1dhOjP2BYoBpwCLcBGAs/s1600/6.jpg)
+
+連卡通公仔的也是大口仔  
+家中堆滿了這個人物的東西用具（這只是一小部分）  
+不只是放著當擺設而是真的拿來用，絕對捨得的  
+  
+像圖中左邊的電熱水煲，水滾得很快很好用  
+右邊的蠟燭燈點起來透出的光令房間與牆身既浪漫又漂亮  
+中間那個keyboard吸塵機都吸得ok乾淨  
+只要是喜愛的，甚麼也是優點  
+  
+我這是愛堆著這小男生在家～  
+  
+  
+哥哥小時候也有大口仔的東西  
+他說因為樣子有點像自己  
+那麼我從小就喜歡的．．．（oh no!）

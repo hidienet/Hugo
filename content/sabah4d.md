@@ -1,0 +1,23 @@
+---
+title: '[沙巴密密食] Day4：波令溫泉'
+date: 2013-12-31T14:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/day4_8055.html" ]
+tags : [travel - Malaysia・Sabah]
+---
+
+行程的另一站是這個波令露天溫泉  
+  
+這溫泉是二戰時候日軍建的  
+在海拔1600米的神山下  
+有森林有溫泉，而且這硫磺水還有舒緩疲勞  
+聽說還能治療皮膚病  
+
+[![](https://3.bp.blogspot.com/-J6_gd5aLA0Y/XCh6JHbvU4I/AAAAAAAADFo/tpf7zEd1x_4iVvGfGH8-53Ig0tZjt2sQACLcBGAs/s640/71.jpg)](https://3.bp.blogspot.com/-J6_gd5aLA0Y/XCh6JHbvU4I/AAAAAAAADFo/tpf7zEd1x_4iVvGfGH8-53Ig0tZjt2sQACLcBGAs/s1600/71.jpg)
+
+逗留的時間不多，在免費區泡泡腳也不錯  
+（超愛泡溫泉超愛泡溫泉超愛泡溫泉）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)

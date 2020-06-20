@@ -1,0 +1,24 @@
+---
+title: '[臺北暴食遊] Day2：成都楊桃冰@西門町'
+date: 2014-04-23T17:30:00.000+08:00
+draft: false
+aliases: [ "/2014/04/day2_1951.html" ]
+tags : [flavor - 飲！, travel - 臺灣・臺北]
+---
+
+星星本身可以解喉毒  
+
+[![](https://1.bp.blogspot.com/-wrYys1jRnwo/XDGfsuVqbfI/AAAAAAAAEgM/FvPfdV7EYkYxBoqcHh-wnlBkVYFmyg8_wCLcBGAs/s640/58.jpg)](https://1.bp.blogspot.com/-wrYys1jRnwo/XDGfsuVqbfI/AAAAAAAAEgM/FvPfdV7EYkYxBoqcHh-wnlBkVYFmyg8_wCLcBGAs/s1600/58.jpg)
+
+這家老店再拿來醃  
+然後加糖浸泡  
+整杯酸酸甜甜的  
+（還加上碎冰）  
+  
+既消暑又解渴，正！  
+  
+（裡面的楊桃也好好吃）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)

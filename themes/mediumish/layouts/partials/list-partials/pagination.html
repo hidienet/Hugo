@@ -1,0 +1,40 @@
+<!-- Pagination
+================================================== -->
+<div class="bottompagination">
+  <div class="pointerup"><i class="fa fa-caret-up"></i></div>
+  <span class="navigation" role="navigation">
+    {{ if gt .TotalPages 1 }}
+      <div class="pagination">
+        {{ if .HasPrev }}
+          <a class="ml-1 mr-1" href="{{.First.URL}}">&laquo; 新番</a>
+        {{ else }}
+          <span>&laquo; 新番</span>
+        {{ end }}
+
+        {{ if ge .PageNumber 3 }}
+          <a class="ml-1 mr-1" href="{{ (index .Pagers (sub .PageNumber 3)).URL }}">{{ (index .Pagers (sub .PageNumber 3)).PageNumber }}</a>
+        {{ end }}
+
+        {{ if .HasPrev }}
+          <a class="ml-1 mr-1" href="{{.Prev.URL}}">{{.Prev.PageNumber}}</a>
+        {{ end }}
+
+        <span class="ml-1 mr-1">{{ .PageNumber }}</span>
+
+        {{ if .HasNext }}
+          <a class="ml-1 mr-1" href="{{.Next.URL}}">{{ .Next.PageNumber }}</a>
+        {{ end }}
+
+        {{ if gt .TotalPages (add .PageNumber 1) }}
+          <a class="ml-1 mr-1" href="{{ (index .Pagers (add .PageNumber 1)).URL }}">{{ (index .Pagers (add .PageNumber 1)).PageNumber }}</a>
+        {{ end }}
+
+        {{ if .HasNext }}
+          <a class="ml-1 mr-1" href="{{.Last.URL}}">古早 &raquo;</a>
+        {{ else }}
+          <span>古早 &raquo;</span>
+        {{ end }}
+      </div>
+    {{ end }}
+  </span>
+</div>

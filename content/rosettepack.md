@@ -1,0 +1,34 @@
+---
+title: '[cleanser] ロゼット 洗顔パスタ 荒性肌'
+date: 2014-03-01T07:30:00.000+08:00
+draft: false
+aliases: [ "/2014/03/cleanser.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+一有粒粒危機，就一定會用它洗面  
+
+[![](https://1.bp.blogspot.com/-yFxHawyn0UY/XC3xRK43WWI/AAAAAAAADx8/2-n-89_fcIwug3eJysIVbftlJHqnyUa2gCLcBGAs/s640/25.jpg)](https://1.bp.blogspot.com/-yFxHawyn0UY/XC3xRK43WWI/AAAAAAAADx8/2-n-89_fcIwug3eJysIVbftlJHqnyUa2gCLcBGAs/s1600/25.jpg)
+
+（@cosme第1位是入手的最大引誘）  
+硫磺cleansing cream  
+有淡淡硫磺味道  
+用洗面網加水起泡  
+很容易就成為綿密又結實的泡泡  
+太油時太乾時敏感時都無有怕  
+肌膚很快就回復良好狀態  
+試過一次因喪食導致食物敏感  
+整塊面出了爆多粒小小紅紅的敏感粒粒  
+除了蘆薈之外甚麼都不敢用的時候  
+就以它來洗面  
+喔～ 一個星期蛋臉又回到我身邊  
+就像從來都沒有發生任何事一樣  
+平常不好意思出了暗瘡（為何會不好意思呢？）  
+用它痘痘就謝得很快  
+所以這是我得大愛品耶～  
+
+[![](https://2.bp.blogspot.com/-_ADhob_I1Og/XC3xZBE-c9I/AAAAAAAADyE/KTIfRqXgKMUB3hoxYC19jzW0LLr5w2kiACLcBGAs/s640/26.jpg)](https://2.bp.blogspot.com/-_ADhob_I1Og/XC3xZBE-c9I/AAAAAAAADyE/KTIfRqXgKMUB3hoxYC19jzW0LLr5w2kiACLcBGAs/s1600/26.jpg)
+
+裡面是這樣，好像是為了衛生問題的設計  
+要按周圍位置洗面膏才推出來  
+有點奇怪卻覺得好好玩 XD

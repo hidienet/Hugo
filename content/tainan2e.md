@@ -1,0 +1,35 @@
+---
+title: '[臺南喪食遊] Day2：水仙宮﹣米糕、四神湯'
+date: 2013-10-19T13:45:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day2.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
+---
+
+於酒店休息了一陣，又忍不住上街走走吃吃  
+
+酒店附近有間水仙宮，水仙宮旁有間蠻多人吃的店
+
+因為一直也沒有店名所以人們都稱之為「水仙宮米糕」
+
+[![](https://3.bp.blogspot.com/-RvvflmT8x7w/XCREo8SK2wI/AAAAAAAAB9g/adKSKCnXXnoFZAUfz-9EheDozaEbkrnJwCLcBGAs/s640/37.jpg)](https://3.bp.blogspot.com/-RvvflmT8x7w/XCREo8SK2wI/AAAAAAAAB9g/adKSKCnXXnoFZAUfz-9EheDozaEbkrnJwCLcBGAs/s1600/37.jpg)
+
+蒸熟的米糕淋上滷肉汁跟肉燥
+
+再撤上花生與魚鬆，最後加上青瓜  
+滷汁味道略淡，混著微鹹的魚鬆便剛剛好  
+米糕黏而不膩有彈性且散發著糯米香氣  
+不會乾也不硬身，與肥肉較多的肉燥一起吃  
+這就是幸褔的感覺（沒有誇張！）  
+青瓜的爽脆能解膩，花生的綿密燜得很入味  
+所有東西加起來就是五湖四海混在一起後有個happy ending  
+  
+四神湯的小腸QQ的，湯頭以薏仁煮  
+所以很清香順口，不錯喝  
+  
+  
+完全地享受好吃的時光  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

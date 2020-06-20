@@ -1,0 +1,37 @@
+---
+title: '[食事] 料理図鑑-『生きる底力』をつけよう-Do-図鑑シリーズ-とよこ'
+date: 2013-10-04T19:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/do.html" ]
+tags : [amusement - books]
+---
+
+我愛吃，會上街吃；亦可以自己煮   
+但因還未算能煮，所以要多磨練   
+看多點書偷偷師務求育成廚娘計劃（啥？）  
+
+[![](https://4.bp.blogspot.com/-nvtvITBSrfg/XCOPWcHPxqI/AAAAAAAAB1k/VfK9335hIaMC2U0kX1gy2Fc2Ne0V6qEFQCLcBGAs/s640/13.jpg)](https://4.bp.blogspot.com/-nvtvITBSrfg/XCOPWcHPxqI/AAAAAAAAB1k/VfK9335hIaMC2U0kX1gy2Fc2Ne0V6qEFQCLcBGAs/s1600/13.jpg)
+
+由零開始，大感謝《料理圖鑑》  
+  
+
+「各位同學，今日我地玩看圖講故事」
+
+跟住圖去學去揀去買，也有依照各食材的簡單食譜
+
+基本要下廚的事已不難了
+
+  
+  
+
+只需要的是：行動！！！
+
+  
+
+  
+
+料理図鑑-『生きる底力』をつけよう-Do-図鑑シリーズ-とよこ
+
+(料理圖鑑：1500招廚房新手求生術)
+
+文：おち とよこ 圖：平野 恵理子

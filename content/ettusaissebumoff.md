@@ -1,0 +1,37 @@
+---
+title: '[masque] ettusais - medicated sebum off mask'
+date: 2014-05-06T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/05/masque-ettusais-medicated-sebum-off-mask.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+有些東西，不管你給了它幾多次機會  
+雷品就是雷品（哼！）  
+
+[![](https://2.bp.blogspot.com/-NPS0lS15Rao/XDGnmvDivjI/AAAAAAAAElw/3foVoX0wFJwY8ghFlNoIa2SWmXvvYpiQwCLcBGAs/s640/7.jpg)](https://2.bp.blogspot.com/-NPS0lS15Rao/XDGnmvDivjI/AAAAAAAAElw/3foVoX0wFJwY8ghFlNoIa2SWmXvvYpiQwCLcBGAs/s1600/7.jpg)
+
+先用那個用完即棄的軟化死皮濕紙巾  
+酸味紗布，話說可以把髒污抹出  
+然後敷牙膏狀的撕黑頭mask  
+敷15-30分鐘，總之乾透就可以  
+然後好爽的由下至上撕出  
+整個過程聽落很合理  
+而且膏狀mask範圍可自行調教  
+比紙狀一定更易"剪裁"更貼  
+  
+但，噩夢就是這樣發生  
+每次（對！是每次！）撕的時候  
+超級痛！因為每次（！）都會連皮撕甩  
+需知鼻側的皮膚要修復不是一兩天OK  
+而且甩皮是角質層受損  
+會結焦那種，極級樣衰的！  
+  
+最慘的是，扯甩了表皮  
+黑頭卻依舊屹立不倒  
+完全是賠了夫人又折兵的節奏  
+  
+不過啦，這東西不適合我覺得是雷品  
+不代表完全也不適合於其他人  
+所以大家自求多福啦  
+用後有效的話便恭喜你！

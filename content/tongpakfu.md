@@ -1,0 +1,21 @@
+---
+title: '[刨冰] 糖百府 雪花冰'
+date: 2014-07-27T16:30:00.000+08:00
+draft: false
+aliases: [ "/2014/07/blog-post_27.html" ]
+tags : [flavor - 螞蟻族]
+---
+
+近來一時落驟雨；要麼太陽就超猛烈  
+又濕又熱，真的受不了  
+
+[![](https://2.bp.blogspot.com/--8jvE0WNOzg/XEQP7sfiUUI/AAAAAAAAGHE/ZEXyhbyIidUWCS8FcCL4QoEyflsyRR7WACLcBGAs/s640/9707524327_69265cb336_z.jpg)](https://2.bp.blogspot.com/--8jvE0WNOzg/XEQP7sfiUUI/AAAAAAAAGHE/ZEXyhbyIidUWCS8FcCL4QoEyflsyRR7WACLcBGAs/s1600/9707524327_69265cb336_z.jpg)
+
+沒有冰品怎樣過活？  
+  
+一片片超多層的台式雪花冰  
+超喜歡這入口即化的感覺  
+而且每一口都冰冰涼涼  
+K完一碟不止涼透心，更有點凍 XD  
+  
+好消暑呢（ha～）

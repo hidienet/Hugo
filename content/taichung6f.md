@@ -1,0 +1,29 @@
+---
+title: '[臺中怒食遊] Day6：丁師傅麻糬 鮮肉鹹麻糬、奶酥、紅豆'
+date: 2014-09-04T14:00:00.000+08:00
+draft: false
+aliases: [ "/2014/09/day6_4.html" ]
+tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+不能錯過的美味又要加多一樣！  
+
+[![](https://3.bp.blogspot.com/-LjuFxH0hiEY/XExMm9Yz3gI/AAAAAAAAGxw/CAijuRyN34ESMNEOREmX_5qZa3KN42e0ACLcBGAs/s640/9977101503_a6771d360a_z.jpg)](https://3.bp.blogspot.com/-LjuFxH0hiEY/XExMm9Yz3gI/AAAAAAAAGxw/CAijuRyN34ESMNEOREmX_5qZa3KN42e0ACLcBGAs/s1600/9977101503_a6771d360a_z.jpg)
+
+非常QQ韌的麻糬  
+這樣也不是超喜愛的原因  
+餡料！是餡料！  
+紅豆又蓉又有粒粒的  
+不會很甜但也不是很驚艷對吧  
+奶酥～ 奶酥這種香酥濃  
+比較少地方能吃到  
+不是流沙那種奶黃餡  
+是鬆・化・的・奶・酥  
+但但但，這鹹味的鮮肉味有夠好吃  
+又肉又蔥又蝦的味道濃郁  
+  
+好食到要暈低了～（oh no！）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

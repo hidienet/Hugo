@@ -1,0 +1,36 @@
+---
+title: '[明明遊慶州 偏向釜山行] Day4：Lotteria - Lotz burger'
+date: 2014-01-17T12:30:00.000+08:00
+draft: false
+aliases: [ "/2014/01/day4lotteria-lotz-burger.html" ]
+tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+---
+
+如果去到外國都要食麥記快餐的話  
+感覺上有點不能體驗當地食文化  
+（雖然當地人都不會餐餐食當地菜吧）  
+但，這這這是Lotteria！韓國Lotte開的快餐  
+也是啦～ 在海灘吹了海風吹到又凍又餓  
+Lotteria就在身後，快快進去暖一下  
+
+[![](https://1.bp.blogspot.com/-P80cT0oQ0uQ/XCyexQ1aEgI/AAAAAAAADqA/F8MCdG40V2Yuo88TiHB9hL--DwZEzZF4QCLcBGAs/s640/40.jpg)](https://1.bp.blogspot.com/-P80cT0oQ0uQ/XCyexQ1aEgI/AAAAAAAADqA/F8MCdG40V2Yuo88TiHB9hL--DwZEzZF4QCLcBGAs/s1600/40.jpg)
+
+套餐的薯條，坦白說麥記好吃點  
+（茶餐廳波浪厚切薯條才是王道！）  
+蘋果汁也沒什麼特別  
+果汁還原幸好不會太甜  
+Lot Burger，一個515 Kcal  
+平常吃東西都不會講卡路里這事  
+為甚麼要提起呢？  
+因為沒有打開包裝拍照  
+不這樣說就不能說明  
+包裡面有層超～ 厚～ 的牛漢堡肉  
+有肉汁不會太乾身的  
+可惜咬到生洋蔥，很辣 T-T  
+  
+食個快餐都出一篇文  
+旅程看起來很無聊嗎哈哈  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)

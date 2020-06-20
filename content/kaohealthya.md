@@ -1,0 +1,20 @@
+---
+title: '[tea] 花王 ヘルシア 緑茶'
+date: 2014-02-12T15:30:00.000+08:00
+draft: false
+aliases: [ "/2014/02/tea.html" ]
+tags : [flavor - 飲！]
+---
+
+食得多就會肥，肥就去減肥  
+
+[![](https://4.bp.blogspot.com/-ARrvFRE78jw/XC4P7N3TAXI/AAAAAAAAD6U/smAuGkAKAu4Sw1Bmkl90n4mIEfOOjFmzwCLcBGAs/s640/96.jpg)](https://4.bp.blogspot.com/-ARrvFRE78jw/XC4P7N3TAXI/AAAAAAAAD6U/smAuGkAKAu4Sw1Bmkl90n4mIEfOOjFmzwCLcBGAs/s1600/96.jpg)
+
+綠茶本身的兒茶素能去除脂肪  
+這枝更聲稱能加強燃燒脂肪  
+「不管你信不信 反正我是信了」  
+而且這綠茶味道不甘苦  
+也不是平常樽裝糖水般的飲料  
+當買個希望都不錯吖～  
+  
+（繼續吃）

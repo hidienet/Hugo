@@ -1,0 +1,48 @@
+---
+title: '[make-off] banila co. - clean it zero'
+date: 2014-10-09T18:00:00.000+08:00
+draft: false
+aliases: [ "/2014/10/make-off-banila-co-clean-it-zero.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+好洗得的卸妝膏～  
+
+[![](https://3.bp.blogspot.com/--IKIQfNrcjc/XE1O8y1TU1I/AAAAAAAAHD0/3x-Rn93YZII8f9EY0OeZgX_C-W6pw3GVwCLcBGAs/s640/14585442195_91041f6aab_z.jpg)](https://3.bp.blogspot.com/--IKIQfNrcjc/XE1O8y1TU1I/AAAAAAAAHD0/3x-Rn93YZII8f9EY0OeZgX_C-W6pw3GVwCLcBGAs/s1600/14585442195_91041f6aab_z.jpg)
+
+油膏狀，乾手拿取直接上面  
+再過水乳化然後沖洗  
+  
+好乾淨而且用後不會乾燥  
+本應很完美，對吧？  
+  
+嘿嘿～（碎碎念的時間）  
+  
+雖然不是很強的乳化劑  
+不過乳化後也有少量白的跑進眼睛  
+沒有刺痛眼睛那樣  
+但也會看東西白朦朦一會兒  
+  
+個人習慣的理由：  
+一回家就落妝  
+平日用卸妝水用後會有像toner般的保護膜  
+那幾個鐘後臨睡前洗澡時才用cleanser都可以  
+然而用這種要過水的卸妝品  
+用後不能直接用skincare或加toner  
+所以要用完後繼續洗面過程  
+之後就要塗上skincare或者敷面膜  
+臨睡前的洗澡時間  
+不太油膩還好過過水都OK  
+有些面膜太油抑或天氣太悶熱  
+就要再用cleanser洗多次面  
+要知道太頻密清洗對肌膚不好喔  
+可是要我把妝容待到洗澡時間才用也不太好吧  
+  
+也是個人理由：  
+還未洗澡但妝已落  
+落了面的，頸部還沒有卸呢....  
+要待到洗澡時間才能卸頸部的  
+  
+因此，我覺得這卸妝膏本身很好  
+而且是非常好用的  
+可惜就跟我的日常生活模式不太適合了～

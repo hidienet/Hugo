@@ -1,0 +1,24 @@
+---
+title: '[牛] 德發牛肉丸'
+date: 2014-07-04T14:30:00.000+08:00
+draft: false
+aliases: [ "/2014/07/blog-post.html" ]
+tags : [flavor - 行膳積腹]
+---
+
+海防道的這個臨時街市  
+「臨時」的年紀比我還要大呢～  
+
+[![](https://2.bp.blogspot.com/-jQ9SA7ROgAI/XEMxfyrcFxI/AAAAAAAAF1I/nRbeRnqDW1QFOyYHGmBTWwW2Ap7wq7LRACLcBGAs/s640/14231188669_f056ed0a0e_z.jpg)](https://2.bp.blogspot.com/-jQ9SA7ROgAI/XEMxfyrcFxI/AAAAAAAAF1I/nRbeRnqDW1QFOyYHGmBTWwW2Ap7wq7LRACLcBGAs/s1600/14231188669_f056ed0a0e_z.jpg)
+
+一般食東西，通常上了一點年紀的時候也會說  
+「當年的味道乜乜乜」or「食唔返以前的物物物」  
+  
+這碗牛丸雖然是比小時候吃的差少少  
+不過也算是變化沒有太大  
+（牛丸可以有甚麼變化呢請問，會表演彈彈波還是跳火圈？）  
+牛味應該是牛本身的質地已經不同  
+彈牙感就同以前就差不多  
+卻依舊是方圓百里最好吃的牛丸  
+  
+說了這些話，是代表我已經老了嗎？（oh no！）

@@ -1,0 +1,31 @@
+---
+title: '[沙巴密密食] Day3：清而不寡 ‧ 魚片米'
+date: 2013-12-30T08:00:00.000+08:00
+draft: false
+aliases: [ "/2013/12/day3.html" ]
+tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
+---
+
+今天要早起「遠」行  
+早餐都是吃一些潮式粉麵  
+
+[![](https://1.bp.blogspot.com/-IBlnYiXJo9k/XCiCb9_4pjI/AAAAAAAADJU/tkNcWIR7DfwLr2Zcdk1HiWzLkcgmY0dSgCLcBGAs/s640/20.jpg)](https://1.bp.blogspot.com/-IBlnYiXJo9k/XCiCb9_4pjI/AAAAAAAADJU/tkNcWIR7DfwLr2Zcdk1HiWzLkcgmY0dSgCLcBGAs/s1600/20.jpg)
+
+看起來比昨天那家蕃茄魚蛋米遜色  
+不過這碗很清，鮮味足  
+清湯就要東西很新鮮才會帶出主食的甜  
+魚片都是鮮爽彈，不會因為薄就沒了嚼感  
+
+[![](https://3.bp.blogspot.com/-t8upY1j4deY/XCiChY0XTTI/AAAAAAAADJY/Ro6OIzpdQZgDPg6Cw7FHJ6ywNc0A5MijgCLcBGAs/s640/21.jpg)](https://3.bp.blogspot.com/-t8upY1j4deY/XCiChY0XTTI/AAAAAAAADJY/Ro6OIzpdQZgDPg6Cw7FHJ6ywNc0A5MijgCLcBGAs/s1600/21.jpg)
+
+中學以後以甚少叫的檸茶  
+啊～ 為甚麼沙巴的茶都不會澀的呢？  
+平常的檸檬茶留在口裡的乾感在這杯卻沒有  
+  
+  
+  
+好～ 吃飽出發！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)

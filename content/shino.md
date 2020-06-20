@@ -1,0 +1,33 @@
+---
+title: '[閱讀瘦身法] 郁住瘦：扭呀扭，條腰就很瘦'
+date: 2013-12-17T10:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/blog-post_17.html" ]
+tags : [amusement - books]
+---
+
+呀大嬸，你只有22吋腰？（56cm）  
+
+[![](https://1.bp.blogspot.com/-t_stSXjwG1Y/XCiIdDBsKCI/AAAAAAAADNk/tXMC-wpPdFMBY4SloHDq_GteN9XCnsBwACLcBGAs/s640/58.jpg)](https://1.bp.blogspot.com/-t_stSXjwG1Y/XCiIdDBsKCI/AAAAAAAADNk/tXMC-wpPdFMBY4SloHDq_GteN9XCnsBwACLcBGAs/s1600/58.jpg)
+
+「腰回しダイエット」  
+－ SHINO  
+  
+加上她是生過仔的喔！  
+太瘦了太瘦了太瘦了太瘦了  
+但又忍不住要看看（拜讀）  
+  
+這套「扭腰操」是一個很簡單的運動  
+只需要5分鐘就能完成  
+扭下扭下就鍛鍊了深層肌和骨盆  
+腰就是這樣有意識的瘦下來  
+  
+（當然書內還有其它部位的運動，懶得每樣都試）  
+  
+我身上呢？  
+  
+雖然還是有的小腹（愛吃的象徵）  
+不過我也能大聲的說：「我是有腰的！」  
+沒可能也想像不能去到SHINO這樣  
+但自從認識這套操以後  
+腰圍從未再超過25“，我已經覺得很厲害喇哈哈～

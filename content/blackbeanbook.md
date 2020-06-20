@@ -1,0 +1,34 @@
+---
+title: '[閱讀瘦身法] 食住瘦：早餐吃黑豆減肥'
+date: 2013-12-10T10:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/blog-post_10.html" ]
+tags : [amusement - books]
+---
+
+顏色來說，黑是我最愛的顏色   
+不論衣著、袋子、袋裡的、甚至吃的也很愛黑   
+黑芝麻黑胡椒黑木耳黑提子等等都很喜歡   
+黑豆，也不例外．．．    
+
+[![](https://2.bp.blogspot.com/--pa53d8fjNY/XCdjfhaNHvI/AAAAAAAACqI/5lHgJZ7EtYYys1vyTlVwofw--lCuuR3xQCLcBGAs/s640/29.jpg)](https://2.bp.blogspot.com/--pa53d8fjNY/XCdjfhaNHvI/AAAAAAAACqI/5lHgJZ7EtYYys1vyTlVwofw--lCuuR3xQCLcBGAs/s1600/29.jpg)
+
+「3개월에 12kg 빼주는 살잡이 까망콩 」  
+﹣정주영  
+  
+其理論是早上吸收了黑豆這低脂高蛋白質高纖   
+以其滿滿的飽肚感令自己不太饞嘴   
+這減肥法有夠簡單 (大心)  
+
+[![](https://1.bp.blogspot.com/-jbTLe3w61c8/XCdjnPZhHTI/AAAAAAAACqQ/HsXhDZDKAr8Uba2CHU2xoxDkYofMy6LzQCLcBGAs/s640/30.jpg)](https://1.bp.blogspot.com/-jbTLe3w61c8/XCdjnPZhHTI/AAAAAAAACqQ/HsXhDZDKAr8Uba2CHU2xoxDkYofMy6LzQCLcBGAs/s1600/30.jpg)
+
+我吃的黑豆購自么鳳  
+（是青仁黑豆！）  
+少少鹹多多脆款式  
+味道不錯，又方便補貨  
+而且這種半磅一包的也很耐吃  
+  
+以這個吃法對我來說沒有甚麼不習慣  
+減肥度還好，因為一整天真的不再會吃太多零食  
+  
+想瘦下來這種方法都算簡單呢～

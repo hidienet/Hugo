@@ -1,0 +1,24 @@
+---
+title: '[臺北暴食遊] Day4：河粉煎@士林夜市'
+date: 2014-05-01T19:30:00.000+08:00
+draft: false
+aliases: [ "/2014/05/day4_774.html" ]
+tags : [travel - 臺灣・臺北]
+---
+
+樣子好可愛的河粉煎  
+
+[![](https://4.bp.blogspot.com/-OjDm5Z5jdHY/XDGkRwCtANI/AAAAAAAAEjs/vHBvWQ-4W1UdrRs1k-jYPHD-7OPy7D1MgCLcBGAs/s640/88.jpg)](https://4.bp.blogspot.com/-OjDm5Z5jdHY/XDGkRwCtANI/AAAAAAAAEjs/vHBvWQ-4W1UdrRs1k-jYPHD-7OPy7D1MgCLcBGAs/s1600/88.jpg)
+
+表面微焦，但不是脆脆的  
+因為實在太滑了  
+整件粉層都是滑的  
+不過咬下感覺很「削」  
+喔，不是平常外滑內韌的河粉呢  
+餡料也沒有特色  
+  
+好啦，吃過就算好了  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)

@@ -1,0 +1,31 @@
+---
+title: '[heel] トプラン (TO-PLAN) - つるつる かかと用クリーム'
+date: 2014-09-14T11:00:00.000+08:00
+draft: false
+aliases: [ "/2014/09/heel-to-plan.html" ]
+tags : [glamorous - 蛋臉以外]
+---
+
+雖然平日也是穿襪子不穿涼鞋  
+但也因為那是絲襪同不一定是棉質  
+所以腳踭位會有點乾乾的  
+還是用些保濕cream塗一下吧  
+
+[![](https://4.bp.blogspot.com/-LNgZ7FI_1Pg/XExrkuc16nI/AAAAAAAAG5c/AhORbLJIMysFEE0ZcNM3G3lT76IjK3B1QCLcBGAs/s640/15035725228_9a5fb6a40d_z.jpg)](https://4.bp.blogspot.com/-LNgZ7FI_1Pg/XExrkuc16nI/AAAAAAAAG5c/AhORbLJIMysFEE0ZcNM3G3lT76IjK3B1QCLcBGAs/s1600/15035725228_9a5fb6a40d_z.jpg)
+
+小小的一罐盒子也很可愛  
+不過拿下盒子後就…  
+cream質地濃郁，卻容易推開  
+塗抹後腳踭即時軟滑  
+保濕度也很好  
+淺淺的乾紋亦消失  
+  
+可惜效果不算太持久  
+大概持續半天這樣  
+過水後也是回復乾乾的（淚）  
+就算一直早晚乖乖的使用  
+也只有即時效果而沒有長遠改善功效  
+  
+除非厚敷後再加襪敷過夜  
+才會有兩三日美美嫰滑腳踭  
+只是懶少少的塗抹真的不行呢…

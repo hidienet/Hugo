@@ -1,0 +1,34 @@
+---
+title: '[masque] 肌美精 うるおい浸透マスク お風呂でもアロマ（ローズ）'
+date: 2014-06-27T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/06/masque_27.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂, lifestyle - rosy rosy]
+---
+
+如果要好好慰勞自己  
+浸浴再加玫瑰味mask就最relax  
+
+[![](https://1.bp.blogspot.com/-NF_1Eoy8rN8/XEMsD0dmufI/AAAAAAAAFyU/G4redMYZdO8c7rP0-frW4rwvW_hTYBdEwCLcBGAs/s640/12264124075_caf4b0b13e_z.jpg)](https://1.bp.blogspot.com/-NF_1Eoy8rN8/XEMsD0dmufI/AAAAAAAAFyU/G4redMYZdO8c7rP0-frW4rwvW_hTYBdEwCLcBGAs/s1600/12264124075_caf4b0b13e_z.jpg)
+
+在有暖水的浴缸掉塊mask溫熱5分鐘  
+（不要打開包裝袋放入浴缸喔）  
+然後開袋，華麗的玫瑰氣味散出來  
+敷上後繼續浸浴，配玫瑰浴就最極致  
+  
+敷5分鐘就OK，溫度高加上透明質酸  
+保濕成分絕對有好好的滲透  
+浸浴本身已經令皮膚又滑又保濕  
+面部還能蒸汽加密集式修護  
+而且又有濃濃花香味  
+整個人的心情好對皮膚當然更好  
+  
+喔～ 不過不是時時能浸浴怎麼辦  
+可以把mask放在大概40度水浸  
+洗澡後敷上面膜  
+再在暖暖的浴室裡磨個砂  
+也可以塗塗body lotion或幹點什麼  
+總之要保持空間又濕又暖這樣  
+5分鐘後拿下mask  
+雖然不及浸浴那麼好  
+不過也算不錯的～

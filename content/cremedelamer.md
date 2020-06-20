@@ -1,0 +1,41 @@
+---
+title: '[moisturizer] la mer - creme de la mer'
+date: 2014-01-10T22:45:00.000+08:00
+draft: false
+aliases: [ "/2014/01/moisturizer-la-mer-creme-de-la-mer.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+又如果，這輩子又只能再用一隻cream  
+la mer當然是抱著不放手的一罐（你la mer，去跳海好了）  
+
+[![](https://3.bp.blogspot.com/-FDRsvta_U8g/XCio3_e0QFI/AAAAAAAADZ0/yj9oR-GlysESalYAW0OUWSF5YLdXgNMRACLcBGAs/s640/06.jpg)](https://3.bp.blogspot.com/-FDRsvta_U8g/XCio3_e0QFI/AAAAAAAADZ0/yj9oR-GlysESalYAW0OUWSF5YLdXgNMRACLcBGAs/s1600/06.jpg)
+
+搪瓷瓶裝好像比膠瓶比較好保護  
+但蓋子都是膠造的 XD  
+  
+白色的cream，平平無奇的樣子  
+卻是又好吸收又令皮膚好  
+更令皮膚「年輕了」的東西  
+  
+用了以後皮膚很明顯會夠保濕  
+表面觸感柔軟，肌膚內部感覺充滿彈性  
+持續用就看見乾紋甚至皺紋撫平  
+毛孔慢慢會收細，連斑點也有輕量減淡  
+整塊面就是青春有生氣的模樣  
+  
+有些feedback說會爆瘡云云  
+但乾性皮膚的我  
+從未試過在用這瓶的時候爆過  
+（別說爆，用這瓶時就連出都沒有出過）  
+所以都是看不同膚質而已  
+  
+以我的角度  
+這瓶東西唯一的缺點只是價格  
+  
+但比起用一大堆防皺抗皺的  
+又要買這樣那樣功效不同的精華素  
+那不如買一瓶能搞定多種問題又有效果的la mer便足夠  
+而每次用量也不是太多  
+計起來都算便宜的，不是嗎？  
+（你la mer，這樣都叫便宜，你還是去跳海好了）

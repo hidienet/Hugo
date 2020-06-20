@@ -1,0 +1,50 @@
+---
+title: '[masque] laneige - water sleeping pack EX'
+date: 2014-02-08T22:00:00.001+08:00
+draft: false
+aliases: [ "/2014/02/masque-laneige-water-sleeping-pack-ex.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+會用mask的應該不會不認識這sleeping mask吧  
+
+[![](https://3.bp.blogspot.com/-oh0viK9MiJs/XC4TRLzgjUI/AAAAAAAAD8A/JsUqrrTXbY8J7XThjde1t7Sf6FsTvgcJwCLcBGAs/s640/p.jpg)](https://3.bp.blogspot.com/-oh0viK9MiJs/XC4TRLzgjUI/AAAAAAAAD8A/JsUqrrTXbY8J7XThjde1t7Sf6FsTvgcJwCLcBGAs/s1600/p.jpg)
+
+打開蓋就被香薰味籠罩  
+不過與其說香，我就覺得較人工氣味  
+把藍色water jelly狀的mask搽上面  
+敷過夜後沖洗就可以  
+份量，太薄就像一般moisturizer  
+那就不如直接用moisturizer吧  
+除非本身的太貴覺得用它比較平啦  
+但太厚就有超級黏膩感  
+深怕弄髒枕頭堵塞發線位頭髮的毛孔等等  
+所以要每次就天氣就份量去用  
+  
+睡醒後洗面皮膚觸感滑滑  
+也會柔軟且增加彈性  
+肌膚表層飲飽水上妝當然貼面  
+效果一整天也持續  
+沒錯，個人覺得只能持續一整天  
+對於這種價格不高的面膜來說  
+維持到一整天有效果其實已經不錯  
+只覺得不過不失  
+比較適合年輕肌膚只需要保濕那些  
+輕熟成熟總之有點熟的就有點不足夠  
+  
+另，話說有blogger寫文  
+說彩豐行的12杯水內含CI 42090  
+這東西是名為「brilliant blue FCF」的藍色染料  
+不好處是種可令中度哮喘患者病發的致敏原云云  
+然後說彩豐行雖然賣得平價但沒良心  
+可是吧，其實業界一直都這樣添加  
+Water sleeping pack都有  
+所以不只是平價的才沒良心好吧  
+（賣得價格再貴點的H2O都有添加這個啦放心好了）  
+但那個所謂的致敏原份量有多少才能誘發呢  
+就像一些學者說每天食兩公斤白飯  
+食足200年就會中毒  
+誰會有200命然後仲每日食到2kg飯  
+就算不中毒也肯定會死啦不是嗎  
+提防不是不可，但請給足夠資料會比較好  
+（長氣了）

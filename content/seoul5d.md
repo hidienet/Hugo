@@ -1,0 +1,34 @@
+---
+title: '[seoul time] Day5：caffé bene - 咖啡冰 커피빙수'
+date: 2014-10-30T14:30:00.000+08:00
+draft: false
+aliases: [ "/2014/10/seoul-time-day5caffe-bene.html" ]
+tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
+---
+
+好大的一杯，忍不住拿來玩...  
+
+[![](https://2.bp.blogspot.com/-ntWM_H8sXv8/XE2Q2USnlrI/AAAAAAAAHd4/uSkCVZJT1lo-USQfBih0494gQOoPGoxIACLcBGAs/s640/15010771863_4c7bd3c279_z.jpg)](https://2.bp.blogspot.com/-ntWM_H8sXv8/XE2Q2USnlrI/AAAAAAAAHd4/uSkCVZJT1lo-USQfBih0494gQOoPGoxIACLcBGAs/s1600/15010771863_4c7bd3c279_z.jpg)
+
+（這是要扮代言人的樣子同pose嗎白痴？）  
+**咖啡冰 커피빙수**  
+最頂層是滑滑的咖啡味雪糕  
+雪糕底圍了一圈紅豆蓉（OK甜）  
+紅豆蓉的外圍是厚身粟米片  
+加上經烘焗的杏仁同朱古力豆  
+好脆好脆又能夠中和紅豆的甜味  
+然後就是一大杯韓式泡冰  
+不會太苦的espresso  
+有咖啡香味卻不會太濃太甜太苦  
+喔～ 就是韓式咖啡的樣子  
+倒在大大杯冰碎裡  
+整杯都滲滿咖啡香味  
+吃到底耶不會太甜的其實都不錯  
+（而且超～ 飽～ ）  
+  
+...韓國的代言不是他，天朝才是  
+但在cafe休閒的坐著吃冰也是件賞心樂事（笑）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)

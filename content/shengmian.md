@@ -1,0 +1,69 @@
+---
+title: '[麵] 勝麵 - 招牌麻辣牛肉撈麵'
+date: 2019-06-25T20:22:00.000+08:00
+draft: false
+aliases: [ "/2019/06/blog-post_25.html" ]
+tags : [flavor - 行膳積腹, flavor - 螞蟻族]
+---
+
+雖然好鍾意台灣牛肉麵啲香濃湯底  
+但係咁鬼熱嘅天氣真係唔想蒸住塊面啊...  
+
+![](https://qfxntg.ch.files.1drv.com/y4mjUFjexZWMAocGE2xXOsPAuXreWY7TKjqHxyE-eWdZnN5SLUJLQRvSnvhLIN6Li7oL3ZYzf4bMkCsGL9jDLej-2V9EmjcxUEeDJK5PrhOwD0nd650YpVM_QfFYPgtRnhgTASfHFcsmm_6ez9QZZaDp9IhoGEf4Xa-Ii8CNARJSOIZiDDnggkbihT8rSyFEMwLtPzHFUbCBqlzzo8q6KCWMw?width=660&height=371&cropmode=none)
+
+**招牌麻辣牛肉撈麵**  
+托埋塊招牌出嚟  
+超～ 嫩～ 一嘢就咬得開嘅牛腱  
+微微川燙過嘅牛肉薄片  
+兩種濃郁牛肉味中又帶麻辣味  
+要吸麻辣味當然唔少得蜂巢豆腐  
+微細窿嘅豆腐，一咬就咇咗微酸麻辣豆味  
+係嘅，麻辣嘢係唔可以冇鴨血  
+唔腥又夠韌，麻辣 x 鹵水美妙嘅組合  
+闊身白麵好掛湯，唔食得辣嘅我叫中辣就啱啱好  
+韌性足好好好好咬  
+  
+成碗麵嘅完成度太高喇！正！  
+
+![](https://qfxotg.ch.files.1drv.com/y4ms2yoaO-SAnmvweQCxs8HxqmfWEtlE7J_bszx3HJwhZeh40qpPrlaej_qMf_L7cjNiLvOEr19xREybRYa-yNUEWV4Yl7aqOg_RLYJnTa-QZAwZKrZKJyjAPc5UYGvjx5AwPZKFegltjVarqskNuwz5JZqO43pbyd2KcQYQlQ4Y9DYeIvY57zXCGMusrYSpWwratSYbj28AVuVpolrSAjT4g?width=660&height=371&cropmode=none)
+
+叫撈麵會配埋**蛋花湯**  
+
+![](https://qfxrtg.ch.files.1drv.com/y4m8r94sXsVjE9ez1zlEx7WnFyyTBRE_KRP6AyQVS_XhrKqvp5T3D6GaEPZLc1nomH1eyIs9L2ASmVmDRuUUPvdY5QcQpNhXuk3kQcRx8UVtq-yL2bTjaH_M7quoxjUUVMGspPgAsIScp16OwPpssAjFQqHnDhdf-NqJv9nB-x6K1pZHtkLhbxT75Fp_dCOnE2AifbRWdqT4bgJL3yv6f3dIg?width=660&height=371&cropmode=none)
+
+唔會好鹹又有絲絲滑嘅蛋花  
+不過習慣港式麵檔撈麵配湯嘅我  
+都係唔敢將啲湯一飲而盡  
+
+![](https://qfxptg.ch.files.1drv.com/y4mkYfIjsvePSw-QRvuKPQR6aW6kYTO5zdtDHMIPzpSqA2WtU6ei0ypy8m7gfmTjJGXHlGzDsGroboyD8DwYaPFM0ZLmOgF3WPg0OqsbCBf5AatctNi7e-KoXFAIBqNBcDrNLEFLFeeCS9YWCIMnKNc12_7qZf-7F0cjhvF4LUEAvYr14eNMcW8WquzrkukL43cm7cpjgJ-8v93syWfAhpuMw?width=660&height=371&cropmode=none)
+
+**滷肉飯**  
+响食麵嘅地方叫飯有時候係會有伏  
+不過幸運之神今日企响我呢邊  
+呢碗嘢又幾好食架喎  
+豬肉粒半肥瘦，滷得入味唔會勁鹹勁甜  
+油花足同飯食just right  
+係個汁有少少滿溢  
+食到碗底啲飯都仲爆汁  
+（呃，全熟蛋唔係我杯茶）  
+
+![](https://qfxmtg.ch.files.1drv.com/y4mgPfONQ0V45kz8qOj3RLOpRO8D6gwvAZrRRDWIBN_HRtYUH8QIxJfGt0SL2glgyjg2K6mpg6AU8krTUwDG7oCgVawFLZw4w0elrVBKrLELLo-whOgitcoJOn2OlFKXh2je7g9lRj2Cojm75d1Sb5DRxRcm-L05m0F0MA1S5ZeclRCrkHPe28BBt6UY9D2rf_anveA3pXrG5z67D_4JuU2gg?width=660&height=371&cropmode=none)
+
+**涼拌手撕無骨鹽水雞**  
+香港限定菜式  
+雞香滑唔會鹹可以空口食  
+甜不辣... 甜咗少少不過都唔錯  
+青瓜爽口碟底嫩豆腐豆味勁濃郁  
+麻油味都幾出喎，成碟夾埋好似食緊夜市撈一堆咁（嘻）  
+
+![](https://qfxktg.ch.files.1drv.com/y4mz95h2rKY44vqOHH8dcacLPPFibNsxuktGxqndB4AVqJLBeVZotN761MsK_jcd-zUi7I4lg2EvNuBgeRoy9op1MHPa6aIOBS4vmWqq7haJFME9QtGrZgRj4Rz_NBlDAYmOvG0Ic3cUxwMYeTygitsmTyFtarZvsT4amsl7oONuLlrz0fTuuSTR5CUd2ubXt5iN90XxgMMqCZMqOhKyY_wPg?width=660&height=371&cropmode=none)
+
+**百香果透心涼愛玉**  
+幾飽都想食嘅甜品  
+夠！酸！嘅檸檬水真係好正  
+幾粒仔新鮮百香果已經夠晒香甜  
+愛玉爽滑骨碌骨碌就跣晒入口  
+  
+  
+係好完美嘅，可惜飽得滯今次試唔到**流心麻糬芋泥雞蛋手工手抓餅**  
+下次一定要去食啊我（握拳）

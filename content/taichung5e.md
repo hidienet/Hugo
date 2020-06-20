@@ -1,0 +1,29 @@
+---
+title: '[臺中怒食遊] Day5：三和珍 雪藏綠豆糕'
+date: 2014-08-27T10:00:00.000+08:00
+draft: false
+aliases: [ "/2014/08/day5_27.html" ]
+tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+穿過市場，就看到三和珍這個美味的check point  
+
+[![](https://2.bp.blogspot.com/-vMV7l36XC8o/XEwq4XfEshI/AAAAAAAAGmo/JL8qu6WZYaMXUEigznD_WIG-IzHbbPsRgCLcBGAs/s640/9718415130_87ba4f90a5_z.jpg)](https://2.bp.blogspot.com/-vMV7l36XC8o/XEwq4XfEshI/AAAAAAAAGmo/JL8qu6WZYaMXUEigznD_WIG-IzHbbPsRgCLcBGAs/s1600/9718415130_87ba4f90a5_z.jpg)
+
+喜歡吃綠豆糕加上這種天氣  
+這家的雪藏綠豆糕必然是不試不行  
+  
+雖然有其他有餡料的口味  
+不過還是選擇了最多綠豆的原味  
+綠豆本身也有消暑功效  
+再加上是雪過的，更透心涼  
+綿密順口的糕點入口即化  
+（小心咬以免散落一地浪費了）  
+味道清香而且只是微甜  
+迷你月餅size，剛好的大小不會膩  
+  
+超好吃！值得一試再試的美味（心）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

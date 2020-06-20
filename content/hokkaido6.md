@@ -1,0 +1,169 @@
+---
+title: '[食道鉄道北海道] Day6： 稚內 → 札幌'
+date: 2017-10-09T09:38:00.000+08:00
+draft: false
+aliases: [ "/2017/10/day6.html" ]
+tags : [travel - 日本（北海道蝦夷）・ 十勝帯広、釧路、北見網走、旭川、稚內、石狩札幌、後志小樽]
+---
+
+都話瞓醒就有好天氣㗎啦  
+今朝又係比陽光曬醒  
+冇咩嘅咪又去浸溫泉囉  
+（擒晚只可以室內場今朝就有開埋露天嘅，更爽！）  
+
+[![](https://c1.staticflickr.com/5/4497/37379701432_89fc77dc95_z.jpg)](https://c1.staticflickr.com/5/4497/37379701432_89fc77dc95_z.jpg)
+
+去返擒日無可能影到嘅**稚內駅**先  
+條最北嘅鐵路係穿出個站㗎  
+
+[![](https://c1.staticflickr.com/5/4382/37411208991_fe29153bc7_z.jpg)](https://c1.staticflickr.com/5/4382/37411208991_fe29153bc7_z.jpg)
+
+啦啦啦～ 朝早就飲吓**雪印  - ソフトカツゲン**  
+當然因為係北海道限定嘅乳酸飲品  
+牛奶味重啲又冇咁甜嘅益力多  
+喂好好飲呀佢，北海道人真係好幸福呢  
+
+[![](https://c1.staticflickr.com/5/4453/36701714324_7cd6c4cf7c_z.jpg)](https://c1.staticflickr.com/5/4453/36701714324_7cd6c4cf7c_z.jpg)
+
+响稚內行吓 @**宗谷湾**  
+
+[![](https://c1.staticflickr.com/5/4369/37373778756_80bb6fa4d8_z.jpg)](https://c1.staticflickr.com/5/4369/37373778756_80bb6fa4d8_z.jpg)
+
+**北防波堤ドーム**  
+擒日如果嚟咗呢度我就應該返唔到嚟  
+
+[![](https://c1.staticflickr.com/5/4355/36711292364_1c2eab8009_z.jpg)](https://c1.staticflickr.com/5/4355/36711292364_1c2eab8009_z.jpg)
+
+而家都咁大風勁大浪  
+  
+嗱嗱嗱～ 我承認响酒店嗰陣  
+有三秒諗過不如出去追風睇浪  
+但係要珍惜生命啊！  
+
+[![](https://c1.staticflickr.com/5/4449/36750941813_f4996ea2a2_z.jpg)](https://c1.staticflickr.com/5/4449/36750941813_f4996ea2a2_z.jpg)
+
+行去**稚内副港市場**  
+
+[![](https://c1.staticflickr.com/5/4456/37164321750_90e88c1b22_z.jpg)](https://c1.staticflickr.com/5/4456/37164321750_90e88c1b22_z.jpg)
+
+呢邊個市場極級遊客  
+冇嘢好行，求其兜個圈就算  
+
+[![](https://c1.staticflickr.com/5/4496/36750941513_c267329241_z.jpg)](https://c1.staticflickr.com/5/4496/36750941513_c267329241_z.jpg)
+
+買咗枝**稚内牛乳**同**北海道ミルクブッセ**做簡單早餐  
+
+[![](https://c1.staticflickr.com/5/4413/23569646088_195ec07bfb_z.jpg)](https://c1.staticflickr.com/5/4413/23569646088_195ec07bfb_z.jpg)
+
+呢個市場嘅**ギャラリー棟**就幾得意  
+
+[![](https://c1.staticflickr.com/5/4431/36712193274_99446dd3ff_z.jpg)](https://c1.staticflickr.com/5/4431/36712193274_99446dd3ff_z.jpg)
+
+一條懷舊街仔（**稚内ノスタルジー**）  
+搞到玩太耐不知時日過  
+要急急急返去酒店check out  
+
+[![](https://c1.staticflickr.com/5/4427/37374729206_20f406d759_z.jpg)](https://c1.staticflickr.com/5/4427/37374729206_20f406d759_z.jpg)
+
+然後食奔廚 @**青い鳥**  
+稚內嘅**塩ラーメン**  
+唔好睇個湯頭咁清就好似冇味咁  
+味道濃郁唔死鹹，香到爆～  
+
+[![](https://c1.staticflickr.com/5/4490/37374814316_94ee0704aa_z.jpg)](https://c1.staticflickr.com/5/4490/37374814316_94ee0704aa_z.jpg)
+
+食完就早少少拖行李去車站  
+等車嗰陣有隻カワイイ突然走咗出嚟  
+佢成身海帶，叫**出汁之介**   
+
+[![](https://c1.staticflickr.com/5/4507/36751479253_a9288c6060_z.jpg)](https://c1.staticflickr.com/5/4507/36751479253_a9288c6060_z.jpg)
+
+稚內 → 旭川  
+（**特急サロベツ、261系**）  
+
+[![](https://c1.staticflickr.com/5/4365/37391184462_489bb82830_z.jpg)](https://c1.staticflickr.com/5/4365/37391184462_489bb82830_z.jpg)
+
+byebye **JR日本最北端の駅**（揮手）  
+
+[![](https://c1.staticflickr.com/5/4422/36751672203_9aba1148a4_z.jpg)](https://c1.staticflickr.com/5/4422/36751672203_9aba1148a4_z.jpg)
+
+話說擒日打風喎...  
+
+[![](https://c1.staticflickr.com/5/4470/37422305381_4ca2af9467_z.jpg)](https://c1.staticflickr.com/5/4470/37422305381_4ca2af9467_z.jpg)
+
+tea time就食超豐富嘅稚內の駅弁「**海の七つ星**」  
+有蟹、海膽、数の子、元貝、螺、三文魚同口爆子  
+好食到癲！！！  
+
+[![](https://c1.staticflickr.com/5/4472/36751914343_dc084a6e72_z.jpg)](https://c1.staticflickr.com/5/4472/36751914343_dc084a6e72_z.jpg)
+
+飲嘢就係北海道限定嘅酸酸地果味水  
+**I LOHAS(い・ろ・は・す) - ハスカップ **  
+
+[![](https://c1.staticflickr.com/5/4382/37391560802_45283a245a_z.jpg)](https://c1.staticflickr.com/5/4382/37391560802_45283a245a_z.jpg)
+
+旭川 → 札幌  
+（**特急ラッピング、789系0代**）  
+
+[![](https://c1.staticflickr.com/5/4383/37391623552_23ed9f2b31_z.jpg)](https://c1.staticflickr.com/5/4383/37391623552_23ed9f2b31_z.jpg)
+
+**札幌（札幌駅）**  
+放低行李之後再响站附近完成「任務」  
+（話說係之前响大阪mission fail，今次終於mission complete）  
+就繼續走出去覓食  
+
+[![](https://c1.staticflickr.com/5/4473/36713034214_84aed87b9d_z.jpg)](https://c1.staticflickr.com/5/4473/36713034214_84aed87b9d_z.jpg)
+
+慢慢咁行，沿途就會見到啲地標...   
+首先係**札幌市時計台**  
+
+[![](https://c1.staticflickr.com/5/4363/36752167553_00e728d44e_z.jpg)](https://c1.staticflickr.com/5/4363/36752167553_00e728d44e_z.jpg)
+
+同**さっぽろテレビ塔**  
+
+[![](https://c1.staticflickr.com/5/4352/36752215813_8491ac04fa_z.jpg)](https://c1.staticflickr.com/5/4352/36752215813_8491ac04fa_z.jpg)
+
+再見到好可愛嘅**札幌市電**  
+
+[![](https://c1.staticflickr.com/5/4429/37391819982_7c8d260d1a_z.jpg)](https://c1.staticflickr.com/5/4429/37391819982_7c8d260d1a_z.jpg)
+
+and **狸小路商店街**  
+
+[![](https://c1.staticflickr.com/5/4498/37422793151_c8d27e4da0_z.jpg)](https://c1.staticflickr.com/5/4498/37422793151_c8d27e4da0_z.jpg)
+
+落住雨咁一口氣行咗2公里  
+就係為咗嚟**五坪**食**厚岸産のカキ**呀  
+好大隻好好食啦仲好好好抵食  
+老細係超nice嗰隻  
+真心極級推介！！！  
+
+[![](https://c1.staticflickr.com/5/4366/23570809688_b39be2060f_z.jpg)](https://c1.staticflickr.com/5/4366/23570809688_b39be2060f_z.jpg)
+
+食完幾隻蠔就走去**いただきます。**等位  
+有諗過食ジンギスカン (成吉思汗)就去元祖店だるま  
+不過只有いただきます。係全北海道産羊嘛  
+嫩滑唔羶又帶肉香  
+呀呀呀真係好好味呢～  
+
+[![](https://c1.staticflickr.com/5/4452/36752547733_2ca0fc3153_z.jpg)](https://c1.staticflickr.com/5/4452/36752547733_2ca0fc3153_z.jpg)
+
+好夜喇加上今日都幾勞碌吓  
+係咁意兜咗轉**ドン・キホーテ**  
+就返酒店休息喇  
+無計啦，房裡面有**按摩椅**  
+（係呀每間房都有㗎）  
+死霸住唔郁㗎喇我！  
+有咩聽朝先講啦～～～  
+  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：  
+[Day1：新千歳空港 → 帯広](https://www.hidie.net/2017/09/day1_28.html)  
+[Day2：帯広 → 釧路](https://www.hidie.net/2017/09/day2_29.html)  
+[Day3： 釧路 → 塘路 → 網走](https://www.hidie.net/2017/10/day3.html)  
+[Day4： 網走 → 旭川](https://www.hidie.net/2017/10/day4.html)  
+[Day5： 旭川 → 稚內](https://www.hidie.net/2017/10/day5.html)  
+Day6： 稚內 → 札幌  
+[Day7： 札幌 ↔ 小樽](https://www.hidie.net/2017/10/day7.html)  
+[Day8： 札幌 → 新千歳空港](https://www.hidie.net/2017/10/day8.html)

@@ -1,0 +1,31 @@
+---
+title: '[臺中怒食遊] Day4：招牌蝦卷、招牌蚵卷@阿南師民俗小吃'
+date: 2014-08-24T13:40:00.000+08:00
+draft: false
+aliases: [ "/2014/08/day4_24.html" ]
+tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+只吃一碗[魷魚粳](http://www.hidie.net/2014/08/day4.html)又怎能滿足饞嘴的人？  
+跳到隔壁鋪就是阿南師民俗小吃  
+一看點餐紙，看到「招牌xx」  
+腦袋都不用運轉就點了  
+
+[![](https://1.bp.blogspot.com/-7APnTwIp7XI/XEwnJgPsw3I/AAAAAAAAGjY/bUOuvIAzFHcpcdbpHWMMtgqRq6s7ItbKgCLcBGAs/s640/14819015689_8b35934a3f_z.jpg)](https://1.bp.blogspot.com/-7APnTwIp7XI/XEwnJgPsw3I/AAAAAAAAGjY/bUOuvIAzFHcpcdbpHWMMtgqRq6s7ItbKgCLcBGAs/s1600/14819015689_8b35934a3f_z.jpg)
+
+左蝦右蚵  
+蝦卷外皮炸的脆脆  
+裡面的料子豐富，飽滿而扎實  
+餡料中有粒粒鮮味的大蝦子同蘿蔔粒蔥等  
+雖然炸的卻不會覺得很油膩  
+  
+蚵卷不像蝦卷那麼扎實彈牙  
+這是因為食材本質不同  
+蚵仔也很鮮  
+外脆裡流沙般，吃得過癮  
+  
+醮上像帶有蘿蔔蓉的茄醬，醬好吃！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

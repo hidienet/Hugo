@@ -1,0 +1,31 @@
+---
+title: '[保加利亞醉遊記] 遊覽篇：Varna市中心步行街？'
+date: 2014-05-31T18:30:00.000+08:00
+draft: false
+aliases: [ "/2014/05/varna.html" ]
+tags : [travel - България (Bulgaria)]
+---
+
+超級不明所以  
+明明是市中心遊客區步行街  
+好好的大路一條  
+裝修重鋪磚不要緊  
+
+[![](https://4.bp.blogspot.com/-5wu4sVdw36o/XDsVCY2cewI/AAAAAAAAFXg/A-go7md68JENAv0ZEokMeJUyVrXjmKbjACLcBGAs/s640/14309975315_fb3a00620d_z.jpg)](https://4.bp.blogspot.com/-5wu4sVdw36o/XDsVCY2cewI/AAAAAAAAFXg/A-go7md68JENAv0ZEokMeJUyVrXjmKbjACLcBGAs/s1600/14309975315_fb3a00620d_z.jpg)
+
+但... 不要把整條路都挖起！  
+變成一個大地盤嘛！！！  
+（一直伸延到好幾條街）  
+  
+香港如果修路  
+也會是先整一半後再整  
+留人走的路給人走才是吧  
+  
+整個地盤，遊客居民跟工人都是可以自由走動  
+那不危險嗎？  
+  
+「埃衣菇～」  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)

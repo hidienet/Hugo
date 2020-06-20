@@ -1,0 +1,54 @@
+---
+title: '[masque] OLAY - total effects de-wrinkle firming stretch mask'
+date: 2013-12-19T22:00:00.001+08:00
+draft: false
+aliases: [ "/2013/12/masque-olay-total-effects-de-wrinkle.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+那天，小不點問我有沒有修緊的mask  
+找呀找，找到這片遞給她  
+
+[![](https://1.bp.blogspot.com/-CpJMjgj7muY/XCiLQ9zUQfI/AAAAAAAADO0/ffHdchxb8VcZijn_mdmAxaU7GDyAOmi-gCLcBGAs/s640/68.jpg)](https://1.bp.blogspot.com/-CpJMjgj7muY/XCiLQ9zUQfI/AAAAAAAADO0/ffHdchxb8VcZijn_mdmAxaU7GDyAOmi-gCLcBGAs/s1600/68.jpg)
+
+但她居然鄙視地說：  
+  
+「吓？ 賤lay呀？ 唔要！你求其俾塊美白我就算！」  
+  
+（！！！）  
+  
+雖然這片面膜應該是不知道哪裡的贈品or誰送給我用  
+（肯定不是真金白銀買的）  
+又，我也沒有對這個牌子有甚麼好感  
+（我都是叫這品牌做「 賤lay」的 XD）  
+不過因為一來被小不點這樣的鄙視  
+二來像我這種神農氏嚐百草，我不入地獄誰入地獄  
+三來既然都拿了出來，就敷一下試試  
+  
+好！身先士卒啦（大把人敷過啦白癡）  
+  
+面膜看似普通不織布  
+展開才發現是很有彈性的  
+所以拿出來小小的一塊是可以拉到大面人上  
+（之前打開還疑問著除了我這種不太大的面以外還有誰能敷）  
+而且拉拉後很貼面  
+是鼻位奇怪的只有一條橫線的剪裁  
+弄得鼻子兩旁盡入空氣敷不到  
+  
+精華爆多，說是有24ml  
+奶白色不黏膩的  
+面膜吸滿了不過包裝袋裡還有很多  
+  
+敷15分鐘就可以  
+其實在拉面膜的時候已感覺有一點點提拉的感覺  
+但拿下來後又沒太看到實際有瘦了面  
+不過，保濕度非常好  
+繼續一兩天面部還是飽飽滿滿  
+面部多了一些彈性，而乾紋都消失了  
+  
+e～ 還不錯吧  
+可是如果要看到真正的緊緻  
+或者要連續使用至少5次（一盒）吧  
+我只有一塊，試不出甚麼來  
+然而卻可以對小不點說：  
+「你無用這塊嗎？走寶了你，呵～」

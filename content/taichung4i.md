@@ -1,0 +1,34 @@
+---
+title: '[臺中怒食遊] Day4：冷凍豆花大王'
+date: 2014-08-25T21:30:00.000+08:00
+draft: false
+aliases: [ "/2014/08/day4_56.html" ]
+tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+晚飯過後再來一碗甜品  
+
+[![](https://3.bp.blogspot.com/-2phogYFrBzE/XEwoZZarTeI/AAAAAAAAGkM/xIjaz4Ljl8YGex5nl3YkSZpgb13UX7wQACLcBGAs/s640/14983192476_a28fcba9f8_z.jpg)](https://3.bp.blogspot.com/-2phogYFrBzE/XEwoZZarTeI/AAAAAAAAGkM/xIjaz4Ljl8YGex5nl3YkSZpgb13UX7wQACLcBGAs/s1600/14983192476_a28fcba9f8_z.jpg)
+
+店名是冷凍豆花大王  
+所以，其實這碗是豆腐花  
+只是在底沒有拍到  
+被稱為入口即化的神奇豆花  
+果真一放入口就融化  
+豆味香濃郁而且非常滑  
+topping是煮得腍身的花生、薏仁  
+同深啡色的蜜大豆  
+當然有冷凍功效的小冰山  
+味道不會太甜  
+吃完會有點意猶未盡  
+（其實已經很飽）  
+  
+除了好吃之外都是好吃  
+加上店鋪明亮乾淨很衛生  
+感覺是好安心食用的樣子呢（笑）  
+  
+誠意推薦～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

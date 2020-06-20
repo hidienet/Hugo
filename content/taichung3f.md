@@ -1,0 +1,26 @@
+---
+title: '[臺中怒食遊] Day3：大霧、豪雨、地震'
+date: 2014-08-22T21:30:00.000+08:00
+draft: false
+aliases: [ "/2014/08/day3_31.html" ]
+tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+\[背景音樂\]撥著大霧默默地在覓我的去路\[/背景音樂\]  
+
+[![](https://3.bp.blogspot.com/-j2iwNY3GOOg/XEwaXUl7vQI/AAAAAAAAGiM/aITFDD9bogsTMUwmTTRIdiO05Rh4yVLZACLcBGAs/s640/14759361750_5949c1027a_z.jpg)](https://3.bp.blogspot.com/-j2iwNY3GOOg/XEwaXUl7vQI/AAAAAAAAGiM/aITFDD9bogsTMUwmTTRIdiO05Rh4yVLZACLcBGAs/s1600/14759361750_5949c1027a_z.jpg)
+
+黃昏是已經很大霧...  
+  
+今晚在民宿附近的大排檔晚餐  
+小炒好好吃！  
+用餐中途就下了超～ 大～ 雨～  
+之後也感覺有微微震盪  
+（好像是四級，所以也不覺得甚麼但震震震好過癮）  
+  
+飯後再待一陣雨收細少少才回民宿  
+下大雨的山頭好悶，早點去睡吧  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

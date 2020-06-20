@@ -1,0 +1,24 @@
+---
+title: '[飯] カレーハウス CoCo壱番屋 - 吉列豬扒奄列咖喱飯'
+date: 2014-03-07T19:00:00.000+08:00
+draft: false
+aliases: [ "/2014/03/coco.html" ]
+tags : [flavor - 行膳積腹]
+---
+
+咖喱飯呀咖喱飯  
+你會不會覺得自己好食得太過分？  
+
+[![](https://3.bp.blogspot.com/-VMfZTuYAHS0/XC3r2rVpSvI/AAAAAAAADvY/91Zws96YreQ34w9uuM6fZBhEqFPSbmcLwCLcBGAs/s640/05.jpg)](https://3.bp.blogspot.com/-VMfZTuYAHS0/XC3r2rVpSvI/AAAAAAAADvY/91Zws96YreQ34w9uuM6fZBhEqFPSbmcLwCLcBGAs/s1600/05.jpg)
+
+濃濃的日式咖喱有香料味道但不辣  
+奄列那隻蛋真的很滑很滑  
+咕嚕落喉嚨加上蛋味非常濃郁  
+吉列豬扒外面炸的鬆脆  
+但一點油膩感油膉味都沒有  
+豬扒本身半肥瘦，肉味肉汁俱全  
+亦能食到肉的纖維  
+不是那只有脂肪的非食肉感覺  
+飯粒粒軟軟熟，伴咖喱汁同吃堪稱一絕  
+  
+實在太太太好味～（流口水）

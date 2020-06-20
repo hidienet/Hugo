@@ -1,0 +1,50 @@
+---
+title: '[coffee] caffé vergnano 1882 - 1882'
+date: 2014-02-19T15:30:00.000+08:00
+draft: false
+aliases: [ "/2014/02/coffee-caffe-vergnano-1882-1882.html" ]
+tags : [flavor - 飲！]
+---
+
+「피곤한 오후엔 역시 달달한 모카라떼가 짱. 문익점 선생님이 왜 모카씨를 숨겨 들어왔는지 알 것 같다. 문익점 선생님 땡큐~♡」by 천송이  
+（譯：疲倦的下午，最棒的就是一杯甜甜的摩卡拿鐵。好像明白了為什麼文益漸先生要把摩卡種子藏著帶回來了。文益漸先生，謝謝囉！）XDDD  
+
+[![](https://1.bp.blogspot.com/-SuTNpxVSP_Y/XC4JUZwceOI/AAAAAAAAD3A/GqUWrCBBnscUIoQRzSMXr7HqbtyImH2wgCLcBGAs/s640/67.jpg)](https://1.bp.blogspot.com/-SuTNpxVSP_Y/XC4JUZwceOI/AAAAAAAAD3A/GqUWrCBBnscUIoQRzSMXr7HqbtyImH2wgCLcBGAs/s1600/67.jpg)
+
+這杯caffé vergnano 1882的招牌東西  
+
+也名為「1882」  
+不試過人家最看重的東西
+
+又哪算去了那家的店？  
+  
+平時不會點mocha之類的朱古力咖啡  
+所以其實叫這杯時也有點戰戰兢兢
+
+但也要覺得一試無妨  
+  
+明明餐牌寫了只是有熱的
+
+當然我也只喝熱的  
+來了的卻是以這樣的玻璃杯盛著
+
+一時也呆了一呆（鄉下人）  
+拿起杯才方知是熱的，但不燙手
+
+嗅了嗅香濃的咖啡味已撲入鼻
+
+面層濃厚厚而棉棉的奶泡
+
+中層的是濃郁的咖啡  
+最底層是濃度極高
+
+但不是杰如醬狀的朱古力  
+  
+三樣加起：就是濃濃濃！  
+各有各香但又互相配合得天衣無縫
+
+雖超濃但不會過甜  
+  
+不過喝完就是很飽
+
+算是一道很美味濃郁的下午茶吧，真滿足～

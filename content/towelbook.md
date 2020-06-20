@@ -1,0 +1,37 @@
+---
+title: '[閱讀瘦身法] 按住瘦：毛巾打個結的瘦身法？'
+date: 2013-12-15T10:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/blog-post_15.html" ]
+tags : [amusement - books]
+---
+
+對於一直想把那對「金華美腿」變回人類的腿而努力  
+又給書名的一次瘦到位吸引，當然又要白老鼠上身  
+
+[![](https://3.bp.blogspot.com/-URZveKVSAgE/XCiHbIqRvGI/AAAAAAAADMw/5JcKrNn4d8kI6GtSUTDEL8m3BaNkPTXNQCLcBGAs/s640/51.jpg)](https://3.bp.blogspot.com/-URZveKVSAgE/XCiHbIqRvGI/AAAAAAAADMw/5JcKrNn4d8kI6GtSUTDEL8m3BaNkPTXNQCLcBGAs/s1600/51.jpg)
+
+「下半身やせ深筋ダイエット」  
+－中辻 正  
+  
+直接說一次瘦的話當然是說服不了我  
+買這個新潮（不懂的就是新啦）的方法  
+是以毛巾（大的地方用浴巾；小的用面巾）打結  
+然後按深層的肌肉  
+  
+喔！深層肌肉，這跟[push](http://www.hidie.net/2013/12/push-push.html)的表層不同  
+這是連骨頭的那些肌肉  
+人體有好多好多肌肉，有排按了吧（悶吶）  
+  
+才不，因為這套不是要每天全套做  
+而且其實真正要花的時間大概只用上10分鐘  
+可以鍛鍊所需要的就可以  
+加上工具只是毛巾而已，有夠方便  
+  
+試過一陣子（大概2個星期）  
+屁屁跟腿部緊實了，腳踝位置也纖細了  
+整個下半身不再那麼臃腫  
+還有bouns，腳板都不會冰冷  
+  
+  
+不錯呢～

@@ -1,0 +1,27 @@
+---
+title: '예지미인 좌훈쑥찜질패드（艾草暖暖M巾）'
+date: 2014-01-30T14:30:00.000+08:00
+draft: false
+aliases: [ "/2014/01/m.html" ]
+tags : [lifestyle - zakka]
+---
+
+雖然經過了「[火燒後欄](http://www.hidie.net/2014/01/day7.html)」的經歷   
+依然不減喜歡以艾草暖暖子宮     
+
+[![](https://4.bp.blogspot.com/--RdozZ8zn0Q/XCiy1bbTKKI/AAAAAAAADc8/FX2PqtCJNN4L2G_S1DiHtGoqksxa_GbyACLcBGAs/s640/08.jpg)](https://4.bp.blogspot.com/--RdozZ8zn0Q/XCiy1bbTKKI/AAAAAAAADc8/FX2PqtCJNN4L2G_S1DiHtGoqksxa_GbyACLcBGAs/s1600/08.jpg)
+
+超～ 長～ 的M巾  
+這M巾散發不太濃的艾草味  
+（成分除艾草外還有益母草魚腥草  
+薄荷當歸川芎白芷等）  
+然後黏上另外小小的包   
+發熱的暖包，溫度大概40左右   
+會很暖但絕對不是非常熱（！）   
+那個包也很耐熱差不多能維持一整天   
+（當然有換M巾，只是把小包再用，不會污糟啦放心）     
+  
+超喜愛，連沒有M痛煩惱的我   
+都覺得敷了這個更舒服   
+如果說缺點的話  
+就應該只是價格不可愛而已

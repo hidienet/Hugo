@@ -1,0 +1,45 @@
+---
+title: '[masque] the face shop 명한미인도 설 미백비책마스크시트'
+date: 2014-01-23T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/01/masque-face-shop.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+명한미인도（名韓美人圖）爲the face shop最貴的line  
+（但所謂的貴也只是比這家平到喊出來的貴少少）  
+因為用料跟製法都最講究，當中설（雪）系列是美白的  
+對於鍾愛美白的我，沒有不試的道理！  
+
+[![](https://2.bp.blogspot.com/--Y18ruV3_CY/XCjJM6pq4QI/AAAAAAAADg8/yioA_YEOgu8FONrJmykMRernWFyQJUytQCLcBGAs/s640/02.jpg)](https://2.bp.blogspot.com/--Y18ruV3_CY/XCjJM6pq4QI/AAAAAAAADg8/yioA_YEOgu8FONrJmykMRernWFyQJUytQCLcBGAs/s1600/02.jpg)
+
+mask的質地是薄身透明sheet mask  
+比平常生物纖維的薄一點  
+但也是三層包裝那中間的拿去敷  
+分上下兩層，超貼面剪裁  
+最難得是完全能覆蓋鼻子位置有突  
+  
+淡淡的花香味不會很濃  
+放完mask上面之後  
+發現包裝袋原來沒剩多少精華  
+把那僅餘的精華拿來塗  
+精華不黏膩超好吸收  
+感覺保濕了但摸起來卻清爽  
+  
+包裝說明敷20-40分鐘（個range有點闊）  
+用後精華一點都沒有留在面上  
+想按摩一下也不能的程度  
+但看起來精華已經全部吸收進面  
+因為面部膚色整個都淡白了  
+雖然沒有明顯的淡斑（全個tone一齊白）  
+而且是潤白，保濕加美白  
+卻不會是油潤，是裡面有彈性  
+外面持續爽滑讓手一直在摸摸彈彈（變態）  
+  
+之後一兩天也能keep得住  
+  
+  
+  
+  
+個人非常喜歡這塊mask～  
+絕對是愛美白的強烈推薦品！

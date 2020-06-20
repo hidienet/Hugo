@@ -1,0 +1,64 @@
+---
+title: '[抱抱葡萄牙] Day5：Go to Barcelos by train'
+date: 2018-01-29T21:07:00.001+08:00
+draft: false
+aliases: [ "/2018/01/day5go-to-barcelos-by-train.html" ]
+tags : [travel - Portugal]
+---
+
+晨七起身，晨八開車。  
+
+[![](https://c1.staticflickr.com/5/4279/35878949905_8f137f933d_z.jpg)](https://c1.staticflickr.com/5/4279/35878949905_8f137f933d_z.jpg)
+
+先由Estação de São Bento去Nine  
+
+[![](https://c1.staticflickr.com/5/4286/35039756074_de12c93711_z.jpg)](https://c1.staticflickr.com/5/4286/35039756074_de12c93711_z.jpg)
+
+响火車食早餐  
+今朝係紅卜卜嘅士多啤梨  
+擒晚行開超市買嘅  
+OK甜啦，都係呢種帶微酸先係真嘅士多啤梨  
+
+[![](https://c1.staticflickr.com/5/4324/35709855572_3f93dc2807_z.jpg)](https://c1.staticflickr.com/5/4324/35709855572_3f93dc2807_z.jpg)
+
+响Nine再過隔離月台轉車去Barcelos  
+(Nine唔係平日讀英文"9"嘅nine，佢係用葡萄牙文讀㗎）  
+
+[![](https://c1.staticflickr.com/5/4667/25094743647_7ae9eca100_z.jpg)](https://c1.staticflickr.com/5/4667/25094743647_7ae9eca100_z.jpg)
+
+個車廂乾乾淨淨光光猛猛都幾靚咁  
+
+[![](https://c1.staticflickr.com/5/4607/39965223561_c5ab9546de_z.jpg)](https://c1.staticflickr.com/5/4607/39965223561_c5ab9546de_z.jpg)
+
+其實佢個殼係「生」成呢個樣嘅...  
+
+[![](https://c1.staticflickr.com/5/4303/35710037942_0c3fa45eac_z.jpg)](https://c1.staticflickr.com/5/4303/35710037942_0c3fa45eac_z.jpg)
+
+到Barcelos喇（落車）  
+
+[![](https://c1.staticflickr.com/5/4704/25094754947_053613565e_z.jpg)](https://c1.staticflickr.com/5/4704/25094754947_053613565e_z.jpg)
+
+Olá Barcelos，咯咯咯咯咯～  
+  
+  
+\-----------------------------------------------  
+  
+  
+延伸閱讀：  
+[Day1：Hello Lisbon](https://www.hidie.net/2017/07/day1hello-lisbon.html)  
+[Day2：Lisboa → Porto](https://www.hidie.net/2017/07/day2lisboa-porto.html)  
+[Day3：Porto ↔ Vila Nova de Gaia](https://www.hidie.net/2017/07/day3porto-vila-nova-de-gaia.html)  
+[Day4：Porto](http://www.hidie.net/2017/07/day4porto.html)  
+[Day5：Porto ↔ Barcelos](http://www.hidie.net/2017/07/day5porto-barcelos.html)  
+[Day6：Porto ↔ Guimarães](http://www.hidie.net/2017/07/day6porto-guimaraes.html)  
+[Day7：Porto (～Santa Clara)](http://www.hidie.net/2017/08/day7porto-santa-clara.html)  
+[Day8：Porto ↔ Pinhão](http://www.hidie.net/2017/08/day8porto-pinhao.html)  
+[Day9：Porto (...Matosinhos)](http://www.hidie.net/2017/08/day9porto-matosinhos.html)  
+[Day10：Porto → Lisboa](http://www.hidie.net/2017/08/day10porto-lisboa.html)  
+[Day11：Lisboa ↔ Sintra](http://www.hidie.net/2017/08/day11lisboa-sintra.html)  
+[Day12：Lisboa (～Belém)](http://www.hidie.net/2017/08/day12lisboa-belem.html)  
+[Day13：Lisboa (...Arroios)](http://www.hidie.net/2017/08/day13lisboa-arroios.html)  
+[Day14：Lisboa](http://www.hidie.net/2017/08/day14lisboa.html)  
+[Day15：Lisboa ↔ Cascais](http://www.hidie.net/2017/08/day15lisboa-cascais.html)  
+[Day16：Lisboa（...Oriente）](http://www.hidie.net/2017/08/day16lisboaoriente.html)  
+[Day17：Lisboa](http://www.hidie.net/2017/08/day17lisboa.html)

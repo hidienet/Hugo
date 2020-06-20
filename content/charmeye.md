@@ -1,0 +1,48 @@
+---
+title: '[tools] charm - 無限亮眼微整筆'
+date: 2014-07-05T07:30:00.000+08:00
+draft: false
+aliases: [ "/2014/07/tools-charm.html" ]
+tags : [glamorous - 保養おたく]
+---
+
+用「眼碌碌」碌到眼仔碌碌  
+
+[![](https://3.bp.blogspot.com/-D586tf_jX2A/XEMyhRaY01I/AAAAAAAAF1c/MsuVK_lK_ts3SMdqVKFNd8R6ZWA-ba4YACLcBGAs/s640/14291042748_a917789192_z.jpg)](https://3.bp.blogspot.com/-D586tf_jX2A/XEMyhRaY01I/AAAAAAAAF1c/MsuVK_lK_ts3SMdqVKFNd8R6ZWA-ba4YACLcBGAs/s1600/14291042748_a917789192_z.jpg)
+
+一點都不襯我的粉紅色（抓頭）  
+電流加震動，內附精華裝上後可自己流出  
+不過我一來怕浪費  
+二來經常配搭不同eye product使用  
+所以沒有把精華裝進去  
+只是要用的時候才直接塗上  
+震動分low high，都是每秒150次  
+是強弱震度的分別而已  
+（滾滾珠的按摩按摩超舒）  
+筆身橫腹兩邊都有「銀條」  
+手指要握住才能導電  
+要不就失去了導入精華的效果  
+外震震按摩內導電吸精華  
+怎說也比只以無名指塗抹更好吧  
+  
+用了一個月，整體來說都OK滿意  
+雖然黑眼圈就沒看到有很明顯的改善  
+不過under eye的眼紋確實地減淡  
+眼尾的紋已短了不少（只是笑的時後才看得到）  
+而對我最最最有功用是雙眼皮  
+原本三四眼皮，不太狀態差的時候  
+雙眼皮就只剩下這一條線  
+上眼皮後半的肉有收緊  
+眼尾不會老化般下垂  
+（可愛下垂眼同老化下垂是有分別的，OK？）  
+  
+一定keep住用，然後把黑眼圈震都九霄外哈哈哈  
+
+[![](https://1.bp.blogspot.com/-QywbwrtrsAc/XEMymhEteNI/AAAAAAAAF1g/EgpsKYV2aJEsKbI26-f4xYdA4Hts-zYNACLcBGAs/s640/14476533284_549ae056e9_z.jpg)](https://1.bp.blogspot.com/-QywbwrtrsAc/XEMymhEteNI/AAAAAAAAF1g/EgpsKYV2aJEsKbI26-f4xYdA4Hts-zYNACLcBGAs/s1600/14476533284_549ae056e9_z.jpg)
+
+而這枝dr. bauer eye wrinkle ironer  
+其實只是感覺較弱雞  
+（超弱電流 + 不太有感覺的微震）  
+加上效果真的真的太慢  
+慢到用了兩年都沒有令我有驚喜的效果  
+所以已被打入冷宮轉贈小不點了

@@ -1,0 +1,86 @@
+---
+title: '[抱抱葡萄牙] Day10：Príncipe do Calhariz'
+date: 2018-05-16T09:36:00.000+08:00
+draft: false
+aliases: [ "/2018/05/day10principe-do-calhariz.html" ]
+tags : [travel - Portugal]
+---
+
+用五臟廟去尋找旅行的意義...  
+
+![](https://c1.staticflickr.com/5/4296/35932962042_a8359d7c80_z.jpg)
+
+係呀！又係時候食癲喇～  
+  
+為避免空肚食晚餐  
+先隊返杯啤酒  
+睇到啦好清澈係咪  
+心靈同喉嚨都清淨晒可以開餐  
+
+![](/images/portugal10g.jpg)
+
+清完之後食得濃味嘢  
+個蝦蝦湯，望個色都知道唔惹少  
+係強烈鮮甜嘅蝦膏味呀該煨  
+香到爆囉咪就係  
+
+![](https://c1.staticflickr.com/1/974/27258778657_9ff4dc7c56_z.jpg)
+
+去法國就食高檔嘅花瓜（鴨鵝膶）  
+呢度就有親民好多炸豬潤  
+薄薄一片咁炸，老老豆豆真係未試過  
+不嬲都係食濕膶  
+估佢唔到原來乾炸係咁好味  
+濃得嚟冇豬臊味同血腥味  
+唯一唔滿意係連埋薯條就份量太多  
+
+![](https://c1.staticflickr.com/1/909/27258777487_1df65c1984_z.jpg)
+
+諗住試吓兜飯仔  
+點知黐線㗎個焗海鮮飯駛唔L駛咁大兜呀？  
+衰得佢仲要啲海鮮夠鮮  
+汁又教得香啲飯焗得粒粒分明  
+
+![](https://c1.staticflickr.com/1/829/27258776537_6b9c98b70c_z.jpg)
+
+以為已經收手？未！  
+因為唔知呢度啲嘢係咁大碟  
+明明睇落其他人嗰啲都係正常size  
+（其實係大部份人飲酒多）  
+再個個都叫雞喎  
+差唔多人人都嗌唔係唔嗌呀嘛  
+仲諗住肚仔餓可以輕易拆一！整！隻！  
+癲㗎！！！  
+點解就咁嗌隻雞會送埋一大堆薯條同炒飯㗎？  
+係好食！好好食嘅！  
+燒雞皮脆肉嫩唔會肥漏漏  
+雞有雞味就梗嘅，新鮮嘢嘛無計啦...  
+個炒飯係茄味，酸酸甜甜甜甜酸酸咁幾開胃  
+薯條又香又脆薯味重  
+  
+呢間啲嘢大件夾抵食仲係好食嗰隻  
+唔怪得成間餐廳都係當地人啦！  
+食飽飽返民宿早啲訓  
+聽朝遠征again，去皇宮呀～  
+  
+\-----------------------------------------------  
+  
+  
+延伸閱讀：  
+[Day1：Hello Lisbon](https://www.hidie.net/2017/07/day1hello-lisbon.html)  
+[Day2：Lisboa → Porto](https://www.hidie.net/2017/07/day2lisboa-porto.html)  
+[Day3：Porto ↔ Vila Nova de Gaia](https://www.hidie.net/2017/07/day3porto-vila-nova-de-gaia.html)  
+[Day4：Porto](http://www.hidie.net/2017/07/day4porto.html)  
+[Day5：Porto ↔ Barcelos](http://www.hidie.net/2017/07/day5porto-barcelos.html)  
+[Day6：Porto ↔ Guimarães](http://www.hidie.net/2017/07/day6porto-guimaraes.html)  
+[Day7：Porto (～Santa Clara)](http://www.hidie.net/2017/08/day7porto-santa-clara.html)  
+[Day8：Porto ↔ Pinhão](http://www.hidie.net/2017/08/day8porto-pinhao.html)  
+[Day9：Porto (...Matosinhos)](http://www.hidie.net/2017/08/day9porto-matosinhos.html)  
+[Day10：Porto → Lisboa](http://www.hidie.net/2017/08/day10porto-lisboa.html)  
+[Day11：Lisboa ↔ Sintra](http://www.hidie.net/2017/08/day11lisboa-sintra.html)  
+[Day12：Lisboa (～Belém)](http://www.hidie.net/2017/08/day12lisboa-belem.html)  
+[Day13：Lisboa (...Arroios)](http://www.hidie.net/2017/08/day13lisboa-arroios.html)  
+[Day14：Lisboa](http://www.hidie.net/2017/08/day14lisboa.html)  
+[Day15：Lisboa ↔ Cascais](http://www.hidie.net/2017/08/day15lisboa-cascais.html)  
+[Day16：Lisboa（...Oriente）](http://www.hidie.net/2017/08/day16lisboaoriente.html)  
+[Day17：Lisboa](http://www.hidie.net/2017/08/day17lisboa.html)

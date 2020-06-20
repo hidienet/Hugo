@@ -1,0 +1,34 @@
+---
+title: '花より男子 神尾葉子 1-37/ 1-20（完）'
+date: 2014-02-06T11:30:00.000+08:00
+draft: false
+aliases: [ "/2014/02/1-37-1-20.html" ]
+tags : [amusement - manga]
+---
+
+如果話只係港女鍾情高富帥嘅話就有啲不公平  
+因為從來呢種男仔都係憧憬對象  
+
+[![](https://apgenw.ch.files.1drv.com/y4mMoUL6oWwEMTP0rrqjQ4bnsy5TFKuHt__JhGgdC2tdq3GK21bmdzktzJFRgqhk11iXitHb6i1jzCsYdYbJF1Z0JCYSAEqPvbboshPaQia_PeqkVJaYOY7hhgrhD8BzyLPdxlyXO8XJqBYeGWfWZO_Cna7PMZ1IQYSPeHhZvNGWFS5QlcemxH-PUiPPZqTXUV4vK0XgRK8a-vWySAx7mK_Xg?width=660&height=371&cropmode=none)](https://apgenw.ch.files.1drv.com/y4mMoUL6oWwEMTP0rrqjQ4bnsy5TFKuHt__JhGgdC2tdq3GK21bmdzktzJFRgqhk11iXitHb6i1jzCsYdYbJF1Z0JCYSAEqPvbboshPaQia_PeqkVJaYOY7hhgrhD8BzyLPdxlyXO8XJqBYeGWfWZO_Cna7PMZ1IQYSPeHhZvNGWFS5QlcemxH-PUiPPZqTXUV4vK0XgRK8a-vWySAx7mK_Xg?width=660&height=371&cropmode=none)
+
+呢套漫畫，日韓台都有拍過劇  
+屈機男根本就係深入民心  
+有錢有樣仲要情深  
+愛上窮家女喎... 擺明係飛上枝頭變鳳凰  
+咁又點？關你事咩？  
+少女漫畫就係咁㗎啦  
+橋段非常老土but根本唔重要  
+重點係現實99.9999999999999999%唔會响現實出現嘛  
+（我就唔相信世界上真係會有人可以使出「銀河爆烈拳」好吧）  
+得唔到嘅東西幻想吓都唔錯  
+  
+不過啦，跟一般長篇漫畫有同樣缺點：拖～  
+後半段又長又兜圈  
+加上擺明結局就係草草收尾  
+  
+算啦，套漫畫都咁多年  
+一早已陪我過咗學生時代  
+當時仲可以發夢就已經夠啦～  
+  
+ps，一套甚至一集關於佢嘅電視劇都無睇過  
+仲係一直沉迷漫畫呢...

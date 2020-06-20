@@ -1,0 +1,37 @@
+---
+title: '[閱讀瘦身法] 郁住瘦：只需要1分鐘的骨盆操'
+date: 2013-12-14T10:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/1.html" ]
+tags : [amusement - books]
+---
+
+這種所謂運動的瘦身法，其實真的比懶更懶  
+
+[![](https://4.bp.blogspot.com/-ybbxyTVa2pA/XCdg03YXDpI/AAAAAAAACog/tL-QaEWBTFgAIw-iNy2Wt1hR-txKIUiwACLcBGAs/s640/16.jpg)](https://4.bp.blogspot.com/-ybbxyTVa2pA/XCdg03YXDpI/AAAAAAAACog/tL-QaEWBTFgAIw-iNy2Wt1hR-txKIUiwACLcBGAs/s1600/16.jpg)
+
+「1分骨盤ダイエット」  
+－大庭史榔  
+  
+1日做4次，每次只需要1分鐘  
+動作很簡單又容易（每次都是3個姿勢重複3次）  
+而且所需要的空間不多  
+在洗手間都可以，也不用準備工具  
+  
+成效呢？  
+  
+屁屁兩團肉看起來收窄了點  
+數字上，半！吋！ :o  
+（\* 一個月，當然我不是只做這運動）  
+然後腿也比之前筆直  
+  
+與其說這是減肥  
+倒不如說這是修身（屁屁＋腿）的好辦法  
+因為骨盆跟連接大腿骨一併調整好位置  
+下半身以致上半身都不再歪斜  
+令整個體態都變得更好  
+加上可以改善因為姿勢不好令身體出現的痛症  
+（當然如果已是很嚴重的話要先請教醫生）  
+  
+簡單得來又有效果  
+絕對推薦給不滿意自己身型（尤其下半身）的人喔～

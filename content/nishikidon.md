@@ -1,0 +1,32 @@
+---
+title: '[飯] 錦丼 鮪魚腩海膽丼'
+date: 2014-12-14T19:30:00.000+08:00
+draft: false
+aliases: [ "/2014/12/blog-post_14.html" ]
+tags : [flavor - 行膳積腹]
+---
+
+鴻星旗下的鮪魚丼食府  
+裝修是築地風格  
+也標榜刺身食材是從築地運送  
+
+[![](https://farm8.staticflickr.com/7518/15772430329_b38008a2e2_z.jpg)](https://farm8.staticflickr.com/7518/15772430329_b38008a2e2_z.jpg)
+
+要吃，當然會吃極上豐腴的**鮪魚腩海膽丼**  
+我明白藍鰭吞拿魚已經越吃越少  
+不過這味道真的令人欲罷不能  
+加上新鮮帶光澤的海膽  
+oh no！這濃郁的組合簡直是逆天的美味  
+好吃到要哭出來了～～～  
+
+[![](https://farm8.staticflickr.com/7490/15772421159_9310db6265_z.jpg)](https://farm8.staticflickr.com/7490/15772421159_9310db6265_z.jpg)
+
+友人F的**雜錦丼** （btw，多謝請客）  
+新鮮就好了，看出能一次過滿足多個願望  
+
+[![](https://farm8.staticflickr.com/7546/15338809933_482f92ea76_z.jpg)](https://farm8.staticflickr.com/7546/15338809933_482f92ea76_z.jpg)
+
+既然是賣鮪魚的  
+就試試這道**醬酒漬黑鮪**  
+互不搶味不錯，但相比魚肉  
+今天還是喜歡爆濃的魚腩（呵呵呵）

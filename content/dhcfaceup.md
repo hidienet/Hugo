@@ -1,0 +1,30 @@
+---
+title: '[masque] DHC face-up pack'
+date: 2013-10-12T22:00:00.000+08:00
+draft: false
+aliases: [ "/2013/10/masque-dhc-face-up-pack.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+我想我是幸運的一個  
+
+[![](https://3.bp.blogspot.com/-O6K1F8AWoSE/XCQ75x5HQPI/AAAAAAAAB5w/YVrpRl4RSzccotYv7E76fFe1drAIMcbCwCLcBGAs/s640/7.jpg)](https://3.bp.blogspot.com/-O6K1F8AWoSE/XCQ75x5HQPI/AAAAAAAAB5w/YVrpRl4RSzccotYv7E76fFe1drAIMcbCwCLcBGAs/s1600/7.jpg)
+
+有很多人都說這是件雷品  
+但我用是work的，去了少少水腫  
+  
+透明膠水狀，不易推所以我沒有按摩  
+直接apply上面，味道都比較難聞（腥）  
+但只需敷3﹣5分鐘忍一下便可以  
+覺得有繃緊的感覺，過水後依然持續  
+  
+這不是皮膚乾了的繃緊  
+是緊緻了，因為看到下巴到耳下那條骨回來了！  
+面的下半部份也比未敷前沒那麼浮腫  
+  
+雖然不是非常明顯的瘦了一圈  
+（我也沒有一圈能瘦）  
+不過消了一些腫總比一點兒用處也沒有來得好  
+  
+  
+所以，產品有沒有成效是很個人的．．．

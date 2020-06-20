@@ -1,0 +1,38 @@
+---
+title: '[明明遊慶州 偏向釜山行] Day1：순대 x 내장（血腸 x 內臟）'
+date: 2014-01-11T14:30:00.001+08:00
+draft: false
+aliases: [ "/2014/01/day1-x-x.html" ]
+tags : [flavor - 小食部, travel - 남한・부산、경주 (釜山、慶州)]
+---
+
+肚子開始叫，是時候吃東西  
+
+[![](https://3.bp.blogspot.com/-gpIsaJhfI-Q/XCiqrYYOhXI/AAAAAAAADas/ghR2X2oVPWwXjWVb5OJlSRb03HSDlTXhQCLcBGAs/s640/13.jpg)](https://3.bp.blogspot.com/-gpIsaJhfI-Q/XCiqrYYOhXI/AAAAAAAADas/ghR2X2oVPWwXjWVb5OJlSRb03HSDlTXhQCLcBGAs/s1600/13.jpg)
+
+這個攤子可以坐下來  
+點了一份雜錦的  
+然後以「食指語」點那些多一點  
+用「揮手語」說明那些要少D  
+（韓語只懂打招呼而已）  
+裡面有肺有肝有腸的煮內臟  
+還有血腸跟這攤的阿豬媽特製的kimchi腸  
+  
+暖呼呼的食物啊～  
+  
+內臟（내장）沒有一絲臊味  
+腸外爽脆內夠韌  
+肝夠粉 肺夠嫩  
+血腸（순대）更是超煙韌  
+味道不是腥腥的像吸血一樣  
+是煙韌的粉條加液體豬紅  
+塞進也是很韌的腸衣內  
+淡淡的味道點辣醬就不錯  
+而kimchi腸乃阿豬媽得意之作  
+其實都蠻辣的，不過咬下去韌韌的很過癮  
+  
+好，再起行找吃的  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)

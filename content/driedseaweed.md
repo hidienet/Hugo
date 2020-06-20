@@ -1,0 +1,34 @@
+---
+title: '[生活原味] 乾燥海帶（飯料）'
+date: 2014-07-03T13:30:00.000+08:00
+draft: false
+aliases: [ "/2014/07/blog-post_3.html" ]
+tags : [flavor - 揀飲宅食]
+---
+
+一般在office午餐也是在座位裡煮飯  
+伴手的乾燥料就成為可靠的「伙伴」  
+
+[![](https://2.bp.blogspot.com/-dKUwiJ_zWHo/XEMw4cBtrjI/AAAAAAAAF08/0zKmiDk3L5U-1bMSv3uDvL2jWKLfN42XgCLcBGAs/s640/14241785407_b3c334cc5f_z.jpg)](https://2.bp.blogspot.com/-dKUwiJ_zWHo/XEMw4cBtrjI/AAAAAAAAF08/0zKmiDk3L5U-1bMSv3uDvL2jWKLfN42XgCLcBGAs/s1600/14241785407_b3c334cc5f_z.jpg)
+
+韓國超市的貨色  
+平常都不會浸開就直接同飯一起煲  
+自己會發大還原成厚身點的海帶  
+不腥臭的，應該是採摘後直接曬乾切小片  
+才能做到這樣原汁原味的效果  
+  
+適當地吸收海帶  
+除了預防甲狀腺問題外  
+還含對皮膚緊緻的黏多醣  
+加上有去水腫、降脂的作用  
+但也不可以太大量吃  
+因為會寒涼喔（前面都寫了適當地了看到嗎）  
+  
+別以為細細包好快會被KO  
+每次吃地分量不多  
+其實我一包都能吃上四五個月  
+（一星期三到四次）  
+最喜歡煮鮭魚飯的時候放入  
+整煲飯味道又好  
+亦令魚的油份減淡  
+吃起來不致太油膩膩呢～

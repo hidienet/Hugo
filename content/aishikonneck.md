@@ -1,0 +1,62 @@
+---
+title: '[masque] 藍と紫根の首元パック'
+date: 2014-07-13T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/07/masque_13.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+會中魔女たちの22時的毒肯肯定不止我一個吧  
+
+那個因為弄傷後用紫雲丹（我也有[韓律](http://www.hidie.net/2014/07/blog-post_12.html)的）
+
+從而發現紫根這好物（紙巾？）
+
+再去漢藥店買紫根自制toner
+
+所以沒有皺紋blablablablabla
+
+一句：有紫根無皺紋！
+
+我就有一條經過歲月努力下
+
+越來越淺但褪不掉的頸紋
+
+平時塗了bb cream
+
+不是靠很近的距離其實不太覺眼
+
+但有就是有，也難保有天突然像十多年前般
+
+忽然看到自己有條紋哎呀呀
+
+不過要自己去買紫根再DIY太麻煩
+
+有些錢是要付出的（攤手）
+
+[![](https://3.bp.blogspot.com/-VtYeEynPups/XEM7fpdvGoI/AAAAAAAAF7w/Tuyk_ADVt4kP9fAnUiNRzuNmt0ohfFgWwCLcBGAs/s640/14585444485_651fb4c084_z.jpg)](https://3.bp.blogspot.com/-VtYeEynPups/XEM7fpdvGoI/AAAAAAAAF7w/Tuyk_ADVt4kP9fAnUiNRzuNmt0ohfFgWwCLcBGAs/s1600/14585444485_651fb4c084_z.jpg)
+
+乖乖的買這期爆紅的頸mask  
+稍稍帶黏的質地  
+就直接搽在有紋的位置  
+稍稍厚然後邊緣位薄一點就OK  
+  
+敷10-15分鐘，mask會自己乾掉成膜  
+撕下就完成，只是有點奇怪  
+不是說紋的其中成因是拉扯嗎  
+為何要用撕掉這樣的方法呢哈哈  
+但勿論這樣的方法好不好  
+這mask的效果不錯  
+滋潤度足，紋也看起來淺淡了一點  
+頸紋跟平時的表情紋有點不同  
+因為是支撐整顆頭的壓力  
+加上也不像面部般有那麼多毛孔能吸收東西  
+故這個要在持續再用去更見功效  
+  
+當然會用在其他乾紋位置  
+這個效果就更加明顯  
+就像給燙斗整平了一樣  
+乾紋位置pump漲  
+跟周圍的肌膚回復水平相同  
+超～ 興～ 奮～  
+推薦推薦呢！

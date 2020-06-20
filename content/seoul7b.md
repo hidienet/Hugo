@@ -1,0 +1,48 @@
+---
+title: '[seoul time] Day7：明洞餃子 명동교자 - 饅頭만두、刀切麵칼국수、豆漿麵콩국수'
+date: 2014-11-03T20:30:00.000+08:00
+draft: false
+aliases: [ "/2014/11/seoul-time-day7.html" ]
+tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+---
+
+除了炸醬麵外  
+這些餃子同刀切麵都是中華料理吧  
+
+[![](https://2.bp.blogspot.com/-cGwmO4lXweo/XE2skf68cXI/AAAAAAAAHo0/L3zP8jvv6MkekUcyYKeOrWwVV0HHbdKAwCLcBGAs/s640/15495456028_5f57b6995b_z.jpg)](https://2.bp.blogspot.com/-cGwmO4lXweo/XE2skf68cXI/AAAAAAAAHo0/L3zP8jvv6MkekUcyYKeOrWwVV0HHbdKAwCLcBGAs/s1600/15495456028_5f57b6995b_z.jpg)
+
+**饅頭 만두**  
+即是餃子，樣子像小籠包  
+用粉皮包住一堆餡料  
+爆多肉少菜款色  
+肉軟滑軟滑夠juicy  
+飽滿的外形吃吃吃很飽肚  
+
+[![](https://2.bp.blogspot.com/-StNQOS3x9cM/XE2sqvYPDzI/AAAAAAAAHo4/hTDDhMdC2Jo8SojqbZeXixog2DAXPGB3QCLcBGAs/s640/15495456938_cea7319f51_z.jpg)](https://2.bp.blogspot.com/-StNQOS3x9cM/XE2sqvYPDzI/AAAAAAAAHo4/hTDDhMdC2Jo8SojqbZeXixog2DAXPGB3QCLcBGAs/s1600/15495456938_cea7319f51_z.jpg)
+
+**刀切麵 칼국수**  
+有水餃同肉碎  
+濃厚黏稠的雞湯味道不太鹹  
+水餃同上面的餃子無異  
+只是煮法不同而已  
+麵條厚身彈牙，是手工作品吧  
+
+[![](https://2.bp.blogspot.com/-tK8SVaMJwaA/XE2svLofEWI/AAAAAAAAHpA/_6y9J70AooQC_SEV9Ixl-dqaZAQDxTtEQCLcBGAs/s640/15495645917_1d0d611d39_z.jpg)](https://2.bp.blogspot.com/-tK8SVaMJwaA/XE2svLofEWI/AAAAAAAAHpA/_6y9J70AooQC_SEV9Ixl-dqaZAQDxTtEQCLcBGAs/s1600/15495645917_1d0d611d39_z.jpg)
+
+**豆漿麵 콩국수**  
+超超超濃郁的芝麻豆漿糊為湯底  
+整碗都是濃濃的豆味  
+以單純的青瓜絲為配料，卻很足夠  
+
+[![](https://4.bp.blogspot.com/-TjMN7a9Rj3g/XE2s0oDPknI/AAAAAAAAHpE/LXL6Igvuo84wUh8QWxLyWc1FykOAAEp_wCLcBGAs/s640/15682434962_4f6741ea3e_z.jpg)](https://4.bp.blogspot.com/-TjMN7a9Rj3g/XE2s0oDPknI/AAAAAAAAHpE/LXL6Igvuo84wUh8QWxLyWc1FykOAAEp_wCLcBGAs/s1600/15682434962_4f6741ea3e_z.jpg)
+
+綠色的麵條來自小藻球粉  
+韌度廿足（十足是不夠形容）  
+看似甚麼都沒有的東西  
+卻令人飽到捧腹  
+  
+好滿足耶～（嗝）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)

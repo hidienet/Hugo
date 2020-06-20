@@ -1,0 +1,42 @@
+---
+title: '[生活原味] 普洱茶養生面'
+date: 2013-12-28T08:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/blog-post_28.html" ]
+tags : [flavor - 揀飲宅食]
+---
+
+在香港雖然那些過橋米線不會非常好吃  
+但都可以找到去吃  
+不過這款普洱麵應該怎找也找不到吧  
+（要買東西回家需要藉口的嗎？）  
+
+[![](https://2.bp.blogspot.com/-TWS0ievXdUc/XCiGhnoAglI/AAAAAAAADMQ/f7KSnvuHGTIjqn6mNg1wRRD8AJNSkGBagCLcBGAs/s640/46.jpg)](https://2.bp.blogspot.com/-TWS0ievXdUc/XCiGhnoAglI/AAAAAAAADMQ/f7KSnvuHGTIjqn6mNg1wRRD8AJNSkGBagCLcBGAs/s1600/46.jpg)
+
+左邊紅色的是熟茶麵  
+右邊綠色的是生茶麵  
+兩款都是以沸水煮5分鐘就可以  
+超～ 方～ 便～  
+  
+麵條都是以小麥粉造成  
+所以都是外面爽滑裡面彈牙  
+  
+先不說甚麼營養價值  
+一點興趣都沒有（普洱能減肥！）  
+只會對食下的時候有感覺 XD  
+  
+生茶麵的顏色像綠茶般  
+氣味跟咀嚼是都帶著輕輕的青茶香味  
+然後食後會有點回甘  
+  
+熟茶麵的顏色呈明亮的酒黃色  
+味道較甘醇濃郁  
+而且比生茶麵的麵條更順滑  
+  
+  
+對於普洱茶，有些人喜歡生茶都有人喜歡熟茶  
+我不懂品茶所以兩款茶其實也覺得各有個好  
+麵條都是，兩種吃下來都有分別  
+都算不是錯吃，不論養不養生  
+煮起來方便又不難吃（加上價格便宜）  
+其實真的很好啦～

@@ -1,0 +1,34 @@
+---
+title: '[nail] chanel - lilis (647)'
+date: 2014-01-25T10:00:00.000+08:00
+draft: false
+aliases: [ "/2014/01/nail-chanel-lilis-647.html" ]
+tags : [glamorous - 蛋臉以外]
+---
+
+去釜山之前做過資料搜集  
+說南浦洞的nail care & paint好平  
+所以特地花一點時間去一趟  
+  
+但原來一點都不算平  
+跟香港的都差不多  
+只是比日本的同樣服務便宜  
+不過真的很多人  
+差不多每家（尤其大型點的店）都滿人  
+  
+好啦～ 還是修修啦  
+  
+選了平時一定不會買的顏色  
+加上就算是chanel  
+這家店都不會像香港那樣  
+因為甚麼甚麼牌子要另加收費這樣  
+
+[![](https://2.bp.blogspot.com/-tYmTvoocK9c/XCi5yTIUzeI/AAAAAAAADf8/DQHNSJ0AVOc2SFs2Da-EkVc-5ItGrzyFQCLcBGAs/s640/35.jpg)](https://2.bp.blogspot.com/-tYmTvoocK9c/XCi5yTIUzeI/AAAAAAAADf8/DQHNSJ0AVOc2SFs2Da-EkVc-5ItGrzyFQCLcBGAs/s1600/35.jpg)
+
+這顏色令手看起來白了（嘻嘻）  
+  
+另，她們服務超好  
+我弄花了兩三次她們都好好的重作  
+不像香港的就只會補救  
+就算補得勉勉強強都不理  
+服務態度，香港的還是有待改善

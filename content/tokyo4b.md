@@ -1,0 +1,25 @@
+---
+title: '[東京箱根食買浸] Day4：おだむすび おにぎり'
+date: 2013-11-02T08:40:00.000+08:00
+draft: false
+aliases: [ "/2013/11/day4_2.html" ]
+tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+---
+
+還有半小時才開火車，早上的乳製品已於一小時前消滅了  
+吃拉麵，我吃得慢會吃不完，吃輕食的也不錯  
+
+[![](https://4.bp.blogspot.com/--wAlevAfLvA/XCTRP0IVvMI/AAAAAAAACPg/JwsLXxro8Nwr9HMGCIGbm78yTTrjEw9sQCLcBGAs/s640/2.jpg)](https://4.bp.blogspot.com/--wAlevAfLvA/XCTRP0IVvMI/AAAAAAAACPg/JwsLXxro8Nwr9HMGCIGbm78yTTrjEw9sQCLcBGAs/s1600/2.jpg)
+
+在店內吃，跟玉子漬物與味噌汁的組合  
+以葉包著的飯糰不像平日吃的紫菜包著的脆  
+也沒有濕掉了的紫菜那樣韌  
+是煮過的葉，韌中有爽的感覺  
+小豆飯糰微甜的也不錯吃  
+  
+這不是甚麼令人驚艷的東西  
+但也不至於是太頹食的早餐選擇～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)

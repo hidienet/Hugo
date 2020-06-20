@@ -1,0 +1,30 @@
+---
+title: '[手工糖] きなこあめ（黃豆粉糖）'
+date: 2013-09-28T16:26:00.000+08:00
+draft: false
+aliases: [ "/2013/09/blog-post.html" ]
+tags : [made by H - 開伙]
+---
+
+怕肥又懶但想吃糖？就做這個！  
+
+[![](https://3.bp.blogspot.com/-xTRmLAetMHw/XCOJqILcI0I/AAAAAAAABzY/OYCrc7NjBZQgkkAfhFs9X-DhgUsOVb6kwCLcBGAs/s640/p5.jpg)](https://3.bp.blogspot.com/-xTRmLAetMHw/XCOJqILcI0I/AAAAAAAABzY/OYCrc7NjBZQgkkAfhFs9X-DhgUsOVb6kwCLcBGAs/s1600/p5.jpg)
+
+簡單：不論材料與做法， 手殘者也不會失敗  
+省時：幾分鐘內完成  
+健康：材料天然，不致胖，怎吃也毫無罪惡感  
+最重要是好味！  
+  
+日式懷舊風味，而且零！技！巧！  
+只是將蜜糖加熱（我懶得開爐故只叮廿秒）  
+加入黃豆粉拌勻搓成型或粒便可  
+很硬身的話亦可搓成條狀  
+  
+易到爆炸！  
+  
+想成品軟身便減少點黃豆粉  
+要吃硬身點就增加黃豆粉的份量  
+但吃下會有點粉粉的感覺  
+  
+因為太容易做，所以每次都不會做太多保證新鮮  
+（除非是帶返公司與同事開心share啦～）

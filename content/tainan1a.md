@@ -1,0 +1,38 @@
+---
+title: '[臺南喪食遊] Day1：陳家蚵捲'
+date: 2013-10-18T20:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day1.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
+---
+
+由高雄坐火車到台南，再搭巴士到安平  
+怎樣找也找不到落腳點  
+原本預訂了的民宿就是怎行怎走怎問也找不到  
+肚子餓到扁，不吃東西就沒頭腦沒氣力脾氣暴燥  
+去台南就是為了吃！  
+
+[![](https://3.bp.blogspot.com/-XTUZ8y3pU-Q/XCRCpeDyS0I/AAAAAAAAB8Y/gnNTK0x2LgMzExsCIHIgmtfOFjW27L-MwCLcBGAs/s640/27.jpg)](https://3.bp.blogspot.com/-XTUZ8y3pU-Q/XCRCpeDyS0I/AAAAAAAAB8Y/gnNTK0x2LgMzExsCIHIgmtfOFjW27L-MwCLcBGAs/s1600/27.jpg)
+
+蝦跟蚵的選擇，選了蚵  
+果然沒有錯．．．  
+  
+金黃酥脆的豬油網包著新蚵、豬肉、魚漿  
+加上一些提味香菜等等，再加粉漿炸成  
+  
+新鮮熱辣，外面脆而且沒有萬年油味道  
+裡面鮮、甜、紮實飽滿  
+對我來說味道已夠濃，故不再加醬油膏辣椒醬  
+蚵仔鮮美甜嫩，一吃就知是即日鮮的  
+（雖然已經很晚了～）  
+再者，我 真 的 很 肚 餓  
+故能吃而不錯吃的已經很滿足！  
+  
+  
+  
+另，其實之後也有吃周氏蝦捲  
+但覺得不好吃，不post了  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

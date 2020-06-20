@@ -1,0 +1,31 @@
+---
+title: '[臺南喪食遊] Day3：阿松割包 豬舌包'
+date: 2013-10-20T08:50:00.000+08:00
+draft: false
+aliases: [ "/2013/10/day3_20.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
+---
+
+繼續吃早餐．．．就碗粿對面，坐下來還未用腦思考  
+就點了個豬舌包  
+
+[![](https://4.bp.blogspot.com/-Bhnx-GEizmM/XCRK1jn1dxI/AAAAAAAAB_k/awgtJ6upBMs9uPnBtHCBZE8evHiYE-qswCLcBGAs/s640/54.jpg)](https://4.bp.blogspot.com/-Bhnx-GEizmM/XCRK1jn1dxI/AAAAAAAAB_k/awgtJ6upBMs9uPnBtHCBZE8evHiYE-qswCLcBGAs/s1600/54.jpg)
+
+包子就像被剖開的饅頭，裡面豪氣的塞了塊豬舌  
+淋花生醬汁後，再放了蘿蔔跟鋪了酸菜  
+  
+「在台南就是不能優雅地吃！」  
+  
+包子氣孔很足，吃起來鬆軟且有彈性  
+而且吸變了醬汁的味道，不會乾也不覺粉粉的  
+豬舌沒有一絲腥味，吃舌頭最愛的Q彈感覺  
+這個包卻能讓我大口大口感受著（幸せ〜）  
+蘿蔔和酸菜很清爽帶著微酸的味道  
+  
+  
+吃完整個包包也沒有油膩感，手也沒油膩膩的  
+但口有點乾，要去喝碗牛肉湯 :p  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)

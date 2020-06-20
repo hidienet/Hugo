@@ -1,0 +1,33 @@
+---
+title: 'hirudoid cream（喜療妥）'
+date: 2014-02-19T10:30:00.000+08:00
+draft: false
+aliases: [ "/2014/02/hirudoid-cream.html" ]
+tags : [lifestyle - 急救箱]
+---
+
+從前有個女孩（還能稱為女孩嗎？）  
+她皮膚偏白（也不算太白）  
+為人「論盡」（不是maggie Q那種「論盡」）  
+加上身體機能活躍度底  
+令受傷後不容易復原  
+那個女的由細到大都會用這法寶祛瘀傷  
+  
+
+[![](https://3.bp.blogspot.com/-5CxOofh2i6Q/XC4JfzU-XwI/AAAAAAAAD3E/gmotfBYjqKEzSqAldL94KEu6GwU0MO8dwCLcBGAs/s640/68.jpg)](https://3.bp.blogspot.com/-5CxOofh2i6Q/XC4JfzU-XwI/AAAAAAAAD3E/gmotfBYjqKEzSqAldL94KEu6GwU0MO8dwCLcBGAs/s1600/68.jpg)
+
+這支德國寶物  
+使她的瘀傷快2-3倍復原  
+從本身不理的話會變成那瘀傷不浮面  
+而不浮面會令那瘀傷一直都不退散  
+用後一天瘀傷會「發」出來  
+再按多一個星期大概就散走不留痕跡  
+要麼真的不用任何東西就留瘀傷  
+瘀瘀黑黑的是可以一兩個月都屹立不倒  
+（倒是有一直放著不理一整年都不散去的經驗）  
+  
+不過那女的最想去掉的瘀黑石黑眼圈  
+當然不敢把這支搽上眼  
+（其實很想的！）  
+  
+一直都是萬試萬靈，大推～

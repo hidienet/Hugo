@@ -1,0 +1,32 @@
+---
+title: '[臺中怒食遊] Day4：黑松趩仔麵'
+date: 2014-08-25T18:00:00.000+08:00
+draft: false
+aliases: [ "/2014/08/day4_16.html" ]
+tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化鹿港]
+---
+
+趩仔麵，台語為切仔麵  
+
+[![](https://2.bp.blogspot.com/-_CpmdyLMDr8/XEwoD9a9uDI/AAAAAAAAGkA/4YnQKXOFp0Q2B4jNty8dWNKALwwh-fgrwCLcBGAs/s640/14819463009_9a658ba59c_z.jpg)](https://2.bp.blogspot.com/-_CpmdyLMDr8/XEwoD9a9uDI/AAAAAAAAGkA/4YnQKXOFp0Q2B4jNty8dWNKALwwh-fgrwCLcBGAs/s1600/14819463009_9a658ba59c_z.jpg)
+
+內有芽菜、肉燥、肉丸同蝦丸  
+我不喜歡吃麵條，所以選了米粉  
+超開心這是超幼身的米粉  
+（放湯的米粉要幼身才是王道）  
+手工丸子s都是鮮味彈牙  
+肉燥味道濃卻不會很鹹  
+加上爽口芽菜，一碗內有齊不同的感覺  
+味道很好！超～ 讚～～～  
+  
+另外點了爽脆的生腸同更更爽脆的冷白筍  
+兩樣都是超超超好食的貨色  
+除了不愛的沙律醬  
+但沒有沙律醬齋吃筍會完全無味  
+還是醮少少來吃，喪！好！食！  
+  
+絕對食鹿港必吃食府之一  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)

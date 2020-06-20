@@ -1,0 +1,43 @@
+---
+title: '[明明遊慶州 偏向釜山行] Day6：전복죽、돌솥비빔밥@부산삼계탕（鮑魚粥、石鍋拌飯@釜山蔘雞湯）'
+date: 2014-01-19T10:00:00.000+08:00
+draft: false
+aliases: [ "/2014/01/day6.html" ]
+tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+---
+
+終於在凌晨時分「獲利回吐」T-T  
+（不知道是因為前天的不鮮海鮮難吃的food court米酒過甜豬腳太漏還是霉雞雞湯累事  
+...又可能是1+1+1+1+1這樣，總之就是上下都慘就是 T-T）  
+加上之前一晚的蔘雞湯超難喝  
+雖然這間大剌剌的寫著「蔘雞湯」作招牌  
+（那難吃的也是這樣的好吧）  
+真的吃不下～  
+  
+但不能不吃點東西  
+吃粥，應該比較好消化  
+餐牌上有就點了，只不過......  
+
+[![](https://3.bp.blogspot.com/-E_P_LYoM3zE/XCyZJzuZ_4I/AAAAAAAADoc/Is2wzwWFHxwzwSJt4SchTMHUnlPdwHiDQCLcBGAs/s640/27.jpg)](https://3.bp.blogspot.com/-E_P_LYoM3zE/XCyZJzuZ_4I/AAAAAAAADoc/Is2wzwWFHxwzwSJt4SchTMHUnlPdwHiDQCLcBGAs/s1600/27.jpg)
+
+鮑魚粥（전복죽）  
+釜山臨海所以有很多海鮮  
+其實鮑魚很難消化 XD  
+加上這碗粥很多麻油  
+（金黃的色澤全來自麻油not南瓜番薯）  
+油膩膩的，不過鮑魚味道蠻鮮還好  
+米都像廣東粥般綿綿的  
+可惜有點太鹹  
+
+[![](https://3.bp.blogspot.com/-0XllOwAyWO0/XCyZQHn826I/AAAAAAAADog/FhQwATVASrMVwjb7H1JSB3dm3643nj33QCLcBGAs/s640/28.jpg)](https://3.bp.blogspot.com/-0XllOwAyWO0/XCyZQHn826I/AAAAAAAADog/FhQwATVASrMVwjb7H1JSB3dm3643nj33QCLcBGAs/s1600/28.jpg)
+
+同桌人的石鍋拌飯（돌솥비빔밥）  
+我不知道味道好不好  
+不過還是饞嘴吃了些飯焦  
+  
+然而個人認為這家的蔘雞湯應該比昨晚的更好  
+（偷看隔離檯～）  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)

@@ -1,0 +1,48 @@
+---
+title: '[masque] the history of 后 - 拱辰享 nok yong pack（鹿茸元氣面膜）'
+date: 2014-08-02T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/08/masque-history-of-nok-yong-pack.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+近期超超超超愛的mask（些些小不點）  
+
+[![](https://2.bp.blogspot.com/-dpJVagpReKY/XEQdor_pYFI/AAAAAAAAGLg/eTcKJTZWL9gRSuv9UdNVkgS2V2uBhngAwCLcBGAs/s640/14619277978_f475a43dc8_z.jpg)](https://2.bp.blogspot.com/-dpJVagpReKY/XEQdor_pYFI/AAAAAAAAGLg/eTcKJTZWL9gRSuv9UdNVkgS2V2uBhngAwCLcBGAs/s1600/14619277978_f475a43dc8_z.jpg)
+
+拱辰丹是韓國宮廷美顏配方  
+本身外敷內服都可以  
+能令氣色好有活力抗老等功效  
+而拱辰享這個系列中的面膜  
+除了有拱辰丹之外  
+還有蜂皇漿同鹿茸在中  
+（其實拱辰丹裡面已經是含鹿茸成分）  
+好一款營養全補的面膜  
+  
+不是洗面後直接敷上  
+是在使用toner同essence後才敷  
+沒有錢買「秘帖」  
+我用[潤燥](http://www.hidie.net/2013/12/essence.html)跟[滋陰水](http://www.hidie.net/2013/12/toner.html)  
+相信效果應該都差不多  
+然後分2-3次各擠出500₩ size分量  
+塗於整塊面上  
+依序於面頰額頭鼻同下顎塗厚點  
+再按摩按摩令成分更吸收  
+面膜會發熱，暖暖的好舒服  
+  
+敷10分鐘就去過水  
+還以為會黏黏的好難洗  
+怎料一過水二打圈就清洗乾淨  
+皮膚紅紅潤潤超有生氣  
+摸起來又有彈性  
+保濕度高加上皮膚營養足夠  
+過兩三日肌膚的狀態也是超讚  
+  
+最驚喜是...  
+連自己也看不出自己是生理期的第一天！  
+需知道通常那一天面色都會比較暗沈  
+但居然面色好到這各地步  
+實在太太太神奇了（閃亮）  
+  
+簡直是一試愛上後再不能自拔的神級mask  
+堅！好！用！（大發大發）

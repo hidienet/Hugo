@@ -1,0 +1,28 @@
+---
+title: '[masque] 豆腐の盛田屋 豆乳よーぐるとぱっく「玉の輿」'
+date: 2014-03-13T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/03/masque_13.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+近期最愛的豆腐mask（抱住不放手）  
+
+[![](https://3.bp.blogspot.com/-UunpCowzBhE/XDBlEVyTxUI/AAAAAAAAEIM/9e-YQjNe2Po4Yn1zVAk4TGegb-7LVwzCgCLcBGAs/s640/90.jpg)](https://3.bp.blogspot.com/-UunpCowzBhE/XDBlEVyTxUI/AAAAAAAAEIM/9e-YQjNe2Po4Yn1zVAk4TGegb-7LVwzCgCLcBGAs/s1600/90.jpg)
+
+柔滑cream cheese質地  
+成分有大豆乳乳酪蜂王漿蜂蜜等  
+帶果香的甜蜜氣味  
+愛在化妝前敷上10分鐘  
+（這就是我近期常遲到的原因之一）  
+沖洗後效果有夠好  
+保濕度足、面仔滑滑的  
+膚色又能白起來  
+根本就令自己跟一舊豆腐無分別  
+（所以這期朋友同事都說我黑眼圈嚴重了，  
+其實除了沒戴眼鏡遮眼圈之外，  
+就是因為這mask令皮膚白了故眼圈的黑更明顯）  
+超喜歡超喜歡超喜歡超喜歡（喪loop）  
+世間上為甚麼會有那麼好用的東西啊？  
+  
+特別鳴謝HIMHIM把這罐好貨帶回來（閃亮眼）

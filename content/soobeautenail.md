@@ -1,0 +1,45 @@
+---
+title: '[nail] soo beaute - home care nail paraffin pack'
+date: 2014-04-13T11:30:00.000+08:00
+draft: false
+aliases: [ "/2014/04/nail-soo-beaute-home-care-nail-paraffin.html" ]
+tags : [glamorous - 蛋臉以外, glamorous - 面膜魂]
+---
+
+小時候已經知道巴拿芬蠟用來做hand mask效果很好  
+原來用來敷指甲都不錯啊  
+（做hand mask時不是跟手指同敷的嗎？）  
+
+[![](https://3.bp.blogspot.com/-hv5tmGQ1xJc/XDGBZ9m7G5I/AAAAAAAAEZo/cMnarExupQsiJuKcaVDmoaCjgZ3RBrHAACLcBGAs/s640/04.jpg)](https://3.bp.blogspot.com/-hv5tmGQ1xJc/XDGBZ9m7G5I/AAAAAAAAEZo/cMnarExupQsiJuKcaVDmoaCjgZ3RBrHAACLcBGAs/s1600/04.jpg)
+
+這杯含蠟在裡面的  
+用的時候加熱水進去就可以  
+不用像以前做手蠟般  
+一定要配置一大大部專用熱蠟的機  
+杯旁有一藍點貼紙  
+加了熱水就會變粉紅色  
+當內含物變回適合人體的溫度  
+貼紙有轉回藍色  
+這時候把手指放進入  
+然後把手指再取出  
+就輕鬆完成第一層蠟  
+這動作重複3-4次  
+直至有相當的厚度就OK  
+熟能生巧就是  
+完成後敷10-15分鐘  
+就可以整塊除下  
+  
+指甲跟旁邊都滋滋潤潤  
+亮麗得反光起來  
+良好地保護了指甲  
+之後想塗甚麼都會更漂亮  
+就算裸甲都會不失禮  
+  
+用後2小時內最好不要洗手  
+  
+做巴拿芬蠟的效果真的很好  
+而且蠟是可以重用的  
+簡直是將健康的指甲一直循環下去  
+  
+都有若干韓國品牌有出這些  
+選了這杯也只是剛好做買一送一而已（笑）

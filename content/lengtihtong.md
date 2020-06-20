@@ -1,0 +1,31 @@
+---
+title: '連得堂煎餅'
+date: 2013-10-24T15:30:00.000+08:00
+draft: false
+aliases: [ "/2013/10/blog-post_24.html" ]
+tags : [flavor - 小食部]
+---
+
+其實這才是臺南去六龜時的最後一站．．．  
+
+[![](https://3.bp.blogspot.com/-Ud7IPymut14/XCRTyFqXGpI/AAAAAAAACDM/-CfYmLZujLE7DSYSYQnLxe51upTZ8KN2ACLcBGAs/s640/5.jpg)](https://3.bp.blogspot.com/-Ud7IPymut14/XCRTyFqXGpI/AAAAAAAACDM/-CfYmLZujLE7DSYSYQnLxe51upTZ8KN2ACLcBGAs/s1600/5.jpg)
+
+那天早上，一定一定要預時間的就是買這個  
+小小的鋪一直整餅中，看到剛包好的便買 (lucky!)  
+原味跟味噌的，成份已清楚地印於包裝袋上  
+  
+原味是厚身(約5mm) 而且硬硬脆脆  
+鹹鹹甜甜的口味，吃下盡是牛奶雞蛋與砂糖的香味  
+沒有多餘的香精香料，給人一種很原始的感覺  
+簡單就是好吃（當然越簡單的食材，原料就是很重要一環）  
+  
+像把一條條fettuccine捲起兩端  
+成釘書釘型狀的是味噌煎餅  
+（餅在袋子內看不到？買來吃便知道！）  
+比原味的沒有那麼硬故更加脆身  
+味噌的味道不是太濃烈  
+吃出的是淡淡的鹹香，不會覺得膩  
+  
+  
+撲實的味道，每一塊一條都是手工貨  
+這就是百年來一直沒變的威力！

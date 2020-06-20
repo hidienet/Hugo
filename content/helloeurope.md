@@ -1,0 +1,29 @@
+---
+title: 'hello europe'
+date: 2014-05-11T11:00:00.000+08:00
+draft: false
+aliases: [ "/2014/05/hello-europe.html" ]
+tags : [lifestyle - 逃離852, travel - Italia/ vaticanae/ swiss/ france]
+---
+
+歐洲跟香港最不同的地方  
+除了人種語言食物不太一樣之外  
+我覺得應該是建築吧  
+
+[![](https://1.bp.blogspot.com/-5WPSMfAlK8Q/XDGqMeVPowI/AAAAAAAAEn0/egO3m03Rx_IMMxZkG06_gnuG29rJrFz-ACLcBGAs/s640/6667.jpg)](https://1.bp.blogspot.com/-5WPSMfAlK8Q/XDGqMeVPowI/AAAAAAAAEn0/egO3m03Rx_IMMxZkG06_gnuG29rJrFz-ACLcBGAs/s1600/6667.jpg)
+
+多年前的意大利梵蒂岡瑞士法國  
+跟現在差別都不大  
+如果是香港的話  
+過幾年就甚麼都拆掉的樣子  
+然後換上相同的店鋪商場等等  
+  
+十多年前的我跟現在的我  
+當然沒可能一樣  
+（well，以前的長頭髮老早不見了）  
+不過同當時一樣  
+我還是好喜歡去旅行啊！  
+
+[![](https://4.bp.blogspot.com/-tfAZ2Y0aJs8/XDGqRd8wSXI/AAAAAAAAEn4/eQ8yz1OVjP4Kop5Rnl-9QxYNGvUQezV7ACLcBGAs/s640/121.jpg)](https://4.bp.blogspot.com/-tfAZ2Y0aJs8/XDGqRd8wSXI/AAAAAAAAEn4/eQ8yz1OVjP4Kop5Rnl-9QxYNGvUQezV7ACLcBGAs/s1600/121.jpg)
+
+歐洲～ 我又來了～～～（yeah！）

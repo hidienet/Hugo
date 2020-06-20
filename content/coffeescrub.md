@@ -1,0 +1,26 @@
+---
+title: '自作業：咖啡身體磨砂'
+date: 2014-03-23T08:00:00.000+08:00
+draft: false
+aliases: [ "/2014/03/blog-post_23.html" ]
+tags : [glamorous - 蛋臉以外, made by H - 愛膚堅]
+---
+
+絕對是廢物利用！  
+在公司時用越南壺滴咖啡  
+把咖啡渣倒掉實在太浪費了  
+那就用盡它  
+不過直接（或加水）去磨很粗鞋  
+所以我是把它弄乾  
+（只是放入另一隻杯待乾）  
+再加入黑糖（潤！）和油脂  
+
+乳木果油橄欖油葡萄籽油甜杏仁油等均可  
+拌勻後入瓶後即成  
+
+[![](https://1.bp.blogspot.com/-CM2po24DVbw/XDC0Wxb6f-I/AAAAAAAAESQ/Gbey0RNwXe0doQSCDJsSBwrSDFc1Y2w-ACLcBGAs/s640/85.jpg)](https://1.bp.blogspot.com/-CM2po24DVbw/XDC0Wxb6f-I/AAAAAAAAESQ/Gbey0RNwXe0doQSCDJsSBwrSDFc1Y2w-ACLcBGAs/s1600/85.jpg)
+
+用時只取需要份量加上磨呀磨便可  
+去死皮之餘又能滋潤肌膚  
+以咖啡做的磨砂更可以增加血液循環  
+真的是一舉多得呢

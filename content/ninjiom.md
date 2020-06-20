@@ -1,0 +1,28 @@
+---
+title: '京都念慈菴 - 小柴胡湯'
+date: 2014-11-10T14:00:00.000+08:00
+draft: false
+aliases: [ "/2014/11/blog-post_10.html" ]
+tags : [lifestyle - 急救箱]
+---
+
+天氣終於轉涼了，有好好保重身體沒有？  
+
+[![](https://1.bp.blogspot.com/-bHhEzS4AlTk/XE25Ws0UuYI/AAAAAAAAHu8/iQSrPWqI3AkpO-WUmU-BUz8YaMgMvHSmgCLcBGAs/s640/15119734453_7336d2ae29_z.jpg)](https://1.bp.blogspot.com/-bHhEzS4AlTk/XE25Ws0UuYI/AAAAAAAAHu8/iQSrPWqI3AkpO-WUmU-BUz8YaMgMvHSmgCLcBGAs/s1600/15119734453_7336d2ae29_z.jpg)
+
+不小心注意保暖就容易著涼  
+傷風了，身體不好受  
+  
+初起的話除了好好保暖外  
+也可以和些令身體和暖發汗的漢藥  
+要自己煲太麻煩  
+有沖劑顆粒就超方便了  
+  
+小柴胡湯，平時飲用可以保身  
+有事又可以紓解（對肝脾胃也好）  
+性溫，寒底熱底都可以服用  
+  
+當然，真的生病了還是淺中醫啦～  
+  
+除了漢方的小柴胡湯之外  
+韓方的[雙和茶](http://www.hidie.net/2014/10/seoul-time-day2_1.html)也有差不多的功效呢！

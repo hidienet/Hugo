@@ -1,0 +1,25 @@
+---
+title: '[沙巴密密食] Day5：魚蛋撈米'
+date: 2014-01-01T07:00:00.000+08:00
+draft: false
+aliases: [ "/2014/01/day5.html" ]
+tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
+---
+
+是次旅程的最後一餐@沙巴（已經捨不得）  
+早餐都是潮式粉麵，不過這是撈的比較特別  
+
+[![](https://2.bp.blogspot.com/-eQLhP-sfkKE/XCh5Kd8Yh4I/AAAAAAAADE4/3YJM4VZrfpQ9FVEdqABznxr6UalsWHlgQCLcBGAs/s640/65.jpg)](https://2.bp.blogspot.com/-eQLhP-sfkKE/XCh5Kd8Yh4I/AAAAAAAADE4/3YJM4VZrfpQ9FVEdqABznxr6UalsWHlgQCLcBGAs/s1600/65.jpg)
+
+除了平常都能吃到的魚蛋跟魚片  
+還加了大大粒炸魚蛋  
+是一碗新鮮的魚配紫菜清湯  
+  
+米粉上的豉油是偏甜那種  
+撈在一起不錯吃  
+  
+爲這次旅程留下美麗（味）的終章～  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)

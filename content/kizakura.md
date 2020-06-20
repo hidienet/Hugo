@@ -1,0 +1,22 @@
+---
+title: '[cheers!] 黃桜 純金箔入清酒'
+date: 2013-09-30T21:09:00.002+08:00
+draft: false
+aliases: [ "/2013/09/cheers.html" ]
+tags : [flavor - 飲！]
+---
+
+明天假期，今晚應該要好好慶祝  
+
+[![](https://4.bp.blogspot.com/-q2M4yrbc8Xw/XCOK5_bfIYI/AAAAAAAABz8/Bh6VEkROqoc2ya2VteOseOQ_Ly8uq4hMgCLcBGAs/s640/p10.jpg)](https://4.bp.blogspot.com/-q2M4yrbc8Xw/XCOK5_bfIYI/AAAAAAAABz8/Bh6VEkROqoc2ya2VteOseOQ_Ly8uq4hMgCLcBGAs/s1600/p10.jpg)
+
+金！箔！酒！氣派得像個暴發戶般  
+沒有啦，只是小家氣的小瓶裝清酒  
+淡黃色的，酒香也是淡淡清香  
+入口也是很清爽的米酒味，酒精味不會很濃烈  
+（沒有重金屬的味道 XD ）  
+  
+配刺身也不會蓋了食物的味道  
+能在享受食物之餘喝下美麗的清酒  
+  
+人生真的很美好（乾杯）

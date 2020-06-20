@@ -1,0 +1,30 @@
+---
+title: '[nail] french nail paint'
+date: 2013-10-06T21:15:00.000+08:00
+draft: false
+aliases: [ "/2013/10/nail-french-nail-paint.html" ]
+tags : [glamorous - 蛋臉以外]
+---
+
+我的手肥肥軟軟，而手指是肥肥短短的  
+
+[![](https://3.bp.blogspot.com/-KJ5lxYG42VE/XCORmj7JXzI/AAAAAAAAB20/sgxbOhVu58wPWXJLIoV2dmtNNd9AmDgYwCLcBGAs/s640/21.jpg)](https://3.bp.blogspot.com/-KJ5lxYG42VE/XCORmj7JXzI/AAAAAAAAB20/sgxbOhVu58wPWXJLIoV2dmtNNd9AmDgYwCLcBGAs/s1600/21.jpg)
+
+指甲很健康，很厚又不易裂  
+甲面也長期粉紅色   
+  
+所以一般都不會做太多decoration於指甲上   
+通常把指甲拋光，再上護甲和光油便是  
+當然，最愛之一是塗上透明的指甲油  
+有時小小不誇張的閃粉也覺得不錯，但不常塗   
+深色的誇張的更不是我杯茶（很少卻不代表沒有）   
+  
+自然的最適合我：手指已經短短，還攪個gel nail水晶甲幹嗎    
+加上做哪些人工甲其實很傷指甲的   
+而且指甲生長速度不慢，常常要補再整再拆真的太麻煩   
+何況做這些一點也不便宜，又浪費時間．．．  
+  
+喜歡塗french nail，因為顏色自然  
+指甲和手指不同長短大小也很好看    
+至少覺得塗在我的手也很可愛   
+就算襯formal的裝束亦不失禮，真的很百搭！

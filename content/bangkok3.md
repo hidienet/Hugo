@@ -1,0 +1,92 @@
+---
+title: '[趁熱食，曼谷！] Day3：อโศก (Asok) - เทอร์มินอล 21 อโศก (Terminal 21)'
+date: 2017-09-06T09:39:00.000+08:00
+draft: false
+aliases: [ "/2017/09/day3-asok-21-terminal-21.html" ]
+tags : [travel - ประเทศไทย・กรุงเทพ (Bangkok)]
+---
+
+咁鬼熱，搵個就算唔係只係買嘢都可以留一日嘅商場先～  
+
+[![](https://c1.staticflickr.com/5/4426/36663911455_574ed2ba1b_z.jpg)](https://c1.staticflickr.com/5/4426/36663911455_574ed2ba1b_z.jpg)
+
+酒店有免費篤篤車去BTS站  
+連幾分鐘腳骨力都慳番  
+  
+BTS：พญาไท (Phaya Thai) → **อโศก**** (****Asok****)**  
+  
+  
+
+[![](https://c1.staticflickr.com/5/4408/35854665743_09b3af4b6f_z.jpg)](https://c1.staticflickr.com/5/4408/35854665743_09b3af4b6f_z.jpg)
+
+**เทอร์มินอล 21 อโศก**** (****Terminal 21****)**  
+以機場做主題  
+唔同樓層就唔同城市  
+個裝飾係幾靚嘅  
+夠闊落幾好行  
+唔似香港啲商場咁只係得名店同連鎖店  
+有好多細鋪仔所以多啲款可以睇  
+  
+行還行，梗係要食嘢啦  
+原先係plan咗响呢個商場行一陣然後出去食  
+因為อโศก (Asok) 呢頭有好多好嘢食  
+之不過個天氣實在太熱  
+所以直至夜晚返酒店之前  
+係完全無行出過個商場半步 XD  
+但係原先冇諗過响度食  
+就好自然無做任何資料搜集  
+見到乜睇啱乜就食乜啦咁  
+
+[![](https://c1.staticflickr.com/5/4408/36525752461_bdcb4626b4_z.jpg)](https://c1.staticflickr.com/5/4408/36525752461_bdcb4626b4_z.jpg)
+
+**ร้านส้มตำหมื่นล้าน**** (****MEAUN-LAN****)**  
+求其入㗎咋  
+點知啲嘢咁鬼好食㗎啫  
+呵呵呵呵呵呵呵～  
+
+[![](https://c1.staticflickr.com/5/4431/35855024683_476b8df76a_z.jpg)](https://c1.staticflickr.com/5/4431/35855024683_476b8df76a_z.jpg)
+
+食完行陣又食過  
+小食時間就試**ชาตรามือ**** (****ChaTraMue****)** 嘅**奶茶雪糕**  
+老老竇竇泰式嘢飲真係好甜  
+呢隻奶茶係滑嘅不過都離唔開好甜同好L甜之間  
+而雪糕就凍啲嘛所以就算糖嘅份量係一樣  
+食落都唔覺得甜死咗  
+嗱～ 呢隻雪糕好濃滑好香同好好食  
+唔食係堅走寶嗰隻，就咁。  
+
+[![](https://c1.staticflickr.com/5/4383/36617972276_b21807d812_z.jpg)](https://c1.staticflickr.com/5/4383/36617972276_b21807d812_z.jpg)
+
+然後又行吓行吓咁...  
+再坐低食個tea @**C・O・D・E**  
+芒果當造嗰陣唔食芒果會被雷劈㗎！  
+
+[![](https://c1.staticflickr.com/5/4422/36664699535_f6e9c49c48_z.jpg)](https://c1.staticflickr.com/5/4422/36664699535_f6e9c49c48_z.jpg)
+
+又再行啦，咁做人呢家嘢真係會攰㗎嘛  
+今鑊唔係食嘢喇，去！揼！骨！  
+商場頂層係**Let's Relax Spa**  
+乾淨服務好又唔貴，爽呀～  
+
+[![](https://c1.staticflickr.com/5/4394/36268837800_4a4805ca32_z.jpg)](https://c1.staticflickr.com/5/4394/36268837800_4a4805ca32_z.jpg)
+
+咁揼完骨個人放鬆晒就會有餓意嘅（咦？）  
+唯有食晚飯啦哈哈哈  
+間嘢叫**Moom Muum Park**  
+唔算平但係好高質素囉  
+份量又唔細喎食到肚脹脹  
+  
+最後，太攰又時候唔早  
+連BTS都懶得行去搭  
+直接坐的士，呢邊好啲跟咪錶唔駛俾人劏！  
+  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：  
+[Day1：Taxi Taxi](https://www.hidie.net/2017/09/day1taxi-taxi.html)  
+[Day2：จตุจักร (Jatujak)、เซ็นทรัลเวิลด์ (CentralWorld)](https://www.hidie.net/2017/09/day2-jatujak-centralworld.html)  
+Day3：อโศก (Asok) - เทอร์มินอล 21 อโศก (Terminal 21)  
+[Day4：อนุสาวรีย์ชัยสมรภูมิ (Victory Monument)、สยาม (Siam)、ชิดลม (Chidlom)](https://www.hidie.net/2017/09/day4-victory-monument-siam-chidlom.html)  
+[Day5：เซ็นทรัลเวิลด์ (CentralWorld)、TALAD Neon](https://www.hidie.net/2017/09/day5-centralworldtalad-neon.html)  
+[Day6：ท่าอากาศยานสุวรรณภูมิ Suvarnabhumi Airport (BKK)](https://www.hidie.net/2017/09/day6-suvarnabhumi-airport-bkk.html)

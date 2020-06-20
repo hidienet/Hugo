@@ -1,0 +1,28 @@
+---
+title: '[masque] 我的美麗日記 草莓優格面膜'
+date: 2014-07-18T22:00:00.000+08:00
+draft: false
+aliases: [ "/2014/07/masque_18.html" ]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+---
+
+士多啤梨同乳酪都是我喜歡吃的東西  
+拿來敷，我想至少氣味應該都會喜歡吧  
+
+[![](https://3.bp.blogspot.com/-CMZHHpNjn3M/XEQCqS-LWUI/AAAAAAAAF_w/YpSpSocRoUMHBNsFIbDcu_VjXkl9VktLQCLcBGAs/s640/9999810793_e4569fdb1e_z.jpg)](https://3.bp.blogspot.com/-CMZHHpNjn3M/XEQCqS-LWUI/AAAAAAAAF_w/YpSpSocRoUMHBNsFIbDcu_VjXkl9VktLQCLcBGAs/s1600/9999810793_e4569fdb1e_z.jpg)
+
+主打淨白零油光  
+是款適合夏天的產品  
+濃香的士多啤梨味  
+這些改良版的紙質較薄  
+夏天敷都不覺得厚重  
+精華都幾多面膜紙吸不完  
+  
+敷20-30分鐘，面上也留有好多精華  
+經一番努力按摩終於吸完  
+好爽身，而且真的能控制油分  
+但令膚色淨白就有點抱歉  
+完全看不到白在哪裡  
+  
+不過難得地不是對此品牌的面膜有負面評價  
+已經算是不錯了哈哈

@@ -1,0 +1,32 @@
+---
+title: '[生活調味] 豚肉みそ'
+date: 2013-11-26T19:00:00.000+08:00
+draft: false
+aliases: [ "/2013/11/blog-post_26.html" ]
+tags : [flavor - 揀飲宅食]
+---
+
+在沖縄很多地方也看見豚肉みそ的蹤影  
+
+[![](https://1.bp.blogspot.com/-PgsoLzYJg4Y/XCd-f2d_DMI/AAAAAAAACxI/Nb3jDt7yOwsJovUhm9MvFaDjtgsgsoDswCLcBGAs/s640/85.jpg)](https://1.bp.blogspot.com/-PgsoLzYJg4Y/XCd-f2d_DMI/AAAAAAAACxI/Nb3jDt7yOwsJovUhm9MvFaDjtgsgsoDswCLcBGAs/s1600/85.jpg)
+
+很卻很難才找到像這樣的既小盒又是膠盒的包裝  
+因為街上常見的都是玻璃樽裝  
+看到那麼重的樣子就不想買，幸好有這包裝  
+  
+這個みそ有濃縮了的沖縄  
+有豚肉、有糖、有泡盛  
+  
+打開蓋，看到みそ好像花生豆腐般黏黏的  
+氣味偏甜，跟平常的みそ聞起來鹹味完全不同  
+  
+拿來煮湯  
+  
+Ooo... 很甜，這不是みそ  
+像我煮西京燒的味道  
+完全不適合做湯  
+  
+但有一丁丁的豬肉片蠻可愛  
+  
+下次拿去煮魚炒菜便好了  
+也幸好只是小小一盒...

@@ -1,0 +1,34 @@
+---
+title: '[昆明飽hihi] Day2：英凤烧饵块'
+date: 2013-12-24T15:30:00.000+08:00
+draft: false
+aliases: [ "/2013/12/hihi-day2_56.html" ]
+tags : [flavor - 小食部, travel - 中國・昆明]
+---
+
+下午茶走著吃～  
+  
+新鮮燒的糯米製厚厚餌塊  
+熱熱的一塊煙煙韌韌又有糯米香味  
+醬料可多了，能鹹的甜的辣的  
+而且也有包油炸鬼這樣  
+
+[![](https://2.bp.blogspot.com/-_-sbgp5uSxo/XCiS5k_XHEI/AAAAAAAADTc/g3RrK_gwrFICkbrFnOtnd9Qhtv4NhOuQACLcBGAs/s640/09.jpg)](https://2.bp.blogspot.com/-_-sbgp5uSxo/XCiS5k_XHEI/AAAAAAAADTc/g3RrK_gwrFICkbrFnOtnd9Qhtv4NhOuQACLcBGAs/s1600/09.jpg)
+
+我當然是選甜的  
+也是招牌醬：芝麻花生醬  
+裡面有芝麻花生（廢話）等十多種材料  
+香甜可口的老昆明味（！）  
+
+[![](https://2.bp.blogspot.com/-G6d9h34f83I/XCiTBD9bMwI/AAAAAAAADTk/y89oXWLbREUTekh_kBkmtUVMNnMnCpT0ACLcBGAs/s640/10.jpg)](https://2.bp.blogspot.com/-G6d9h34f83I/XCiTBD9bMwI/AAAAAAAADTk/y89oXWLbREUTekh_kBkmtUVMNnMnCpT0ACLcBGAs/s1600/10.jpg)
+
+辣的這個是辣腐乳醬  
+挺辣的，不適合我  
+（但其實蠻好吃的）  
+  
+  
+是一家行過路過切勿錯過的一家小吃店！  
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[昆明飽hihi（5D4N）](http://www.hidie.net/2013/12/hihi5d4n.html)

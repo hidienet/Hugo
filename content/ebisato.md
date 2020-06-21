@@ -6,7 +6,7 @@ aliases: [ "/2015/11/blog-post.html" ]
 tags : [flavor - 小食部]
 ---
 
-唔單「唔駛急有咩手信機場買就得」；  
+唔單止「唔駛急有咩手信機場買就得」；  
 而係「你唔宅配嘛，只有機場先有得買喎～」。  
 
 [![](https://c1.staticflickr.com/9/8871/28669686065_a1f60c726a_z.jpg)](https://c1.staticflickr.com/9/8871/28669686065_a1f60c726a_z.jpg)

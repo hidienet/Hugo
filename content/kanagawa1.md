@@ -55,7 +55,7 @@ tags : [lifestyle - 逃離852, travel - 日本（関東東海道）・ 相模神
 腳下一對條條狀海蝕岩石  
 天公不造美亦無損心情  
 
-![](images/kanagawa1e.jpg)
+![](/images/kanagawa1e.jpg)
 
 向後望係有座仔小小的望海[小桜観音](https://hidie.net/kanagawa1e/)  
 唔怪得沿路去好多疊石  
@@ -64,13 +64,13 @@ tags : [lifestyle - 逃離852, travel - 日本（関東東海道）・ 相模神
 
 懶～  
 
-![](https://n9eswq.ch.files.1drv.com/y4mYrvrRzt2E3PGdZFTKJ9sdYbty6FusnNHlzX4qqV8XGUFXy1BBIga-8whRoS4g_Uzw7ihXredjFUhHxD_kDBrwUGxo7f4pDM76IxbMJiyekVCzSfC_-Gvw_fORFR05EUGbp83-PlbKgPy3kznjCLIvNJDbLy8Prw8WmDJZik8sLNXPL78-dqi06NlKPlUbyWS1beGp0x2ZhT8lr-S45ZIng?width=660&height=371&cropmode=none)
+![](/images/kanagawa1f2.jpg)
 
 島logo有貓拎住吞拿魚好可愛  
 
-![](https://onepwq.ch.files.1drv.com/y4mgnwcYbIG2Xdo3ECkkeN2cXvOJTBgVbk8WoEIknOQGapGzdADI-QQSSnz5_cuBqLs9t0XLhEyVBQ4QxbdYinhmtzsZ8ExRPXT2AsDPxNa-mZSlQEwZkAfeaZfVOEm_jt0iiaz5uVP4CHj3IMBv48pj_69yPVdjR-BCPztx55TzjZiXSjrU5O6GQFJ0Fy4cSo4J4RsdP-sfobmoaJa80Ba8w?width=371&height=660&cropmode=none)
+![](/images/kanagawa1f9.jpg)
 
-上**城ヶ島灯台**望望個燈塔仔  
+上[城ヶ島灯台](https://hidie.net/kanagawa1f/)望望個燈塔仔  
 
 ![](https://onenwq.ch.files.1drv.com/y4mMinZ1KP8Epgb_Do5scLNj8sgxOZlw0GvQmmkV3v8vlwjdTI_AiH6tDlt3CbJHO2-3kcER2-0u297tdk4ZSdmwW8g_35B_W47Em-JBOFz86hzs-Ei8sLiao4RccMf2HTjxIZQsxhXcNat8-qs2sNWfTivNF4sEOk1MYrJ-yAFJkDzpV3e_xT7igDmrmJcBrR678y7UEcTgz9TnyetXkfB9A?width=660&height=371&cropmode=none)
 

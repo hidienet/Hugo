@@ -39,6 +39,47 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa1g8.jpg)
 
+依然海天一色（灰）
+
+![](/images/kanagawa1g9.jpg)
+
+hello相模湾
+
+![](/images/kanagawa1g10.jpg)
+
+下面個海蝕洞叫**馬の背洞門**
+
+![](/images/kanagawa1g.jpg)
+
+直接zoom埋去
+
+![](/images/kanagawa1g11.jpg)
+
+行近少少（反正順路啫）
+
+![](/images/kanagawa1g12.jpg)
+
+行前多少少，有個細細薰衣草小花園
+
+![](/images/kanagawa1g13.jpg)
+
+再向馬背洞方向進發
+
+![](/images/kanagawa1g14.jpg)
+
+去到check point 2  
+個馬背洞其實行落去就係  
+不過雨大浪大唔落喇
+
+![](/images/kanagawa1g15.jpg)
+
+話晒個海係太平洋  
+捲落去就唔好啦（珍惜生命）
+
+![](/images/kanagawa1g16.jpg)
+
+
+
 
 
 

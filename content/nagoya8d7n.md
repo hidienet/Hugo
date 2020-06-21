@@ -81,24 +81,23 @@ tags : [lifestyle - 逃離852, travel - 日本（中部東海道）・ 尾張愛
 
 
 **買物篇**  
-**\[食\] **[ぐてたま x チロルチョコ](https://www.hidie.net/2015/10/go-go-nagoya-x.html)  
-**\[食\] **[えびせんべいの里 - えびせんいろいろ](https://www.hidie.net/2015/11/blog-post.html)  
-**\[食\] **[坂角総本舖 ゆかり](https://www.hidie.net/2015/11/blog-post_11.html)  
-**\[食\] **[青柳総本家 青柳ういろう ひとくち](https://www.hidie.net/2015/11/blog-post_12.html)  
-**\[食\] **[名古屋ふらんす](https://www.hidie.net/2015/11/blog-post_13.html)  
-**\[食\] **[Calbee Jagabee (じゃがビー) 東海限定 手羽先味](https://www.hidie.net/2015/11/calbee-jagabee.html)  
-**\[食\] **[FamilyMart - sweet+ 焼き菓子](https://www.hidie.net/2015/11/cake-familymart-sweet.html)  
-**\[食\]** [KEITH MANHATTAN - CODE C pound cake Chocolate and Marron](https://www.hidie.net/2015/11/cake-keith-manhattan-code-c-pound-cake.html)  
-**\[食\]** [TOMIZ (富澤商店) - 紫いものチップス](https://www.hidie.net/2015/11/tomiz.html)  
-**\[食\] **[ナカモ「つけてみそかけてみそ」](https://www.hidie.net/2015/11/blog-post_16.html)  
-**\[食\] **[寿がきや 台湾ラーメン](https://www.hidie.net/2015/11/blog-post_17.html)  
-**\[著\] **[HAWKINS ホーキンス ジュートスリッポン CONFETTI HW20059](https://www.hidie.net/2015/09/go-go-nagoya-hawkins-confetti-hw20059.html)  
-**\[用\]** 昔ながらの 白いタオル  
-**\[藥妝\] **[千里馬薬局](https://www.hidie.net/2015/10/go-go-nagoya.html)  
+**[食]** [ぐてたま x チロルチョコ](https://www.hidie.net/2015/10/go-go-nagoya-x.html)  
+**[食]** [えびせんべいの里 - えびせんいろいろ](https://www.hidie.net/2015/11/blog-post.html)  
+**[食]** [坂角総本舖 ゆかり](https://www.hidie.net/2015/11/blog-post_11.html)  
+**[食]** [青柳総本家 青柳ういろう ひとくち](https://www.hidie.net/2015/11/blog-post_12.html)  
+**[食]** [名古屋ふらんす](https://www.hidie.net/2015/11/blog-post_13.html)  
+**[食]** [Calbee Jagabee (じゃがビー) 東海限定 手羽先味](https://www.hidie.net/2015/11/calbee-jagabee.html)  
+**[食]** [FamilyMart - sweet+ 焼き菓子](https://www.hidie.net/2015/11/cake-familymart-sweet.html)  
+**[食]** [KEITH MANHATTAN - CODE C pound cake Chocolate and Marron](https://www.hidie.net/2015/11/cake-keith-manhattan-code-c-pound-cake.html)  
+**[食]** [TOMIZ (富澤商店) - 紫いものチップス](https://www.hidie.net/2015/11/tomiz.html)  
+**[食]** [ナカモ「つけてみそかけてみそ」](https://www.hidie.net/2015/11/blog-post_16.html)  
+**[食]** [寿がきや 台湾ラーメン](https://www.hidie.net/2015/11/blog-post_17.html)  
+**[着]** [HAWKINS ホーキンス ジュートスリッポン CONFETTI HW20059](https://www.hidie.net/2015/09/go-go-nagoya-hawkins-confetti-hw20059.html)  
+**[用]** [昔ながらの 白いタオル](https://hidie.net/kojkmi2f/)  
+**[薬妝]** [千里馬薬局](https://www.hidie.net/2015/10/go-go-nagoya.html)  
 
   
   
 
-[![](httpss://c1.staticflickr.com/9/8817/28381935740_7a6b80e937_z.jpg)](httpss://c1.staticflickr.com/9/8817/28381935740_7a6b80e937_z.jpg)
-
+![]  
 响[名古屋城個展望室](https://www.hidie.net/2015/10/go-go-nagoya-400_15.html)間小賣部買嘅，hahaha XD

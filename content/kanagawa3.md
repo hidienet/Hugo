@@ -271,9 +271,5 @@ craft beer真係魅力沒法擋
 ～完～  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：三浦半島 → 川崎](https://www.hidie.net/2019/07/day1.html)  
-[Day2：川崎 → 横浜](https://www.hidie.net/2019/07/day2.html)  
-Day3：鎌倉 → 川崎
+
+{{<kanagawa>}}

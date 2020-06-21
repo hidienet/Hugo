@@ -336,9 +336,5 @@ weekend梗係要飲**WEEKEND JOURNEY**
 太開心喇！去瞓lu（聽日再嗨過）  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：三浦半島 → 川崎](https://hidie.net/kanagawa1/)  
-Day2：川崎 → 横浜  
-[Day3：鎌倉 → 川崎](https://hidie.net/kanagawa3/)
+
+{{<kanagawa>}}

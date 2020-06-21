@@ -10,7 +10,7 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa1f1.jpg)
 
-飆上去 **城ヶ島灯台** 
+飆上去望吓個燈塔先！ 
 
 ![](/images/kanagawa1f2.jpg)
 
@@ -38,18 +38,24 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 **城ヶ島灯台** 
 位於標高30米嘅呢個島仔上  
+
+![](/images/kanagawa1f9.jpg)
+
 响明治3年（1870年）初点灯  
 再响関東地震震親之後再重建
 
 ![](/images/kanagawa1f7.jpg)
 
-
+啊～ 一望無際嘅太平洋啊～
 
 ![](/images/kanagawa1f8.jpg)
 
-![](/images/kanagawa1f9.jpg)
+不過個天就灰灰咁啦
 
 ![](/images/kanagawa1f10.jpg)
 
-  
+天氣好應該會好靚嘅  
+唔緊要，下次有機會再
+
+
 {{<kanagawa>}}

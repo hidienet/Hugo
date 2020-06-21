@@ -99,5 +99,6 @@ tags : [lifestyle - 逃離852, travel - 日本（中部東海道）・ 尾張愛
   
   
 
-![]  
+![](/images/nagoya8d7n.jpg)
+
 响[名古屋城個展望室](https://www.hidie.net/2015/10/go-go-nagoya-400_15.html)間小賣部買嘅，hahaha XD

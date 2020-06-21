@@ -8,4 +8,4 @@ tags : [collections - zaku II 白狼・365 project]
 
 [![](https://farm8.staticflickr.com/7484/16145095661_c52e726e0f_z.jpg)](https://farm8.staticflickr.com/7484/16145095661_c52e726e0f_z.jpg)
 
-為甚麼要送鹿茸尾給我？
+為甚麼要送鹿尾巴給我？

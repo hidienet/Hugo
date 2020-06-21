@@ -21,9 +21,5 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 咩都好啦，都係要搵食先...
 
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：三浦半島 → 川崎](https://hidie.net/kanagawa1/)   
-[Day2：川崎 → 横浜](https://hidie.net/kanagawa2/)  
-[Day3：鎌倉 → 川崎](https://hidie.net/kanagawa3/)
+
+{{<kanagawa>}}

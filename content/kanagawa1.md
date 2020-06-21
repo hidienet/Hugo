@@ -49,15 +49,15 @@ tags : [lifestyle - 逃離852, travel - 日本（関東東海道）・ 相模神
 點知見到呢件[マグレーヌ](https://hidie.net/kanagawa1d/)  
 係舊式蛋糕裡面有吞拿魚肉碎，好特別呢  
 
-![](https://n9ejwq.ch.files.1drv.com/y4m-13c6W0pwRoFwg7ShP2n2mO2BkWobOwvGEI2CON6jidUo0FBcjG-NVAMn3591ReRrEkiXcQ8gA9QnpSuHErEoQfCakrdgdEw7r1VRCWv9mpaS0A9F1lAErHkDGXjURjoOdaE4zMq6_bhu1ImuxU6b3fPzHxoZ4KJ72HDuRIauOgpFyheoXqoGXzUOs-RFzmW5t0OWltEIrtf-f2HFaemOA?width=660&height=371&cropmode=none)
+![](/images/kanagawa1e6.jpg)
 
 聽著海浪聲吹住海風  
 腳下一對條條狀海蝕岩石  
 天公不造美亦無損心情  
 
-![](https://nterwq.ch.files.1drv.com/y4mSGepezMjrH51aWDlQpyQCsNSRwqD4SSPBCJUcWMciyhdpVVnICBI-YX_VUzRh6Cy_p__BSjAZcJ0CKQVtimAzuwUzwRMjYotOsYWQoZ7BvkhBVCdSdhrDENmQCKAbByv96xSb6SzMFS0IDDK6JmYd3uk00QUhL-2RCFb2kT8B0dHjilebOSwy5cPgLzVNo4YE3hUbIMmwM8YxHrQiFbuCw?width=660&height=371&cropmode=none)
+![](images/kanagawa1e.jpg)
 
-向後望係有座仔小小的望海**小桜観音**  
+向後望係有座仔小小的望海[小桜観音](https://hidie.net/kanagawa1e/)  
 唔怪得沿路去好多疊石  
 
 ![](https://n9eowq.ch.files.1drv.com/y4m1hplmoc933s6NQy0zFEPOEM1cR0bP0cUPC4ea7C43Ouzhi9l6EjTm6Ut3mRUxUYviujmaiffa6D--8opRUwUuU0lIe978ccxt8GBNrRNmvapJkjYT_InV3y4KpoDWYyljdIgoGlBjeu5ZtiRJkWrWsni0YeGaau1YFT67gInh-RnPfMOUxvzM9tvSlphEIk4guEcRNvhUxEF2EyCkhsBxQ?width=660&height=371&cropmode=none)

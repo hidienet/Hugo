@@ -6,13 +6,50 @@ images: ["/images/kanagawa1f.jpg"]
 tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
-城ヶ島灯台 
+照亮住相模灘又可以眺望太平洋
+
+![](/images/kanagawa1f1.jpg)
+
+飆上去 **城ヶ島灯台** 
+
+![](/images/kanagawa1f2.jpg)
+
+個島logo有貓拎住吞拿魚好可愛（心）
+
+![](/images/kanagawa1f3.jpg)
+
+向後望返條村，遠少少都有見到海面
+
+![](/images/kanagawa1f4.jpg)
+
+繡球花期，一個二個波波花綻放中
+
+![](/images/kanagawa1f5.jpg)
+
+都有幾種唔同嘅色㗎！
+
+![](/images/kanagawa1f6.jpg)
+
+**海への祈り**  
+向海嘅地方就算冇觀音廟都會有位置祈吓福  
+求吓自己求吓人平安咁啦
+
+![](/images/kanagawa1f.jpg)
+
+**城ヶ島灯台** 
+位於標高30米嘅呢個島仔上  
+响明治3年（1870年）初点灯  
+再响関東地震震親之後再重建
+
+![](/images/kanagawa1f7.jpg)
 
 
+
+![](/images/kanagawa1f8.jpg)
+
+![](/images/kanagawa1f9.jpg)
+
+![](/images/kanagawa1f10.jpg)
+
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：三浦半島 → 川崎](https://hidie.net/kanagawa1/)   
-[Day2：川崎 → 横浜](https://hidie.net/kanagawa2/)  
-[Day3：鎌倉 → 川崎](https://hidie.net/kanagawa3/)
+{{<kanagawa>}}

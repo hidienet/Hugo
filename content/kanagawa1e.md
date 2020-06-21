@@ -6,24 +6,36 @@ images: ["/images/kanagawa1e.jpg"]
 tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
-食完少少吞拿魚就周圍兜吓
+城ヶ島係個海島仔
 
-![](/images/kanagawa1d1.jpg)
+![](/images/kanagawa1e1.jpg)
 
-見到有懷舊樣嘅蛋糕們賣就揀嚟試  
-（中間個件吞拿魚頭**まぐろかぶと**係得意，不過只係普通紅白豆含清酒餡就冇要佢） 
+所以行多兩步就已經望到海
 
-![](/images/kanagawa1d.jpg)
+![](/images/kanagawa1e2.jpg)
 
-要呢件**マグレーヌ**
+聽著海浪聲吹住海風  
+腳下一對條條狀海蝕岩石
 
-![](/images/kanagawa1d2.jpg)
+![](/images/kanagawa1e3.jpg)
 
-原材料係小麦粉、砂糖、鶏卵、バター、植物性油脂、マグロ、味醂、醤油
+灰濛濛嘅「海天一色」
 
-![](/images/kanagawa1d3.jpg)
+![](/images/kanagawa1e4.jpg)
 
-味道係舊式蛋糕裡面有吞拿魚肉碎，好特別呢
+堅啲嘅石就蝕到一條條  
+脆弱同再表面啲就得返一粒粒
+
+![](/images/kanagawa1e5.jpg)
+
+向後望係有座仔小小的望海**小桜観音**  
+供奉住**小桜姫観音**
+唔怪得沿路去好多疊石（即係頭先周圍都有嘅岩石粒）  
+
+![](/images/kanagawa1e6.jpg)
+
+海岸恋愛聖地 x 観音  
+
 
   
 \-----------------------------------------------  

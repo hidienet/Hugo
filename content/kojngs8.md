@@ -93,21 +93,4 @@ tags : [travel - 日本（九州西海道）・ 薩摩鹿児島と肥前長崎]
 其實，機上影落嚟個夜景都好靚  
 飛咗兩個鐘，呢個位係咪臺灣？  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：鹿児島ラーメン 我流風 | 揚立屋 | 天文館公園 | 旬や 吟 | 西本願寺（除夜会・除夜の鐘）](https://www.hidie.net/2020/02/glory-days-day1.html)
-
-[Day2：AMU Plaza （甘味処扇隆庵、ハリウッド・さつま、福袋）| かつ寿 | 味処 むじゃき亭](https://www.hidie.net/2020/02/glory-days-day2amu-plaza.html)
-
-[Day3：山形屋 福袋 | シャローム | 吾愛人 | 天文館本通り | (高速バス) → 長崎 | 魚民](https://www.hidie.net/2020/02/glory-days-day3.html)
-
-[Day4：AMU Plaza（トランドール、雑魚屋）| Youme（福袋、神戸元町ドリア、BINGO）| Cocowalk（中の茶屋 重籠）| 炭蔵](https://www.hidie.net/2020/02/glory-days-day4amu-plaza-youmebingo.html)
-
-[Day5：旅人茶屋 | 稲佐山温泉ふくの湯 | 長崎浜町商店街 | 秋月園 | ツル茶ん 本店 | 草花洛](https://www.hidie.net/2020/03/glory-days-day5.html)
-
-[Day6：ロイヤルホスト | 長崎路面電車資料館 | 長崎原爆資料館、平和公園 | もつ鍋 おおやま | 稲佐山 長崎夜景 | 魚店亜紗](https://www.hidie.net/2020/03/glory-days-day6.html)
-
-[Day7：NGS COFFEE | 稲佐山温泉ふくの湯 | とれとれ旬家 | 眼鏡橋、長崎新地中華街 | 珈琲 冨士男 | 浜勝](https://www.hidie.net/2020/03/glory-days-day7ngs-coffee.html)
-
-Day8：吉宗 本店 | ごはんカフェ 百菜 旬 | 長崎空港 | 鮨どころ しょうぶ
+{{<kojngs>}}

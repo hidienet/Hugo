@@ -116,14 +116,5 @@ YES！就係賣廁所嗰間TOTO！
 
 好，食飽瞓～  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：福岡空港 → 小倉](https://www.hidie.net/2018/01/cmon-day1.html)  
-[Day2：下関 → 門司](https://www.hidie.net/2018/01/cmon-day2.html)  
-[Day3：長門 → 下関 → 小倉](https://www.hidie.net/2018/01/cmon-day3.html)  
-[Day4：小倉 ↔ 若松 ↔ 戸畑](https://www.hidie.net/2018/01/cmon-day4.html)  
-Day5：小倉  
-[Day6：下関 → 小倉](https://www.hidie.net/2018/01/cmon-day6.html)  
-[Day7：下関 → 門司 → 小倉](https://www.hidie.net/2018/01/cmon-day7.html)  
-[Day8：福岡空港](https://www.hidie.net/2018/01/cmon-day8.html)
+
+{{<kanmon>}}

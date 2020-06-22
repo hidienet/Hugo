@@ -19,7 +19,7 @@ tags : [amusement - zene]
   
 **소리질러～～～～～～～**  
 
-[![](https://c2.staticflickr.com/6/5623/23193706305_35e518df4a_z.jpg)](https://c2.staticflickr.com/6/5623/23193706305_35e518df4a_z.jpg)
+![](/images/cnbluelive2015.jpg)
 
 （很不搭調的組合，哈）  
   
@@ -218,7 +218,7 @@ live當然更好，有點擺脫了oasis影子
 專注演唱會沒有錄音錄影拍攝  
 也沒有特意花費買沒有後續用處的紀念品  
 
-[![](https://c2.staticflickr.com/6/5749/22958943174_a9c6e9f4fa_z.jpg)](https://c2.staticflickr.com/6/5749/22958943174_a9c6e9f4fa_z.jpg)
+![](/images/cnbluelive2015a.jpg)
 
 但也有這個（對）會場限定的guitar picks  
 免費的呵呵，去學結他好了！（哈～）

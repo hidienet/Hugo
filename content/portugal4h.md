@@ -30,7 +30,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 
 [![](https://c1.staticflickr.com/5/4737/39282154531_872d1f3db7_z.jpg)](https://c1.staticflickr.com/5/4737/39282154531_872d1f3db7_z.jpg)
 
-**carapaus grelhados **燒魚配薯仔  
+**carapaus grelhados** 燒魚配薯仔  
 簡單而美味  
 
 [![](https://c1.staticflickr.com/5/4635/39282156761_ba89d9ca31_z.jpg)](https://c1.staticflickr.com/5/4635/39282156761_ba89d9ca31_z.jpg)
@@ -51,24 +51,5 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 不過餐廳裡面只係得藍白瓷磚冇任何公仔嘅  
   
   
-\-----------------------------------------------  
-  
-  
-延伸閱讀：  
-[Day1：Hello Lisbon](https://www.hidie.net/2017/07/day1hello-lisbon.html)  
-[Day2：Lisboa → Porto](https://www.hidie.net/2017/07/day2lisboa-porto.html)  
-[Day3：Porto ↔ Vila Nova de Gaia](https://www.hidie.net/2017/07/day3porto-vila-nova-de-gaia.html)  
-[Day4：Porto](http://www.hidie.net/2017/07/day4porto.html)  
-[Day5：Porto ↔ Barcelos](http://www.hidie.net/2017/07/day5porto-barcelos.html)  
-[Day6：Porto ↔ Guimarães](http://www.hidie.net/2017/07/day6porto-guimaraes.html)  
-[Day7：Porto (～Santa Clara)](http://www.hidie.net/2017/08/day7porto-santa-clara.html)  
-[Day8：Porto ↔ Pinhão](http://www.hidie.net/2017/08/day8porto-pinhao.html)  
-[Day9：Porto (...Matosinhos)](http://www.hidie.net/2017/08/day9porto-matosinhos.html)  
-[Day10：Porto → Lisboa](http://www.hidie.net/2017/08/day10porto-lisboa.html)  
-[Day11：Lisboa ↔ Sintra](http://www.hidie.net/2017/08/day11lisboa-sintra.html)  
-[Day12：Lisboa (～Belém)](http://www.hidie.net/2017/08/day12lisboa-belem.html)  
-[Day13：Lisboa (...Arroios)](http://www.hidie.net/2017/08/day13lisboa-arroios.html)  
-[Day14：Lisboa](http://www.hidie.net/2017/08/day14lisboa.html)  
-[Day15：Lisboa ↔ Cascais](http://www.hidie.net/2017/08/day15lisboa-cascais.html)  
-[Day16：Lisboa（...Oriente）](http://www.hidie.net/2017/08/day16lisboaoriente.html)  
-[Day17：Lisboa](http://www.hidie.net/2017/08/day17lisboa.html)
+
+{{<portugal>}}  

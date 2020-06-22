@@ -9,7 +9,7 @@ tags : [amusement - zene]
 又來？對！這個家族演唱會是兩日的！  
 當然要死守兩場啦，哈哈哈～  
 
-[![](https://farm6.staticflickr.com/5323/17594384450_d730f2082e_z.jpg)](https://farm6.staticflickr.com/5323/17594384450_d730f2082e_z.jpg)
+![](/images/fnckingdom20150517.jpg)
 
 昨晚已經很high很high很high  
 哈哈哈哈哈哈哈哈哈哈（미쳤어... 완전히 미쳤어）  

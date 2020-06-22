@@ -9,17 +9,17 @@ tags : [travel - 남한・제주 (濟州)]
 反正連市場都係晏啲開  
 瞓到飽先慢慢出發都未遲啦
 
-[![](https://c1.staticflickr.com/5/4468/37798800076_c4973ee588_z.jpg)](https://c1.staticflickr.com/5/4468/37798800076_c4973ee588_z.jpg)
+![](https://c1.staticflickr.com/5/4468/37798800076_c4973ee588_z.jpg)
 
 先飲盒仔**濟州牛奶**頂吓肚
 
   
 
 然後施施然坐600號巴士  
-去**中文觀光園區**（**중문관광단지**）  
+去**中文觀光園區（중문관광단지**）  
 個名係「中文」但係同「中文」（Chinese）完全冇關係  
 
-[![](https://c1.staticflickr.com/5/4453/37847837851_acaa43cb49_z.jpg)](https://c1.staticflickr.com/5/4453/37847837851_acaa43cb49_z.jpg)
+![](https://c1.staticflickr.com/5/4453/37847837851_acaa43cb49_z.jpg)
 
 本來落車最近嘅濟州馬苑（제주마원）  
 點知佢冇開喎！  
@@ -27,27 +27,27 @@ tags : [travel - 남한・제주 (濟州)]
 當行吓個韓國館睇吓韓屋囉…  
   
 然後跳上的士，唔食馬肉住  
-去食鮑魚 @**善良鮑魚**（**착한전복**）  
+去食鮑魚 @**善良鮑魚（착한전복**）  
 
-[![](https://c1.staticflickr.com/5/4507/37847832701_5d91e62bd1_z.jpg)](https://c1.staticflickr.com/5/4507/37847832701_5d91e62bd1_z.jpg)
+![](https://c1.staticflickr.com/5/4507/37847832701_5d91e62bd1_z.jpg)
 
-先食爽口嘅**生鮑魚**（**전복회**）  
+先食爽口嘅**生鮑魚（전복회**）  
 ...連內臟都好鹹鮮香呢  
 
-[![](https://c1.staticflickr.com/5/4498/37847834631_478552ea5f_z.jpg)](https://c1.staticflickr.com/5/4498/37847834631_478552ea5f_z.jpg)
+![](https://c1.staticflickr.com/5/4498/37847834631_478552ea5f_z.jpg)
 
-再食**石烤鮑魚**（**전복구이**）  
+再食**石烤鮑魚（전복구이**）  
 有好香嘅牛油同更香鮮味嘅鮑魚  
 同加咗甜醬油超惹味嘅醬油牛油鮑魚  
 
-[![](https://c1.staticflickr.com/5/4489/37847830921_fa67c73b87_z.jpg)](https://c1.staticflickr.com/5/4489/37847830921_fa67c73b87_z.jpg)
+![](https://c1.staticflickr.com/5/4489/37847830921_fa67c73b87_z.jpg)
 
-肚仔餓嘛就叫多個熱辣辣**鮑魚蔘雞湯**（**매생이 전복 갈비탕**）  
+肚仔餓嘛就叫多個熱辣辣**鮑魚蔘雞湯（매생이 전복 갈비탕**）  
 煮鮑魚爆嫩滑  
 而且個"粥底"有埋融晒嘅鮑魚內臟  
 好濃郁好香好好味呀  
 
-[![](https://c1.staticflickr.com/5/4495/37137841284_97209e3a65_z.jpg)](https://c1.staticflickr.com/5/4495/37137841284_97209e3a65_z.jpg)
+![](https://c1.staticflickr.com/5/4495/37137841284_97209e3a65_z.jpg)
 
 配**톡쏘는 제주감귤막걸리**  
 呢隻比擒日嗰隻個酒味冇咁濃  
@@ -57,16 +57,16 @@ tags : [travel - 남한・제주 (濟州)]
 呢個區有好多用錢堆砌嘅博物館  
 同有個比擒日更唔特別嘅瀑布呀公園呀咁  
 
-[![](https://c1.staticflickr.com/5/4453/37137845324_05dfbe921e_z.jpg)](https://c1.staticflickr.com/5/4453/37137845324_05dfbe921e_z.jpg)
+![](https://c1.staticflickr.com/5/4453/37137845324_05dfbe921e_z.jpg)
 
-算啦，去**Yellow Cafe** (**옐로우카페**)坐吓啦  
+算啦，去**Yellow Cafe (옐로우카페**)坐吓啦  
 個yellow就係韓國國民飲料嘅**香蕉牛奶**  
 話說比首爾嗰間大啲  
 其實係得意嘅but講唔上哇好正一定要去咁囉  
 只不過係比去Starbucks好少少咁啫  
 啲位好好坐，舒舒服服（所以瞓著咗）  
 
-[![](https://c1.staticflickr.com/5/4480/37137844214_744a2236a7_z.jpg)](https://c1.staticflickr.com/5/4480/37137844214_744a2236a7_z.jpg)
+![](https://c1.staticflickr.com/5/4480/37137844214_744a2236a7_z.jpg)
 
 杯**milkshake**有雪糕同奶昔  
 冰咗嘅香蕉牛奶冇咁甜，都幾好味嘅  
@@ -75,13 +75,13 @@ tags : [travel - 남한・제주 (濟州)]
 @**中文新羅園**（**중문신라원**）  
 係呀都係要嚟食馬肉呀  
 
-[![](https://c1.staticflickr.com/5/4469/37137836214_7b7784ea35_z.jpg)](https://c1.staticflickr.com/5/4469/37137836214_7b7784ea35_z.jpg)
+![](https://c1.staticflickr.com/5/4469/37137836214_7b7784ea35_z.jpg)
 
 先嚟個**調味**嘅**生馬肉**  
 佢個味撈得超香  
 搞到一啖接一啖停唔到口  
 
-[![](https://c1.staticflickr.com/5/4446/37137838664_db622625c5_z.jpg)](https://c1.staticflickr.com/5/4446/37137838664_db622625c5_z.jpg)
+![](https://c1.staticflickr.com/5/4446/37137838664_db622625c5_z.jpg)
 
 再嚟份**烤馬肉**  
 冇任何調味就直接係馬肉原味  
@@ -89,7 +89,7 @@ tags : [travel - 남한・제주 (濟州)]
 有肉味不過仲未有牛咁濃  
 肉質嫩嫩咁都唔錯食呀  
 
-[![](https://c1.staticflickr.com/5/4496/37847835361_9cb6a668c9_z.jpg)](https://c1.staticflickr.com/5/4496/37847835361_9cb6a668c9_z.jpg)
+![](https://c1.staticflickr.com/5/4496/37847835361_9cb6a668c9_z.jpg)
 
 仲整多兜**馬肉shabu shabu**  
 薄薄片嘅馬肉淥一淥就食得  
@@ -103,7 +103,7 @@ tags : [travel - 남한・제주 (濟州)]
 但係兩個味一齊一啲都唔突兀  
 又幾好喎！  
 
-[![](https://c1.staticflickr.com/5/4466/37590069800_a0d374fdc5_z.jpg)](https://c1.staticflickr.com/5/4466/37590069800_a0d374fdc5_z.jpg)
+![](https://c1.staticflickr.com/5/4466/37590069800_a0d374fdc5_z.jpg)
 
 （**우도 땅콩술**）  
 今餐嘅makgeolli唔係濟州柑  
@@ -114,18 +114,18 @@ tags : [travel - 남한・제주 (濟州)]
 原本諗住試吓搭市內快車181、182號  
 不過又懶得去搵同行嗰遠少少嘅中區郵政局（중문우체국）  
 
-[![](https://c1.staticflickr.com/5/4450/37848331881_f501d630c7_z.jpg)](https://c1.staticflickr.com/5/4450/37848331881_f501d630c7_z.jpg)
+![](https://c1.staticflickr.com/5/4450/37848331881_f501d630c7_z.jpg)
 
 飽飽哋又去超市買吓嘢先～
 
-[![](https://c1.staticflickr.com/5/4494/37848331191_a353ccb390_z.jpg)](https://c1.staticflickr.com/5/4494/37848331191_a353ccb390_z.jpg)
+![](https://c1.staticflickr.com/5/4494/37848331191_a353ccb390_z.jpg)
 
-冇咁飽喇咪落返**每日偶來市場** (**서귀포매일올레시장**)食宵夜  
+冇咁飽喇咪落返**每日偶來市場 (서귀포매일올레시장**)食宵夜  
 夜晚果然多好多嘢 & 人
 先去炸雞counter訂炸雞
 拎張飛大概等九個字就返嚟攞雞
 
-[![](https://c1.staticflickr.com/5/4458/37848328931_c8f36cea22_z.jpg)](https://c1.staticflickr.com/5/4458/37848328931_c8f36cea22_z.jpg)
+![](https://c1.staticflickr.com/5/4458/37848328931_c8f36cea22_z.jpg)
 
 等食期間去食少少甜嘢先 @**귤하르방**  
 有熱辣辣造型好可愛嘅**石頭爺爺雞蛋糕**  
@@ -133,33 +133,27 @@ tags : [travel - 남한・제주 (濟州)]
 個蛋糕仔內餡係濟州柑醬  
 係地道濟州風味呢！
 
-[![](https://c1.staticflickr.com/5/4485/37138347924_9ec690b9f9_z.jpg)](https://c1.staticflickr.com/5/4485/37138347924_9ec690b9f9_z.jpg)
+![](https://c1.staticflickr.com/5/4485/37138347924_9ec690b9f9_z.jpg)
 
-癲㗎！超超超大份嘅**蒜香炸雞** @**중앙통닭**（**中央炸雞**）  
+癲㗎！超超超大份嘅**蒜香炸雞** @**중앙통닭（中央炸雞**）  
 新鮮炸起好熱仲爆香蒜味  
 即刻拎返酒店食喇
 
-[![](https://c1.staticflickr.com/5/4496/37848332411_26a81fc7df_z.jpg)](https://c1.staticflickr.com/5/4496/37848332411_26a81fc7df_z.jpg)
+![](https://c1.staticflickr.com/5/4496/37848332411_26a81fc7df_z.jpg)
 
 兼開電視睇**용화**嘅**더패키지《the package》**  
 酒店大床 x 大大部電視播容和 x 新鮮炸雞 x 酒  
 咪講笑！真係人生一大嘅享受～（心）  
 
-[![](https://c1.staticflickr.com/5/4486/37848330671_62b5193906_z.jpg)](https://c1.staticflickr.com/5/4486/37848330671_62b5193906_z.jpg)
+![](https://c1.staticflickr.com/5/4486/37848330671_62b5193906_z.jpg)
 
 夜晚沖完涼想飲啲甜嘢  
 隊咗枝濟州產嘅飲用乳酪（**홍스 요구르트**）  
 甜甜地又香奶味同OK酸，正！  
   
   
-
   
 
 食飽飽又滿滿足足咁瞓覺喇～  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：西歸浦 서귀포](https://www.hidie.net/2017/10/day-1_23.html)  
-Day2：西歸浦 서귀포 ⇋ 中文區 중문관광단지  
-[Day3：西歸浦 서귀포 ⇀ 濟州市 제주시](https://www.hidie.net/2017/10/day-3.html)
+{{<jeju>}}

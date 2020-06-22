@@ -27,30 +27,11 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 
 [![](https://c1.staticflickr.com/5/4564/38775214882_3ea181465e_z.jpg)](https://c1.staticflickr.com/5/4564/38775214882_3ea181465e_z.jpg)
 
-主食有**魚****魚****魚**啦梗係  
+主食有**魚魚魚**啦梗係  
 仲有哇哇哇好大兜嘅**葡式海鮮粥** (?)  
   
 哎呀呀，好好味呀  
 又唔覺意食到好飽㖭...（嗝）  
   
-\-----------------------------------------------  
-  
-  
-延伸閱讀：  
-[Day1：Hello Lisbon](https://www.hidie.net/2017/07/day1hello-lisbon.html)  
-[Day2：Lisboa → Porto](https://www.hidie.net/2017/07/day2lisboa-porto.html)  
-[Day3：Porto ↔ Vila Nova de Gaia](https://www.hidie.net/2017/07/day3porto-vila-nova-de-gaia.html)  
-[Day4：Porto](http://www.hidie.net/2017/07/day4porto.html)  
-[Day5：Porto ↔ Barcelos](http://www.hidie.net/2017/07/day5porto-barcelos.html)  
-[Day6：Porto ↔ Guimarães](http://www.hidie.net/2017/07/day6porto-guimaraes.html)  
-[Day7：Porto (～Santa Clara)](http://www.hidie.net/2017/08/day7porto-santa-clara.html)  
-[Day8：Porto ↔ Pinhão](http://www.hidie.net/2017/08/day8porto-pinhao.html)  
-[Day9：Porto (...Matosinhos)](http://www.hidie.net/2017/08/day9porto-matosinhos.html)  
-[Day10：Porto → Lisboa](http://www.hidie.net/2017/08/day10porto-lisboa.html)  
-[Day11：Lisboa ↔ Sintra](http://www.hidie.net/2017/08/day11lisboa-sintra.html)  
-[Day12：Lisboa (～Belém)](http://www.hidie.net/2017/08/day12lisboa-belem.html)  
-[Day13：Lisboa (...Arroios)](http://www.hidie.net/2017/08/day13lisboa-arroios.html)  
-[Day14：Lisboa](http://www.hidie.net/2017/08/day14lisboa.html)  
-[Day15：Lisboa ↔ Cascais](http://www.hidie.net/2017/08/day15lisboa-cascais.html)  
-[Day16：Lisboa（...Oriente）](http://www.hidie.net/2017/08/day16lisboaoriente.html)  
-[Day17：Lisboa](http://www.hidie.net/2017/08/day17lisboa.html)
+
+{{<portugal>}}  

@@ -80,11 +80,11 @@ Mmm... 今日個天氣嘛...
 
 照行山囉（嘻）  
 
-![](https://odepwq.ch.files.1drv.com/y4m6eTyP2CLYCoC_CNDaZrx8_Lhv-SRoc1AEhkOrRuXdpgryBNzUFwMPq_6YsiLRDN5q8LUU1Q5ftfBliXqEZxy8LCEyfVBAXT71qMZZQwN6b8RcOiZI9dwUgQ3FozWjDTzCKamLOr1qDuK6cldg4tKd10MOfS1b92bZH6JUVofhu_3P3c8VbGUZ8QElV_ENdZPffMrZNpFjthGbuUqjaCK-w?width=660&height=371&cropmode=none)
+![](/images/kanagawa1g2.jpg)
 
 海天一色... 灰...  
 
-![](https://mtekwq.ch.files.1drv.com/y4mhl91hi5IRkNCt3ak8LJTuw8YVRuT3E3jUDxDaKz08kyObsjBHiYZDl1HmaMhBkHF8lg91xw2E980JW84Jss0Bmjum-oTkG3uBs01Mqr_bIazCYglNzUsznH4YlpGFxK5tF3YFapbYp41WDodzz4sY6tK-YCAhw4D9nmxTdlmkTFen6jdC_xrv2GfdjbfxhEuZLzEisjtE5lhBhkS3cjwJA?width=660&height=371&cropmode=none)
+![](/images/kanagawa1g6.jpg)
 
 落住雨行泥濘路  
 對新白布鞋一秒長大舊化了 XD  
@@ -97,11 +97,11 @@ Mmm... 今日個天氣嘛...
 
 hello**相模湾**  
 
-![](https://bv2g5g.ch.files.1drv.com/y4mc8TqmS8KKBpK3a1yMGgmOHjTO14XrCBo0TIQKJGCwxfwoI6s6P4fQKzJULdhTY8-y1O9iEoOT8R0-57bjhnhxj6t-dIPLHex-NezmvuUUaY-PmwxC1T6WGRKAUYjwh7IkXwm-752YR5s5XLK09WhXo32xzUMoxdCVfkQzwaqa5v_iVGvCWmVAr7aAoFUy0FyfT_vIElAxWUInYQYZO0ujQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa1g10.jpg)
 
 下面個海蝕洞叫**馬の背洞門**  
 
-![](https://mteqwq.ch.files.1drv.com/y4mAURq5vjFRhaAw67DYEx0NXM09kfBnNFSrdjzNvcM2p4qlvTifeHs2MC36yErn9sm5eqzpwAF_5DYCKUo0Cebr5uWcmU4FfsnvfLOkAD-swMk9IHHKCxaBy6feGdHILuCvldAN_1wn19JQqmLbK6m4SnV9_h6y4KlRsLcVgeMiq4MbxzYnex3JjPAmHkSYH1KOUfN18hjYqcux790z0zdfg?width=660&height=371&cropmode=none)
+![](/images/kanagawa1g12.jpg)
 
 行前多少少，有個細細薰衣草小花園  
 
@@ -112,17 +112,17 @@ hello**相模湾**
 不過雨大浪大唔落喇  
 話晒個海係太平洋，捲落去就唔好啦（珍惜生命）  
 
-![](https://m9emwq.ch.files.1drv.com/y4mdSWOEHgpF72bXqnXkcShRFA9niQf8iX8B8igzp8wTNhzdHXPJan2KVcGwUg13n2HO9p0DVWCqXn0N5Jd-ZOSLI7-qo3uz_oLVTVSPvW7ENQ07tpxGK-6Hhp8gPntQ1UCVx08IriDdqD1VcazK48sXwtJoDseF0XP2PsbhmvPVdTrmOO4THkCJewN6Vj2g6M-sKvs9gwHHp003vhzJ9hzkQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa1g17.jpg)
 
 check point 3  
 如果天朗氣清會見到對出對落嘅島sss  
 but今日嘛... 都叫見到啲黑影嘅...  
 
-![](https://nnejwq.ch.files.1drv.com/y4m706Veokx2fJOHxRrEyFWjGdDvk9EC_fQDsI2B5qKxskZq5tlma7ReEI4KEPya3qZlJ3gGaypWF7qfhaBKAvZ08vPrIyB4veloNGTCvEoqLwfJLsUvJIEssmheIK5jWlXys1m2G9jNl0cgn1lpmMMYSF0crsfXN8Kx8pFnbCXCoBRQPH2IgWaAJyTgGnFN0fD1MI7kamUPY4KyeoK0Kxfiw?width=660&height=371&cropmode=none)
+![](/images/kanagawa1h.jpg)
 
 山路路程短短話咁快就行完  
 啲雨越嚟越大粒都係搭返巴士去**三崎港**  
-（it's **城ヶ島大橋**，好大條橋㗎其實)  
+（it's [城ヶ島大橋](https://hidie.net/kanagawa1h./)，好大條橋㗎其實)  
 
 ![](https://bv2n5g.ch.files.1drv.com/y4ma7WmLX_mpIhhX06BPrKtVsnrmFyEFUYp83nd5y35kIzTM_RvuPgVBDL2ifFYSFjmgV04mRVc21GLn3XmZyZIt5bTi2j3nekeG-8XUEkeMMtyKYOozlG2Fq0yU7Ct8wOcKqNjMqFY4muZ8Whi9sTxJkhEUp4tzHwnRCcDrFklLesOpCgpkRXW9f8xRBmhhECTu9Rivw3g5z_5vEc9z_Ha5A?width=660&height=371&cropmode=none)
 

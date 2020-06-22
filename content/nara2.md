@@ -14,7 +14,7 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 
 [![](https://c1.staticflickr.com/5/4396/36206420464_ce2856bf78_z.jpg)](https://c1.staticflickr.com/5/4396/36206420464_ce2856bf78_z.jpg)
 
-慢慢漫步去**[春日大社](http://www.hidie.net/2017/10/day2.html)**  
+慢慢漫步去[春日大社](http://www.hidie.net/2017/10/day2.html)  
 紅噹噹嘅神社  
 同擒日嘅五重塔一樣係世界遺產  
 建於和銅二年（710年）  
@@ -32,7 +32,7 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 
 [![](https://c1.staticflickr.com/5/4341/36900668861_7412e74c8b_z.jpg)](https://c1.staticflickr.com/5/4341/36900668861_7412e74c8b_z.jpg)
 
-去食奔廚喇 @**[玄](http://www.hidie.net/2017/10/day2_31.html)**  
+去食奔廚喇 @[玄](http://www.hidie.net/2017/10/day2_31.html)  
 原本full晒㗎，但店家話啱啱有人cancel咗  
 執死雞get！（撒花）  
 唔好睇少呢兜**そば**  
@@ -47,7 +47,7 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 
 食完嘢又就去飲返杯先  
 奈良嘛～ 係**日本酒発祥の地**  
-要飲，梗係唔可以錯過嚟歷史悠久嘅**[春鹿](http://www.hidie.net/2017/11/day-2.html)**飲啦  
+要飲，梗係唔可以錯過嚟歷史悠久嘅[春鹿](http://www.hidie.net/2017/11/day-2.html)飲啦  
 500円試5杯仲可以帶走埋隻杯  
 （其實係飲咗6杯）  
 又食又拎呀好無敵係咪？  
@@ -55,18 +55,18 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 [![](https://c1.staticflickr.com/5/4392/37116555815_e0abf76068_z.jpg)](https://c1.staticflickr.com/5/4392/37116555815_e0abf76068_z.jpg)
 
 飲到一肚水參觀吓町屋  
-@**[奈良町 ならまち格子の家](http://www.hidie.net/2017/11/day2.html)**  
+@[奈良町 ならまち格子の家](http://www.hidie.net/2017/11/day2.html)  
 窺探吓以前嘅屋，幾過癮吖（仲要無料入場㖭）  
 
 [![](https://c1.staticflickr.com/5/4333/36234134403_32fc87f8eb_z.jpg)](https://c1.staticflickr.com/5/4333/36234134403_32fc87f8eb_z.jpg)
 
 行吓行吓就搵地方坐吓食吓  
-**樫舎の氷 わらび餅入り** @**[萬御菓子誂處 樫舎](http://www.hidie.net/2017/11/day2_2.html)**  
+**樫舎の氷 わらび餅入り** @[萬御菓子誂處 樫舎](http://www.hidie.net/2017/11/day2_2.html)  
 有啲熱呢就要隊返碗期間限定嘅刨冰  
 
 [![](https://c1.staticflickr.com/5/4418/37041829385_dbe8be222e_z.jpg)](https://c1.staticflickr.com/5/4418/37041829385_dbe8be222e_z.jpg)
 
-下午茶時間 @**[大仏プリン](http://www.hidie.net/2017/11/day2_61.html)**  
+下午茶時間 @[大仏プリン](http://www.hidie.net/2017/11/day2_61.html)  
 好滑呀好滑呀好滑呀呀呀呀呀～  
 
 [![](https://c1.staticflickr.com/5/4372/36853754396_94fdc748d2_z.jpg)](https://c1.staticflickr.com/5/4372/36853754396_94fdc748d2_z.jpg)
@@ -75,7 +75,7 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 嗱～ 原本諗住晚餐食懷石料理  
 點知又係得到full booking呢個答覆  
 好啦好啦訂聽日枱啦咁  
-咁今晚呢，就去返擒晚full咗嘅居酒屋**[亜耶](http://www.hidie.net/2017/11/day2_3.html)**  
+咁今晚呢，就去返擒晚full咗嘅居酒屋[亜耶](http://www.hidie.net/2017/11/day2_3.html)  
 呵呵呵今晚早少少去所以未爆lucky  
 無計啦呢間都係Michelin Nara推介店  
 （嘻，一日兩餐Michelin都咪話唔威威）  

@@ -8,7 +8,7 @@ tags : [amusement - films]
 
 來不及看小說就上畫  
 
-[![](https://3.bp.blogspot.com/-_YKtUg6trAY/XE287J8GFcI/AAAAAAAAHwQ/jz1BtoW6vMofXTBYq8hRdlKQ3g4uPc1_ACLcBGAs/s640/15770300581_d35933b2ef_z.jpg)](https://3.bp.blogspot.com/-_YKtUg6trAY/XE287J8GFcI/AAAAAAAAHwQ/jz1BtoW6vMofXTBYq8hRdlKQ3g4uPc1_ACLcBGAs/s1600/15770300581_d35933b2ef_z.jpg)
+![](/images/kawaki.jpg)
 
 改編自深町秋生的小說《果てしなき渇き》  
 由中島哲也執導  

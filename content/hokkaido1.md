@@ -34,7 +34,7 @@ YES！一！大！疊！
 [![](https://c1.staticflickr.com/5/4459/36587586773_4f1e1c1246_z.jpg)](https://c1.staticflickr.com/5/4459/36587586773_4f1e1c1246_z.jpg)
 
 新千歳空港 → 南千歲  
-（**快速エアポート****、733系**）  
+（**快速エアポート、733系**）  
 
 [![](https://c1.staticflickr.com/5/4422/37228167782_c43b21c802_z.jpg)](https://c1.staticflickr.com/5/4422/37228167782_c43b21c802_z.jpg)
 
@@ -65,7 +65,7 @@ YES！一！大！疊！
 
 [![](https://c1.staticflickr.com/5/4428/36547326684_47fa86bd48_z.jpg)](https://c1.staticflickr.com/5/4428/36547326684_47fa86bd48_z.jpg)
 
-**帯広（****帯広****駅****）**  
+**帯広（帯広駅）**  
 响酒店check-in咗就開始食嘢喇  
 
 [![](https://c1.staticflickr.com/5/4461/37001637050_3b4d472997_z.jpg)](https://c1.staticflickr.com/5/4461/37001637050_3b4d472997_z.jpg)
@@ -99,14 +99,4 @@ YES！一！大！疊！
 落樓浸返個溫泉先瞓覺（Zzz）  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-Day1：新千歳空港 → 帯広  
-[Day2：帯広 → 釧路](https://www.hidie.net/2017/09/day2_29.html)  
-[Day3： 釧路 → 塘路 → 網走](https://www.hidie.net/2017/10/day3.html)  
-[Day4： 網走 → 旭川](https://www.hidie.net/2017/10/day4.html)  
-[Day5： 旭川 → 稚內](https://www.hidie.net/2017/10/day5.html)  
-[Day6： 稚內 → 札幌](https://www.hidie.net/2017/10/day6.html)  
-[Day7： 札幌 ↔ 小樽](https://www.hidie.net/2017/10/day7.html)  
-[Day8： 札幌 → 新千歳空港](https://www.hidie.net/2017/10/day8.html)
+{{<hokkaido>}}

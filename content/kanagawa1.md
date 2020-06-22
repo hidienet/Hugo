@@ -122,17 +122,17 @@ but今日嘛... 都叫見到啲黑影嘅...
 
 山路路程短短話咁快就行完  
 啲雨越嚟越大粒都係搭返巴士去**三崎港**  
-（it's [城ヶ島大橋](https://hidie.net/kanagawa1h./)，好大條橋㗎其實)  
+（it's [城ヶ島大橋](https://hidie.net/kanagawa1h/)，好大條橋㗎其實)  
 
 ![](/images/kanagawa1h1.jpg)
 
 如～果～要睇吞拿魚拍賣就嚟呢個**みさき魚市場**  
 唔駛登記唔限人數啱時間入去睇就可以  
 
-![](https://bv2l5g.ch.files.1drv.com/y4mxEge776Ktx2ZPj-Ka_fkkkmOJB_GaHsu5BHqeqp6s2xLHKsgjO3UiCn63EpBF4CaF_ubrU6C5Hb6eLiLWXwcAegySJy6qMiVTuDmXymwijWacSEO3W_hzj3FiFkvfbkc63JTp5DwWGK8aSNXW6wjyOftjNzPKGbaESA2p85uFu835v_AfkpJHY6ExksE_m7f4D4o7HmiFIalWKc3dNZPYw?width=660&height=371&cropmode=none)
+![](/images/kanagawa1i.jpg)
 
 冇咩興趣睇拍賣 & 條魚都食咗啦  
-去間古老樣嘅酒店飲返杯先 @**山田屋酒店**  
+去間古老樣嘅酒店飲返杯先 @[山田屋酒店](https:hidie.net/kanagawa1i/)  
 兩隻都係神奈川限定販売出品  
 **「寶CRAFT」＜小田原うめ＞** - 清爽嘅梅味有氣liqueur  
 **湘南ゴールド サワー** - 酸爽清甜帶微苦嘅檸檬味汽酒  

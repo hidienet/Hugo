@@ -10,7 +10,7 @@ tags : [amusement - films]
 一致好評，當中有的很推薦給我  
 更有的說是很適合我看的戲  
 
-[![](https://1.bp.blogspot.com/-A49Mka6wLSE/XFbJxXH2JyI/AAAAAAAAH3A/FsHDu7em8ic8OHy6KwaaGjLWP89cnKgNgCLcBGAs/s640/15633227668_1bbe32011c_z.jpg)](https://1.bp.blogspot.com/-A49Mka6wLSE/XFbJxXH2JyI/AAAAAAAAH3A/FsHDu7em8ic8OHy6KwaaGjLWP89cnKgNgCLcBGAs/s1600/15633227668_1bbe32011c_z.jpg)
+![](/images/gonegirl.jpg)
 
 所以，襯還未落畫又老屈HIMHIM陪我看（些些）  
 同名原著小說同一作者為編劇（Gillian Flynn）  

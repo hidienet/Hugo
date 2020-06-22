@@ -26,7 +26,7 @@ tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩
 [![](https://c1.staticflickr.com/3/2842/33661868315_6c63ec78e4_z.jpg)](https://c1.staticflickr.com/3/2842/33661868315_6c63ec78e4_z.jpg)
 
 再加埋啤酒啦，多D營養到肚  
-但係個kinchi係想點呢？勁唔咩廚  
+但係個kimchi係想點呢？勁唔咩廚  
 
 [![](https://c1.staticflickr.com/3/2924/33532280231_839ffdf352_z.jpg)](https://c1.staticflickr.com/3/2924/33532280231_839ffdf352_z.jpg)
 

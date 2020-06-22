@@ -239,14 +239,5 @@ but吸引唔到我呀放棄咗轉身byebye
 真係飲飽食醉喇，瞓覺去...  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：新千歳空港 → 帯広](https://www.hidie.net/2017/09/day1_28.html)  
-Day2：帯広 → 釧路  
-[Day3： 釧路 → 塘路 → 網走](https://www.hidie.net/2017/10/day3.html)  
-[Day4： 網走 → 旭川](https://www.hidie.net/2017/10/day4.html)  
-[Day5： 旭川 → 稚內](https://www.hidie.net/2017/10/day5.html)  
-[Day6： 稚內 → 札幌](https://www.hidie.net/2017/10/day6.html)  
-[Day7： 札幌 ↔ 小樽](https://www.hidie.net/2017/10/day7.html)  
-[Day8： 札幌 → 新千歳空港](https://www.hidie.net/2017/10/day8.html)
+
+{{<hokkaido>}}

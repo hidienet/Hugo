@@ -9,7 +9,7 @@ tags : [amusement - zene]
 看軟硬就是為了笑一晚  
 （不會以為是欣賞他們的唱功吧）  
 
-[![](https://4.bp.blogspot.com/-PynOvAsBTV4/XCi4V1kiJhI/AAAAAAAADeo/nTNtRzk342cunyM-xPsgsJhlAxdg79lIQCLcBGAs/s640/24.jpg)](https://4.bp.blogspot.com/-PynOvAsBTV4/XCi4V1kiJhI/AAAAAAAADeo/nTNtRzk342cunyM-xPsgsJhlAxdg79lIQCLcBGAs/s1600/24.jpg)
+![](/images/hehaopera.jpg)
 
 整個show以載歌載舞形式呈現  
 集體回憶+諷刺時弊時不能缺少  

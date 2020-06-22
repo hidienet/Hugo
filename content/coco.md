@@ -8,7 +8,7 @@ tags : [amusement - films]
 
 Pixar嘅動畫，係唔適合小朋友收看㗎...
 
-[![](https://c1.staticflickr.com/5/4587/24415384897_8a038b0bf7_z.jpg)](https://c1.staticflickr.com/5/4587/24415384897_8a038b0bf7_z.jpg)
+![](/images/coco.jpg)
 
 唔係話呢套片色情暴力嗰啲  
 係個主體其實幾深  

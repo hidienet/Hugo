@@ -37,6 +37,8 @@ H.O.T.的全寫是High-five of Teenager
 （因為歌曲都很舊了，質素較差也沒有辦法）  
 （又，其實MV也不錯但我就是喜歡live）  
 
+{{<youtube ZSzC0ULMGPU>}}
+
 《candy》  
 （專輯：We Hate All Kinds of Violence）  
 萬聽不厭的曲調  
@@ -48,6 +50,8 @@ H.O.T.的全寫是High-five of Teenager
 但怎說我也是最愛《candy》  
 音樂輕快服裝可愛吸睛跳舞又有趣  
 
+{{<youtube I3IH9IQugI8>}}
+
 《행복 (Full of Happiness)》  
 （專輯： Wolf and Sheep：늑대와 양）  
 又是不選擇主打歌的一首  
@@ -58,6 +62,8 @@ H.O.T.的全寫是High-five of Teenager
 超陽光非常活力的歌  
 聽完心情也像晴天一樣～  
 
+{{<youtube 0znc_55WOjo>}}
+
 《빛 (HOPE)》  
 （專輯： Resurrection: 부활）  
 掙扎了很久...  
@@ -66,6 +72,8 @@ H.O.T.的全寫是High-five of Teenager
 好吧～ 我覺得兩首都好  
 但慢歌會聽到有點悶  
 而這首的旋律會一直讓我「un落去」  
+
+{{<youtube x_dmyF1P6uw>}}
 
 《아이야! (I yah!)》  
 （專輯：아이야! (I yah!)）  
@@ -76,6 +84,8 @@ H.O.T.的全寫是High-five of Teenager
 而且這邊那邊的彈彈彈舞步也好看  
 這隻碟有一半都是talk talk環節  
 直接看還以為有那麼多首歌，哈哈  
+
+{{<youtube 0JkJDVDMGes>}}
 
 《For 연가(姸歌)(A Song For Lady)》  
 （專輯：They Are Nothing Different With Us）  

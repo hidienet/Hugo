@@ -17,7 +17,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 
 [![](https://yehvoq.ch.files.1drv.com/y4m97T93h2V57L2_h_ShU-y8v2W_85o1imgsyqd1mNTnq8zD5-WlUN9FhAPMmU-mrabWDRKIhEXTbX3k0X-lbKGT1R_zFRjyUmGyF3xeYYkyws0CG16w8bZrNNpNVbqUfNmwzT_weu-iB5meMzEYrCgFGNiXvbp_Qf8oG6NivpXU9azydUG23mq2xxKcrHIsS9cTQA4CsTllepDHDcDOG2M6g?width=660&height=372&cropmode=none)](https://yehvoq.ch.files.1drv.com/y4m97T93h2V57L2_h_ShU-y8v2W_85o1imgsyqd1mNTnq8zD5-WlUN9FhAPMmU-mrabWDRKIhEXTbX3k0X-lbKGT1R_zFRjyUmGyF3xeYYkyws0CG16w8bZrNNpNVbqUfNmwzT_weu-iB5meMzEYrCgFGNiXvbp_Qf8oG6NivpXU9azydUG23mq2xxKcrHIsS9cTQA4CsTllepDHDcDOG2M6g?width=660&height=372&cropmode=none)
 
-@**[豊丸水産 海賊浜焼き](https://www.hidie.net/2020/03/day1.html)**  
+@[豊丸水産 海賊浜焼き](https://www.hidie.net/2020/03/day1.html)  
 食浜焼き啦食刺身啦食蒸蠔啦  
 海鮮海鮮海鮮，水產嘅海鮮就係新鮮囉  
 都有肉食嘅不過麻麻地啦  
@@ -27,7 +27,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 
 [![](https://yohsoq.ch.files.1drv.com/y4mCF8gIIc70Bk-q6ci1TSMmuK3qoWIpu5PWtCaiVkgTgqDQ5B3ZC7zBmSTLDo6C0JhGaXAZFE4JY-3Ak8lNeTtODmCnBT3aEtc0CWDP5VAsmDiXcfFnUVlx4yi1UcBgSE2APqWWv59wFiJydzA7rxglBnKfshdooi605hPHtlBJRm8boV82rO4Dbrb7-hIHb2bRb2V7Gm7Zb0BeTmEVo6gtg?width=660&height=371&cropmode=none)](https://yohsoq.ch.files.1drv.com/y4mCF8gIIc70Bk-q6ci1TSMmuK3qoWIpu5PWtCaiVkgTgqDQ5B3ZC7zBmSTLDo6C0JhGaXAZFE4JY-3Ak8lNeTtODmCnBT3aEtc0CWDP5VAsmDiXcfFnUVlx4yi1UcBgSE2APqWWv59wFiJydzA7rxglBnKfshdooi605hPHtlBJRm8boV82rO4Dbrb7-hIHb2bRb2V7Gm7Zb0BeTmEVo6gtg?width=660&height=371&cropmode=none)
 
-**[井村屋 やわもちアイス kiri クリームチーズ ](https://www.hidie.net/2020/03/day1-kiri.html)**  
+[井村屋 やわもちアイス kiri クリームチーズ ](https://www.hidie.net/2020/03/day1-kiri.html)  
 飽得滯所以個甜品宵夜要夜啲先响便利店先食  
   
   
@@ -37,10 +37,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 \-----------------------------------------------  
   
 
-延伸閱讀：
-
-[食の四国ツアー (8D7N)](https://www.hidie.net/2020/05/8d7n.html)
-
+延伸閱讀：[食の四国ツアー (8D7N)](https://www.hidie.net/2020/05/8d7n.html)  
 Day1：香川（高松）  
 [Day2：香川（高松、丸亀、琴平）](https://www.hidie.net/2017/08/day2.html)  
 [Day3：香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/2017/08/day3.html)  

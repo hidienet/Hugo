@@ -18,7 +18,7 @@ tags : [travel - 日本（北海道蝦夷）・ 十勝帯広、釧路、北見�
 
 [![](https://c1.staticflickr.com/5/4382/37411208991_fe29153bc7_z.jpg)](https://c1.staticflickr.com/5/4382/37411208991_fe29153bc7_z.jpg)
 
-啦啦啦～ 朝早就飲吓**雪印  - ソフトカツゲン**  
+啦啦啦～ 朝早就飲吓**雪印 - ソフトカツゲン**  
 當然因為係北海道限定嘅乳酸飲品  
 牛奶味重啲又冇咁甜嘅益力多  
 喂好好飲呀佢，北海道人真係好幸福呢  
@@ -98,7 +98,7 @@ tea time就食超豐富嘅稚內の駅弁「**海の七つ星**」
 [![](https://c1.staticflickr.com/5/4472/36751914343_dc084a6e72_z.jpg)](https://c1.staticflickr.com/5/4472/36751914343_dc084a6e72_z.jpg)
 
 飲嘢就係北海道限定嘅酸酸地果味水  
-**I LOHAS(い・ろ・は・す) - ハスカップ **  
+**I LOHAS(い・ろ・は・す) - ハスカップ**  
 
 [![](https://c1.staticflickr.com/5/4382/37391560802_45283a245a_z.jpg)](https://c1.staticflickr.com/5/4382/37391560802_45283a245a_z.jpg)
 
@@ -139,7 +139,7 @@ and **狸小路商店街**
 
 [![](https://c1.staticflickr.com/5/4366/23570809688_b39be2060f_z.jpg)](https://c1.staticflickr.com/5/4366/23570809688_b39be2060f_z.jpg)
 
-食完幾隻蠔就走去**いただきます。**等位  
+食完幾隻蠔就走去**いただきます。** 等位  
 有諗過食ジンギスカン (成吉思汗)就去元祖店だるま  
 不過只有いただきます。係全北海道産羊嘛  
 嫩滑唔羶又帶肉香  
@@ -156,14 +156,4 @@ and **狸小路商店街**
 有咩聽朝先講啦～～～  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：新千歳空港 → 帯広](https://www.hidie.net/2017/09/day1_28.html)  
-[Day2：帯広 → 釧路](https://www.hidie.net/2017/09/day2_29.html)  
-[Day3： 釧路 → 塘路 → 網走](https://www.hidie.net/2017/10/day3.html)  
-[Day4： 網走 → 旭川](https://www.hidie.net/2017/10/day4.html)  
-[Day5： 旭川 → 稚內](https://www.hidie.net/2017/10/day5.html)  
-Day6： 稚內 → 札幌  
-[Day7： 札幌 ↔ 小樽](https://www.hidie.net/2017/10/day7.html)  
-[Day8： 札幌 → 新千歳空港](https://www.hidie.net/2017/10/day8.html)
+{{<hokkaido>}}

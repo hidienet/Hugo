@@ -231,10 +231,4 @@ then，又行過橋嘅另一邊食晚餐
 太舒服喇今晚一定好好瞓，good night～  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：苗栗市 ↔ 南庄鄉](https://www.hidie.net/2019/12/day1-50.html)  
-[Day2：苗栗市 → 三義鄉 → 後龍鎮](https://www.hidie.net/2019/12/day2.html)  
-Day3：苗栗市 → 泰安鄉  
-[Day4：泰安鄉 → 苗栗市](https://www.hidie.net/2019/12/day4.html)
+{{<miaoli>}}

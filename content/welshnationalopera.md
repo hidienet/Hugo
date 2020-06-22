@@ -8,7 +8,7 @@ tags : [amusement - zene]
 
 聽opera，唔一定係悶嘅...  
 
-[![](https://c1.staticflickr.com/1/805/40816041422_e8ea2b83f5_z.jpg)](https://c1.staticflickr.com/1/805/40816041422_e8ea2b83f5_z.jpg)
+![](/images/welshnationalopera.jpg)
 
 睇吓聽咩歌邊種歌啦  
 好似頭先响文化中心個大堂席地而坐  
@@ -19,7 +19,7 @@ tags : [amusement - zene]
 同一個男高音嚟獻唱  
 仲有一個鋼琴手現場演繹  
 
-[![](https://c1.staticflickr.com/1/787/40816041822_c2fc5c4174_z.jpg)](https://c1.staticflickr.com/1/787/40816041822_c2fc5c4174_z.jpg)
+![](/images/welshnationalopera1.jpg)
 
 除咗輕鬆愉快三重唱之外  
 二重唱又唱出個調皮感  

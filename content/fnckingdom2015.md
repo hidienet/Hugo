@@ -10,7 +10,7 @@ tags : [amusement - zene]
 我超愛CNBLUE，也很喜歡FTISLAND  
 而AOA、N.Flying、JUNIEL亦沒有討厭的理由  
 
-[![](https://farm8.staticflickr.com/7730/17628946718_fb3b2f842e_z.jpg)](https://farm8.staticflickr.com/7730/17628946718_fb3b2f842e_z.jpg)
+![](/images/fnckingdom2015.jpg)
 
 所以這個FNC KINGDOM  
 （FNC是指Fish and Cake，哈哈真的哦～）  
@@ -37,7 +37,7 @@ high到一整晚在跳在叫
 （好吧！這個世界最不會騙我的人是他！）  
 相對於要坐側邊同下面standing一樣價格的貴飛  
 
-[![](https://farm9.staticflickr.com/8861/17790444376_14140585e9_z.jpg)](https://farm9.staticflickr.com/8861/17790444376_14140585e9_z.jpg)
+![](/images/fnckingdom2015a.jpg)
 
 照片是坐在座位上於完場時拍攝  
 我們就坐對正舞台的地方（！）  
@@ -606,12 +606,12 @@ AOA第二場的衫也較第一場漂亮
 不過賣光了，呵～  
 但也有紀念品...  
 
-[![](https://farm9.staticflickr.com/8834/17813985742_4fe85416bc_z.jpg)](https://farm9.staticflickr.com/8834/17813985742_4fe85416bc_z.jpg)
+![](/images/fnckingdom2015b.jpg)
 
 exclusive ticket holder（吹口哨）  
 有了這個連$50的紙袋也完全沒有購買的理由  
 
-[![](https://farm6.staticflickr.com/5468/17196397553_e240825874_z.jpg)](https://farm6.staticflickr.com/5468/17196397553_e240825874_z.jpg)
+![](/images/fnckingdom2015c.jpg)
 
 HIMHIM還把印章蓋的很工整呢  
 （我還拿了一個完全乾淨沒有蓋章的，嘻～）  

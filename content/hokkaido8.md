@@ -83,14 +83,4 @@ JR pass得7日今日唔包嘛
 返香港，繼續捱騾仔喇（淚）  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：新千歳空港 → 帯広](https://www.hidie.net/2017/09/day1_28.html)  
-[Day2：帯広 → 釧路](https://www.hidie.net/2017/09/day2_29.html)  
-[Day3： 釧路 → 塘路 → 網走](https://www.hidie.net/2017/10/day3.html)  
-[Day4： 網走 → 旭川](https://www.hidie.net/2017/10/day4.html)  
-[Day5： 旭川 → 稚內](https://www.hidie.net/2017/10/day5.html)  
-[Day6： 稚內 → 札幌](https://www.hidie.net/2017/10/day6.html)  
-[Day7： 札幌 ↔ 小樽](https://www.hidie.net/2017/10/day7.html)  
-Day8： 札幌 → 新千歳空港
+{{<hokkaido>}}

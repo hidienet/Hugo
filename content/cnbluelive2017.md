@@ -10,7 +10,7 @@ CNBLUE喎
 等咗兩年喇我！  
 你唔係以為我會唔睇呀嘛？！  
 
-[![](https://c1.staticflickr.com/5/4422/35907053973_9ae4e32764_z.jpg)](https://c1.staticflickr.com/5/4422/35907053973_9ae4e32764_z.jpg)
+![](/images/cnbluelive2017.jpg)
 
 有冇啲隔住個芒都聽到我嗰啲高廿八度嘅尖叫聲呢？哈～  
   

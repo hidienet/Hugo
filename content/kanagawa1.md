@@ -124,7 +124,7 @@ but今日嘛... 都叫見到啲黑影嘅...
 啲雨越嚟越大粒都係搭返巴士去**三崎港**  
 （it's [城ヶ島大橋](https://hidie.net/kanagawa1h./)，好大條橋㗎其實)  
 
-![](https://bv2n5g.ch.files.1drv.com/y4ma7WmLX_mpIhhX06BPrKtVsnrmFyEFUYp83nd5y35kIzTM_RvuPgVBDL2ifFYSFjmgV04mRVc21GLn3XmZyZIt5bTi2j3nekeG-8XUEkeMMtyKYOozlG2Fq0yU7Ct8wOcKqNjMqFY4muZ8Whi9sTxJkhEUp4tzHwnRCcDrFklLesOpCgpkRXW9f8xRBmhhECTu9Rivw3g5z_5vEc9z_Ha5A?width=660&height=371&cropmode=none)
+![](/images/kanagawa1h1.jpg)
 
 如～果～要睇吞拿魚拍賣就嚟呢個**みさき魚市場**  
 唔駛登記唔限人數啱時間入去睇就可以  

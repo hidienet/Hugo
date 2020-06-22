@@ -153,14 +153,5 @@ home sweet home嘅今晚有非常"荷蘭味"嘅vodka：**Weedka**！！！
 因為聽朝唔可以太晏起床喔～  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：Amsterdam（Pesca）](https://www.hidie.net/2019/07/day1amsterdampesca.html)  
-[Day2：Alkmaar（Kaasmarkt） → Amsterdam（Kingsnight）](https://www.hidie.net/2019/07/day2alkmaarkaasmarkt-amsterdamkingsnight.html)  
-[Day3：Amsterdam（King's Day）](https://www.hidie.net/2019/07/day3amsterdamkings-day.html)  
-[Day4.1：Hoorn → Medemblik（IJsselmeer）](https://www.hidie.net/2019/08/day41hoorn-medemblikijsselmeer.html)  
-Day4.2：IJsselmeer → Enkhuizen → Hoorn → Amsterdam  
-[Day5：Keukenhof → Amsterdam](https://www.hidie.net/2019/09/day5keukenhof-amsterdam.html)  
-[Day6：Amsterdam](https://www.hidie.net/2019/10/day6amsterdam.html)  
-[Day7：Amsterdam, AMS → HKG](https://www.hidie.net/2019/10/day7amsterdam-ams-hkg.html)
+
+{{<amsterdam>}}  

@@ -8,7 +8,7 @@ tags : [amusement - zene]
 
 好興奮好興奮好興奮（尖叫～）  
 
-[![](https://farm8.staticflickr.com/7348/16590617321_b7d0e324b1_z.jpg)](https://farm8.staticflickr.com/7348/16590617321_b7d0e324b1_z.jpg)
+![](/images/jyhlive150319.jpg)
 
 雖然個人較喜歡band（CNBLUE）多過solo  
 不過有靚仔有歌聽就已經好興奮好興奮（喪loop）  

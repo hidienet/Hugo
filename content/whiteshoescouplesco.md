@@ -11,7 +11,7 @@ tags : [amusement - zene]
 都可以keep住當初嘅歌聲同風格  
 （仲有個復古嘅造型）  
 
-[![](https://c1.staticflickr.com/1/869/39601065880_f2e1395cc0_z.jpg)](https://c1.staticflickr.com/1/869/39601065880_f2e1395cc0_z.jpg)
+![](/images/whiteshoescouplesco.jpg)
 
 呢隻碟我好珍惜㗎  
 尤其覺得神經繃緊嘅時候  

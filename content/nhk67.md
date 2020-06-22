@@ -30,7 +30,7 @@ tags : [amusement - zene, amusement - TV]
   
 （最重要嘅）曲目：
 
-[![](https://c1.staticflickr.com/1/504/31876008646_c330a3e312_z.jpg)](https://c1.staticflickr.com/1/504/31876008646_c330a3e312_z.jpg)
+![](/images/nhk67a.jpg)
 
 你睇你睇，有細細個就鍾意嘅Puffy啦  
 X JAPAN喎 紅喎  

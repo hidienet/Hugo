@@ -14,13 +14,11 @@ tags : [travel - 남한・서울 (首爾), lifestyle - 逃離852]
 [東大門之倒瀉籮蟹](http://www.hidie.net/2014/10/seoul-time-day1.html)  
 [東大門－煨雞湯닭곰탕、牛肉湯육개장、清國醬청국장](http://www.hidie.net/2014/10/seoul-time-day1_19.html)  
 [롯데제과 설레임 (Lotte Seolleim)](http://www.hidie.net/2014/10/seoul-time-day1-lotte-seolleim.html)  
-
 [miss & mr potato](http://www.hidie.net/2014/10/seoul-time-day1miss-mr-potato.html)  
 [사부의레시피](http://www.hidie.net/2014/10/seoul-time-day1_20.html)  
   
 **day 2**  
 [高九蔘雞湯 - 蔘雞湯、炸人蔘](http://www.hidie.net/2014/10/seoul-time-day2.html)
-
 [儒林麵館유림면 - 小鍋米線냄비국수、蕎麥冷麵비빔국수](http://www.hidie.net/2014/10/seoul-time-day2_21.html)  
 [聖心堂 성심당 - 酥皮紅豆包튀김소보로、韭菜包판타롱부추빵](http://www.hidie.net/2014/10/seoul-time-day2_22.html)  
 [지팡이 아이스크림 jipange icecream](http://www.hidie.net/2014/10/seoul-time-day2-jipange-icecream.html)  
@@ -39,7 +37,6 @@ tags : [travel - 남한・서울 (首爾), lifestyle - 逃離852]
   
 **day 4**  
 [明洞嫩豆腐 명동순두부](http://www.hidie.net/2014/10/seoul-time-day4.html)
-
 [神仙雪濃湯 신선설농탕](http://www.hidie.net/2014/10/seoul-time-day4_27.html)  
 [公平洞海鳗 공평동꼼장어](http://www.hidie.net/2014/10/seoul-time-day4_28.html)  
 [오리온 슈폰 ORION chouffon fresh milk & vanilla](http://www.hidie.net/2014/10/seoul-time-day4-orion-chouffon-fresh.html)  
@@ -65,13 +62,12 @@ tags : [travel - 남한・서울 (首爾), lifestyle - 逃離852]
 [明洞餃子 명동교자 - 饅頭만두、刀切麵칼국수、豆漿麵콩국수](http://www.hidie.net/2014/11/seoul-time-day7.html)  
 [參雞湯 삼계탕、排骨湯 갈비탕](http://www.hidie.net/2014/11/seoul-time-day7_4.html)  
   
-**[上天下地김수현](http://www.hidie.net/2014/11/seoul-time.html)**  
+[上天下地김수현](http://www.hidie.net/2014/11/seoul-time.html)  
   
 **all buy myself～**  
 （[照舊](http://www.hidie.net/2014/01/8d7n.html)啦，mask太多就不再放這裡）  
 [scent: beyond 15 seconds with soohyun EDT](http://www.hidie.net/2014/10/seoul-time-beyond-15-seconds-with.html)  
-[food: 롯데 팜온더로드 아몬드머랭 (lotte farm on the road almond meringue)](http://www.hidie.net/2014/11/lotte-farm-on-road-almond-meringue.html)  
-  
+[food: 롯데 팜온더로드 아몬드머랭 (lotte farm on the road almond meringue)](http://www.hidie.net/2014/11/lotte-farm-on-road-almond-meringue.html)    
 [food: 볶은 검은콩（韓國黑豆）](http://www.hidie.net/2014/11/blog-post_9.html)  
 [feminine hygiene: 바디피트 귀애랑 천연홍삼 울트라중형（LG bodyfit sofy人參M巾）](http://www.hidie.net/2014/11/lg-bodyfit-sofym.html)  
 [skincare: primera - facial mild peeling](http://www.hidie.net/2014/11/peeling-primera-facial-mild-peeling.html)  
@@ -82,6 +78,6 @@ tags : [travel - 남한・서울 (首爾), lifestyle - 逃離852]
 [body care: daiso - cuticle pusher](http://www.hidie.net/2014/11/nail-daiso-cuticle-pusher.html)  
   
 
-[![](https://4.bp.blogspot.com/-zI0dh-O8JTs/XE2udMZUuPI/AAAAAAAAHp8/njKT1YRhhXQpvTIPNkNjtimvr7TizUxUgCLcBGAs/s640/15062490034_d8d4b5ab0c_z.jpg)](https://4.bp.blogspot.com/-zI0dh-O8JTs/XE2udMZUuPI/AAAAAAAAHp8/njKT1YRhhXQpvTIPNkNjtimvr7TizUxUgCLcBGAs/s1600/15062490034_d8d4b5ab0c_z.jpg)
+![](/images/seoul7d7n.jpg)
 
 不論日夜，最愛在鐘路覓食去！

@@ -22,68 +22,66 @@ tags : [amusement - zene]
 最後剩下的，就只有這本brochure  
 （其實甚麼都不買就沒有煩惱不是嗎？）  
 
-[![](https://farm9.staticflickr.com/8746/16694774489_87e6f95867_z.jpg)](https://farm9.staticflickr.com/8746/16694774489_87e6f95867_z.jpg)
+![](/images/jyhlive15book1.jpg)
 
 藍 x 白色tone的設計  
 
-[![](https://farm9.staticflickr.com/8717/16879725872_dede3f41cd_z.jpg)](https://farm9.staticflickr.com/8717/16879725872_dede3f41cd_z.jpg)
+![](/images/jyhlive15book2.jpg)
 
 好薄的一本，所以買碟真的抵很多很多很多  
 可這本也很有紀念價值  
 （碟是親筆簽名更值得收藏，那這本也拿給他簽名就好了...）  
 
-[![](https://farm8.staticflickr.com/7611/16673573997_81a96a5144_z.jpg)](https://farm8.staticflickr.com/7611/16673573997_81a96a5144_z.jpg)
+![](/images/jyhlive15book3.jpg)
 
 翻開小頁  
 
-[![](https://farm8.staticflickr.com/7598/16879726142_a25da5b87e_z.jpg)](https://farm8.staticflickr.com/7598/16879726142_a25da5b87e_z.jpg)
+![](/images/jyhlive15book.jpg)
 
 1989+06+22，他的誕生日  
 
-[![](https://farm9.staticflickr.com/8698/16260911243_05886aa812_z.jpg)](https://farm9.staticflickr.com/8698/16260911243_05886aa812_z.jpg)
+![](/images/jyhlive15book4.jpg)
 
 （closeup）呆～  
 
-[![](https://farm9.staticflickr.com/8742/16855018066_239be5e494_z.jpg)](https://farm9.staticflickr.com/8742/16855018066_239be5e494_z.jpg)
+![](/images/jyhlive15book5.jpg)
 
   
 
-[![](https://farm8.staticflickr.com/7597/16879898971_2f6f125805_z.jpg)](https://farm8.staticflickr.com/7597/16879898971_2f6f125805_z.jpg)
+![](/images/jyhlive15book6.jpg)
 
   
   
-
-[![](https://farm9.staticflickr.com/8752/16879898571_eabf7fbc41_z.jpg)](https://farm9.staticflickr.com/8752/16879898571_eabf7fbc41_z.jpg)
+![](/images/jyhlive15book7.jpg)
 
 大側顏（心）  
 
-[![](https://farm9.staticflickr.com/8750/16879899031_846d13f909_z.jpg)](https://farm9.staticflickr.com/8750/16879899031_846d13f909_z.jpg)
+![](/images/jyhlive15book8.jpg)
 
 27 years old.  
 The beautiful days.  
 
-[![](https://farm9.staticflickr.com/8730/16693500170_b6c898359b_z.jpg)](https://farm9.staticflickr.com/8730/16693500170_b6c898359b_z.jpg)
+![](/images/jyhlive15book9.jpg)
 
   
 
-[![](https://farm8.staticflickr.com/7620/16880898665_26535dcd8e_z.jpg)](https://farm8.staticflickr.com/7620/16880898665_26535dcd8e_z.jpg)
+![](/images/jyhlive15book10.jpg)
 
   
 
-[![](https://farm8.staticflickr.com/7651/16260911493_4ca82288e1_z.jpg)](https://farm8.staticflickr.com/7651/16260911493_4ca82288e1_z.jpg)
+![](/images/jyhlive15book11.jpg)
 
   
   
+![](/images/jyhlive15book12.jpg)
 
-[![](https://farm8.staticflickr.com/7281/16880898325_ec7b2a0f7b_z.jpg)](https://farm8.staticflickr.com/7281/16880898325_ec7b2a0f7b_z.jpg)
+喔～  
 
-喔～ 這張有點像박해진（釜山顏？）  
-
-[![](https://farm8.staticflickr.com/7642/16693284608_d2e7f43139_z.jpg)](https://farm8.staticflickr.com/7642/16693284608_d2e7f43139_z.jpg)
+![](/images/jyhlive15book13.jpg)
 
 已經是封底了（...）  
 
-[![](https://farm9.staticflickr.com/8697/16694774449_b5bc2bdd13_z.jpg)](https://farm9.staticflickr.com/8697/16694774449_b5bc2bdd13_z.jpg)
+![](/images/jyhlive15book14.jpg)
 
 logo加公司鐳射貼紙  
   

@@ -125,10 +125,4 @@ brunch @御菓子司かさ國 （**みろく石本舗**かさ國） 
 又完一日喇～  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：KIX → 京都](https://www.hidie.net/2019/11/day1kix.html)  
-[Day2：京都嵐山](https://www.hidie.net/2019/11/day2.html)  
-Day3：嵐山 → 高野山  
-[Day4：高野山 → KIX](https://www.hidie.net/2019/11/day4-kix.html)
+{{<kyotokoyasan>}}  

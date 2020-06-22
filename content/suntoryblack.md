@@ -24,6 +24,5 @@ Suntory嘅The PREMIUM MALT’S一直都係清甜香滑
 延伸閱讀：  
   
 [Suntory the premium malt's](https://www.hidie.net/2015/01/cheers-suntory-premium-malts.html)  
-[Suntory - the royal bitter all malt beer 限定釀造2015](https://www.hidie.net/2015/07/cheers-suntory-royal-bitter-all-malt.html)  
-  
+[Suntory - the royal bitter all malt beer 限定釀造2015](https://www.hidie.net/2015/07/cheers-suntory-royal-bitter-all-malt.html)    
 [Suntory 7-Select The Beer](https://www.hidie.net/2014/08/day1suntory-7-select-beer.html)

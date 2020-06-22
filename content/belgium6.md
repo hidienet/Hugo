@@ -143,15 +143,4 @@ tags : [travel - België & Nederland (Belgium & Netherlands)]
   
 好喇！又去瞓覺喇～  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：AMS → Brussel](https://www.hidie.net/2019/05/day-1ams-brussel.html)  
-[Day2.1：Dinant](https://www.hidie.net/2019/05/day-21dinant.html)  
-[Day2.2：Naumr](https://www.hidie.net/2019/05/day-22naumr.html)  
-[Day3.1：Brugge](https://www.hidie.net/2019/05/day-31brugge.html)  
-[Day3.2：Gent → Brussel](https://www.hidie.net/2019/06/day-32gent-brussel.html)  
-[Day4： Leuven → Brussel](https://www.hidie.net/2019/06/day-41leuven.html)  
-[Day5： Antwerpen → Brussel](https://www.hidie.net/2019/06/day-5antwerpen-brussel.html)  
-Day6： Brussel  
-[Day7： Brussel](https://www.hidie.net/2019/07/day-7brussel.html)
+{{<belgium>}}  

@@ -536,12 +536,4 @@ Bawdar Smooth Lager Beer：如其名嘅堅滑身，同[John Smith's](https://www
 時間過得真係快...  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：
-
-[Night1：HKG → RGN (Vintage Luxury Yacht Hotel)](https://www.hidie.net/2020/02/night1hkg-rgn-vintage-luxury-yacht-hotel.html)  
-[Day1：Bogyoke Market (A-1 LOTE THAR)、Inya Day Spa、The Strand Café、Myanhouse、Sofaer & Co](https://www.hidie.net/2020/02/day1bogyoke-market-1-lote-tharinya-day.html)  
-[Day2：Shwedagon Pagoda、Bodhi Nava、Kandawgyi Lake、Chaukhtatgyi Pagoda、Inya Lake、Le Planteur、ROOT](https://www.hidie.net/2020/02/day2shwedagon-pagodabodhi-navakandawgyi.html)  
-Day3：999 Shan Noodle Shop、Yangon Circular Railway、Danyingone Market、Khit Myanmar、Htwe Oo Myanmar、HLA DAY、Rangoon Tea House  
-[Day4：Shwe Htoo、Bogyoke Market（Coffee Melody）、YKKO、V Traditional Massage & Spa Lounge、1920 Industrial Restaurant、The Pansodan → RGN](https://www.hidie.net/2020/02/day4shwe-htoobogyoke-marketcoffee.html)
+{{<yangon>}}

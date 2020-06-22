@@ -14,7 +14,7 @@ tags : [flavor - 螞蟻族, flavor - say cheese]
 
 但係當然總有啲係例外嘅...
 
-[![](https://yojkwg.ch.files.1drv.com/y4mC3tAT3mYo4oPqrpMTrD5deD4D9bkLWw7YMIbvOgQ99wy5tD63uNqQNJH90YGXrqBhWWMYjO6PSqGEDJ6DArRnaDq1tQiOLLmh3olcXW28B1Q67nRLc0g8SJks0mFDJdnhfN63X1gkcoosACvgky2V0DWt6LUQKOitcBkLrL_Iv_3AMeofwztM1ibCg4Zz-Fe_u9owcCKoPfpl29bKgI_Lg?width=660&height=371&cropmode=none)](https://yojkwg.ch.files.1drv.com/y4mC3tAT3mYo4oPqrpMTrD5deD4D9bkLWw7YMIbvOgQ99wy5tD63uNqQNJH90YGXrqBhWWMYjO6PSqGEDJ6DArRnaDq1tQiOLLmh3olcXW28B1Q67nRLc0g8SJks0mFDJdnhfN63X1gkcoosACvgky2V0DWt6LUQKOitcBkLrL_Iv_3AMeofwztM1ibCg4Zz-Fe_u9owcCKoPfpl29bKgI_Lg?width=660&height=371&cropmode=none)
+![](/images/bakecheesetart.jpg)
 
 好似BAKE呢個cheese tart咁
 

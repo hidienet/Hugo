@@ -273,11 +273,4 @@ so，又**Myanmar Beer**咗兩三round
 係喇知喇買嘢丫嘛  
 洗晒錢喇返香港年初五咁樣啦（口罩ready啦）  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Night1：HKG → RGN (Vintage Luxury Yacht Hotel)](https://www.hidie.net/2020/02/night1hkg-rgn-vintage-luxury-yacht-hotel.html)  
-[Day1：Bogyoke Market (A-1 LOTE THAR)、Inya Day Spa、The Strand Café、Myanhouse、Sofaer & Co](https://www.hidie.net/2020/02/day1bogyoke-market-1-lote-tharinya-day.html)  
-[Day2：Shwedagon Pagoda、Bodhi Nava、Kandawgyi Lake、Chaukhtatgyi Pagoda、Inya Lake、Le Planteur、ROOT](https://www.hidie.net/2020/02/day2shwedagon-pagodabodhi-navakandawgyi.html)  
-[Day3：999 Shan Noodle Shop、Yangon Circular Railway、Danyingone Market、Khit Myanmar、Htwe Oo Myanmar、HLA DAY、Rangoon Tea House](https://www.hidie.net/2020/02/day3999-shan-noodle-shopyangon-circular.html)  
-Day4：Shwe Htoo、Bogyoke Market（Coffee Melody）、YKKO、V Traditional Massage & Spa Lounge、1920 Industrial Restaurant、The Pansodan → RGN
+{{<yangon>}}

@@ -8,18 +8,18 @@ tags : [travel - ประเทศไทย・กรุงเทพ (Bangkok)]
 
 咁鬼熱，搵個就算唔係只係買嘢都可以留一日嘅商場先～  
 
-[![](https://c1.staticflickr.com/5/4426/36663911455_574ed2ba1b_z.jpg)](https://c1.staticflickr.com/5/4426/36663911455_574ed2ba1b_z.jpg)
+![](https://c1.staticflickr.com/5/4426/36663911455_574ed2ba1b_z.jpg)
 
 酒店有免費篤篤車去BTS站  
 連幾分鐘腳骨力都慳番  
   
-BTS：พญาไท (Phaya Thai) → **อโศก**** (****Asok****)**  
+BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**  
   
   
 
-[![](https://c1.staticflickr.com/5/4408/35854665743_09b3af4b6f_z.jpg)](https://c1.staticflickr.com/5/4408/35854665743_09b3af4b6f_z.jpg)
+![](https://c1.staticflickr.com/5/4408/35854665743_09b3af4b6f_z.jpg)
 
-**เทอร์มินอล 21 อโศก**** (****Terminal 21****)**  
+**เทอร์มินอล 21 อโศก (Terminal 21)**  
 以機場做主題  
 唔同樓層就唔同城市  
 個裝飾係幾靚嘅  
@@ -37,17 +37,17 @@ BTS：พญาไท (Phaya Thai) → **อโศก**** (****Asok****)**
 就好自然無做任何資料搜集  
 見到乜睇啱乜就食乜啦咁  
 
-[![](https://c1.staticflickr.com/5/4408/36525752461_bdcb4626b4_z.jpg)](https://c1.staticflickr.com/5/4408/36525752461_bdcb4626b4_z.jpg)
+![](https://c1.staticflickr.com/5/4408/36525752461_bdcb4626b4_z.jpg)
 
-**ร้านส้มตำหมื่นล้าน**** (****MEAUN-LAN****)**  
+**ร้านส้มตำหมื่นล้าน (MEAUN-LAN)**  
 求其入㗎咋  
 點知啲嘢咁鬼好食㗎啫  
 呵呵呵呵呵呵呵～  
 
-[![](https://c1.staticflickr.com/5/4431/35855024683_476b8df76a_z.jpg)](https://c1.staticflickr.com/5/4431/35855024683_476b8df76a_z.jpg)
+![](https://c1.staticflickr.com/5/4431/35855024683_476b8df76a_z.jpg)
 
 食完行陣又食過  
-小食時間就試**ชาตรามือ**** (****ChaTraMue****)** 嘅**奶茶雪糕**  
+小食時間就試**ชาตรามือ (ChaTraMue)** 嘅**奶茶雪糕**  
 老老竇竇泰式嘢飲真係好甜  
 呢隻奶茶係滑嘅不過都離唔開好甜同好L甜之間  
 而雪糕就凍啲嘛所以就算糖嘅份量係一樣  
@@ -55,20 +55,20 @@ BTS：พญาไท (Phaya Thai) → **อโศก**** (****Asok****)**
 嗱～ 呢隻雪糕好濃滑好香同好好食  
 唔食係堅走寶嗰隻，就咁。  
 
-[![](https://c1.staticflickr.com/5/4383/36617972276_b21807d812_z.jpg)](https://c1.staticflickr.com/5/4383/36617972276_b21807d812_z.jpg)
+![](https://c1.staticflickr.com/5/4383/36617972276_b21807d812_z.jpg)
 
 然後又行吓行吓咁...  
 再坐低食個tea @**C・O・D・E**  
 芒果當造嗰陣唔食芒果會被雷劈㗎！  
 
-[![](https://c1.staticflickr.com/5/4422/36664699535_f6e9c49c48_z.jpg)](https://c1.staticflickr.com/5/4422/36664699535_f6e9c49c48_z.jpg)
+![](https://c1.staticflickr.com/5/4422/36664699535_f6e9c49c48_z.jpg)
 
 又再行啦，咁做人呢家嘢真係會攰㗎嘛  
 今鑊唔係食嘢喇，去！揼！骨！  
 商場頂層係**Let's Relax Spa**  
 乾淨服務好又唔貴，爽呀～  
 
-[![](https://c1.staticflickr.com/5/4394/36268837800_4a4805ca32_z.jpg)](https://c1.staticflickr.com/5/4394/36268837800_4a4805ca32_z.jpg)
+![](https://c1.staticflickr.com/5/4394/36268837800_4a4805ca32_z.jpg)
 
 咁揼完骨個人放鬆晒就會有餓意嘅（咦？）  
 唯有食晚飯啦哈哈哈  
@@ -81,12 +81,5 @@ BTS：พญาไท (Phaya Thai) → **อโศก**** (****Asok****)**
 直接坐的士，呢邊好啲跟咪錶唔駛俾人劏！  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：Taxi Taxi](https://www.hidie.net/2017/09/day1taxi-taxi.html)  
-[Day2：จตุจักร (Jatujak)、เซ็นทรัลเวิลด์ (CentralWorld)](https://www.hidie.net/2017/09/day2-jatujak-centralworld.html)  
-Day3：อโศก (Asok) - เทอร์มินอล 21 อโศก (Terminal 21)  
-[Day4：อนุสาวรีย์ชัยสมรภูมิ (Victory Monument)、สยาม (Siam)、ชิดลม (Chidlom)](https://www.hidie.net/2017/09/day4-victory-monument-siam-chidlom.html)  
-[Day5：เซ็นทรัลเวิลด์ (CentralWorld)、TALAD Neon](https://www.hidie.net/2017/09/day5-centralworldtalad-neon.html)  
-[Day6：ท่าอากาศยานสุวรรณภูมิ Suvarnabhumi Airport (BKK)](https://www.hidie.net/2017/09/day6-suvarnabhumi-airport-bkk.html)
+
+{{<bangkok>}}

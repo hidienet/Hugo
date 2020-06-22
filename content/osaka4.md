@@ -60,11 +60,4 @@ Nintendo (Super Mario) @KIX
 日本呀，I'll be back～！！！  
 
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：黒門市場、道頓堀、心斎橋](https://www.hidie.net/2017/09/day1.html)
-
-[Day2：黒門市場、千日前、道頓堀、アメリカ村](https://www.hidie.net/2017/09/day2.html)  
-[Day3：新世界、梅田](https://www.hidie.net/2017/09/day3.html)  
-Day4：アメリカ村、難波、関西空港
+{{<osaka>}}

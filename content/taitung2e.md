@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 
 宵夜食甜嘢好正常吖～  
 
-[![](https://c2.staticflickr.com/8/7578/28895349124_63e10a38c3_z.jpg)](https://c2.staticflickr.com/8/7578/28895349124_63e10a38c3_z.jpg)
+![](https://c2.staticflickr.com/8/7578/28895349124_63e10a38c3_z.jpg)
 
 對於左邊嗰杯つぶあんミルクカップ  
 睇返之前响日本食嗰篇啦 >>[click](http://www.hidie.net/2015/10/go-go-nagoya-day3_13.html)<<  

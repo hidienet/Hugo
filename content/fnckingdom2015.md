@@ -39,7 +39,7 @@ high到一整晚在跳在叫
 
 [![](https://farm9.staticflickr.com/8861/17790444376_14140585e9_z.jpg)](https://farm9.staticflickr.com/8861/17790444376_14140585e9_z.jpg)
 
-\* 照片是坐在座位上於完場時拍攝  
+照片是坐在座位上於完場時拍攝  
 我們就坐對正舞台的地方（！）  
 （沒錯！HIMHIM也看足兩晚，反正他也會看AOA啦～）  
 而且vocal們喜歡走上前面台，대박！！！  
@@ -232,7 +232,7 @@ EVERYBODY !!!」
 兩把雄厚的聲音  
 很棒的組合  
   
-**Project N：JIMIN N J.DON（****J.Don 是N.Flying的承協）**  
+**Project N：JIMIN N J.DON（J.Don 是N.Flying的承協）**  
 Project N的《GOD》，好強勁的rap  
 跟HIMHIM說絕對不能跟他們鬧交 XD  
 而《PUSS》是Ji Min參加Unpretty RapStar的solo歌  
@@ -328,7 +328,7 @@ They will make you crazy tonight.”
   
   
 最後的組合舞台 Special Collaboration Band：  
-vocal：**容和(C) x ****Ji Min(A)**** x Yuna(A)**  
+vocal：**容和(C) x Ji Min(A) x Yuna(A)**  
 guitar：**鍾訓(F) x 承炫(F)**  
 bass：**光珍(N)**  
 drum：**敏赫(C)**  
@@ -490,7 +490,7 @@ JUNIEL一直要跟容和「互動」
 太爆笑了你知道嗎？哈哈哈哈哈哈哈哈哈哈～～～  
   
   
-**Project N：****Ji Min ****& J.Don（承協）**  
+**Project N：Ji Min & J.Don（承協）**  
 跟前一場一樣的《GOD》同《PUSS》  
 中間關燈那一幕太型了！  
 不能不跟住大叫「PUSS PUSS」  

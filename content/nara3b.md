@@ -20,8 +20,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - 日本（関西近畿�
 
 [![](https://c1.staticflickr.com/5/4415/36668766470_7496fdb70c_z.jpg)](https://c1.staticflickr.com/5/4415/36668766470_7496fdb70c_z.jpg)
 
-**  
-平宗 - 柿の葉ずし**  
+**平宗 - 柿の葉ずし**  
 响幕末時代文久元年創業（1861年）  
 醋飯上面鋪有熟成嘅鯖魚同三文魚  
 然後用杮葉包住  

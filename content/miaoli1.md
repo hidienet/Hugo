@@ -184,10 +184,4 @@ well 去臺灣係唔會唔去夜市嘅
 玩足一日，返去瞓覺lu～  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-Day1：苗栗市 ↔ 南庄鄉  
-[Day2：苗栗市 → 三義鄉 → 後龍鎮](https://www.hidie.net/2019/12/day2.html)  
-[Day3：苗栗市 → 泰安鄉](https://www.hidie.net/2019/12/day3.html)  
-[Day4：泰安鄉 → 苗栗市](https://www.hidie.net/2019/12/day4.html)
+{{<miaoli>}}

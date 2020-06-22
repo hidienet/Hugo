@@ -101,14 +101,5 @@ and（包括但不限於）食嘢，任由幾粒鐘流走...
   
 食飽飽又一日喇～  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：福岡空港 → 小倉](https://www.hidie.net/2018/01/cmon-day1.html)  
-Day2：下関 → 門司  
-[Day3：長門 → 下関 → 小倉](https://www.hidie.net/2018/01/cmon-day3.html)  
-[Day4：小倉 ↔ 若松 ↔ 戸畑](https://www.hidie.net/2018/01/cmon-day4.html)  
-[Day5：小倉](https://www.hidie.net/2018/01/cmon-day5.html)  
-[Day6：下関 → 小倉](https://www.hidie.net/2018/01/cmon-day6.html)  
-[Day7：下関 → 門司 → 小倉](https://www.hidie.net/2018/01/cmon-day7.html)  
-[Day8：福岡空港](https://www.hidie.net/2018/01/cmon-day8.html)
+
+{{<kanmon>}}

@@ -9,7 +9,7 @@ tags : [amusement - zene]
 陪伴我成長的日本樂隊  
 堪稱是我的「一生中最愛！」  
 
-[![](https://farm8.staticflickr.com/7361/16468894365_9e997b3b8b_z.jpg)](https://farm8.staticflickr.com/7361/16468894365_9e997b3b8b_z.jpg)
+![](/images/lunasea.jpg)
 
 這隊J-rock band有五位成員（認人時間）  
 vocal：RYUICHI（河村 隆一）>> 左二  
@@ -73,7 +73,7 @@ drums：真矢（山田 真矢）\>> 右一
   
 那，現在就繼續「想當年」  
 
-[![](https://farm8.staticflickr.com/7402/15848812393_09e544d314_z.jpg)](https://farm8.staticflickr.com/7402/15848812393_09e544d314_z.jpg)
+![](/images/lunasea1.jpg)
 
 承認他們不是靚仔  
 但在沉迷的時候  
@@ -87,38 +87,38 @@ drums：真矢（山田 真矢）\>> 右一
 東道主的我也會放棄日常事務  
 親自迎接/ 歡送他們  
 
-[![](https://farm9.staticflickr.com/8585/16437903586_9bded398b2_z.jpg)](https://farm9.staticflickr.com/8585/16437903586_9bded398b2_z.jpg)
+![](/images/lunasea2.jpg)
 
 （很擠擁 x 混亂，難得有拍最喜歡的ryuichi w/尖叫聲）  
 
-[![](https://farm8.staticflickr.com/7374/15843807773_8c44ec509d_z.jpg)](https://farm8.staticflickr.com/7374/15843807773_8c44ec509d_z.jpg)
+![](/images/lunasea3.jpg)
 
 （真心覺得sugizo是很型的）  
 
-[![](https://farm8.staticflickr.com/7334/16277663319_655db46e16_z.jpg)](https://farm8.staticflickr.com/7334/16277663319_655db46e16_z.jpg)
+![](/images/lunasea4.jpg)
 
 （但也很親切就是）  
   
 逢live必到！！！  
 （\* first asian tour 1999同brand new chaos act II都有去，不過就除了腳毛就甚麼都沒有留低）  
 
-[![](https://farm4.staticflickr.com/3796/12851431193_f4fe314e33_z.jpg)](https://farm4.staticflickr.com/3796/12851431193_f4fe314e33_z.jpg)
+![](/images/lunasea5.jpg)
 
 （live：the end of the dream@2013）  
 
-[![](https://farm8.staticflickr.com/7600/16738024401_413fa0232c_z.jpg)](https://farm8.staticflickr.com/7600/16738024401_413fa0232c_z.jpg)
+![](/images/lunasea6.jpg)
 
 （live：reboot@2010）  
 
-[![](https://farm8.staticflickr.com/7338/16438001346_d279285d38_z.jpg)](https://farm8.staticflickr.com/7338/16438001346_d279285d38_z.jpg)
+![](/images/lunasea7.jpg)
 
 （live：reboot@2010，只有紀念價值沒有用處的場刊 ）  
 
-[![](https://farm4.staticflickr.com/3670/12851448643_9092fffbbd_z.jpg)](https://farm4.staticflickr.com/3670/12851448643_9092fffbbd_z.jpg)
+![](/images/lunasea8.jpg)
 
 （live：reboot@2010，連C9袋都買回家）  
 
-[![](https://farm8.staticflickr.com/7452/15843974523_786b6b7f6c_z.jpg)](https://farm8.staticflickr.com/7452/15843974523_786b6b7f6c_z.jpg)
+![](/images/lunasea9.jpg)
 
 （看完香港現場還不夠，LA場的3D映画也會參拜）  
   

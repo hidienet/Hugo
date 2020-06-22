@@ -249,15 +249,4 @@ menu有4款draft，嗌晒佢！！！
 Dinant實在太正，抽相post都咁搞到篇嘢咁長  
 分post啦唯有，next stop is Namur（stay tuned）  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：AMS → Brussel](https://www.hidie.net/2019/05/day-1ams-brussel.html)  
-Day2.1：Dinant  
-[Day2.2：Naumr](https://www.hidie.net/2019/05/day-22naumr.html)  
-[Day3.1：Brugge](https://www.hidie.net/2019/05/day-31brugge.html)  
-[Day3.2：Gent → Brussel](https://www.hidie.net/2019/06/day-32gent-brussel.html)  
-[Day4： Leuven → Brussel](https://www.hidie.net/2019/06/day-41leuven.html)  
-[Day5： Antwerpen → Brussel](https://www.hidie.net/2019/06/day-5antwerpen-brussel.html)  
-[Day6： Brussel](https://www.hidie.net/2019/07/day-6brussel.html)  
-[Day7： Brussel](https://www.hidie.net/2019/07/day-7brussel.html)
+{{<belgium>}}  

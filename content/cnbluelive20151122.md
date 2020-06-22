@@ -8,7 +8,7 @@ tags : [amusement - zene]
 
 睇CNBLUE當然要死守兩晚啦～  
 
-[![](https://c1.staticflickr.com/1/626/22564749164_fed8812962_z.jpg)](https://c1.staticflickr.com/1/626/22564749164_fed8812962_z.jpg)
+![](/images/cnbluelive20151122.jpg)
 
 繼續소리질러！！！！！！！！！  
   

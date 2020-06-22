@@ -8,7 +8,7 @@ tags : [amusement - zene]
 
 終於終於等到這[美好的一天](http://www.hidie.net/2015/03/live-2015-jung-yong-hwa-live-in-hk.html)了（超興奮）（握拳）  
 
-[![](https://farm9.staticflickr.com/8743/16690835740_c5bc218df2_z.jpg)](https://farm9.staticflickr.com/8743/16690835740_c5bc218df2_z.jpg)
+![](/images/jyhlive15.jpg)
 
 開場前的舞台～  
   
@@ -242,7 +242,7 @@ goodnight lover
 要看就看其他人同官方媒體的便可以  
 反正本人拍照的技術mamaday  
 
-[![](https://farm9.staticflickr.com/8744/16878238675_032b1ffd7d_z.jpg)](https://farm9.staticflickr.com/8744/16878238675_032b1ffd7d_z.jpg)
+![](/images/jyhlive15a.jpg)
 
 最多補上這張～  
 （A版碟也是這個做封面）  

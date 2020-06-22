@@ -9,7 +9,7 @@ tags : [amusement - films]
 超喜歡湊かなえ（湊佳苗）的我  
 在未看這本原著小說前，先看電影也不錯  
 
-[![](https://2.bp.blogspot.com/-116Mtq8P-oQ/XFbS7HWy33I/AAAAAAAAH5o/hdzhZkBlKf0GCWEviQTENmgEbpGYJ-CbQCLcBGAs/s640/15663087998_30c71e34f7_z.jpg)](https://2.bp.blogspot.com/-116Mtq8P-oQ/XFbS7HWy33I/AAAAAAAAH5o/hdzhZkBlKf0GCWEviQTENmgEbpGYJ-CbQCLcBGAs/s1600/15663087998_30c71e34f7_z.jpg)
+![](/images/shirayuki.jpg)
 
 故事圍繞一個美麗的社員被殺  
 而其身邊的人講述死者及他們認為是疑犯的描述  

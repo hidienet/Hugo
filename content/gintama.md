@@ -10,11 +10,11 @@ tags : [amusement - films]
 
 好好好！等香港上映先睇
 
-[![](https://c1.staticflickr.com/5/4332/23556085008_a8282db883_z.jpg)](https://c1.staticflickr.com/5/4332/23556085008_a8282db883_z.jpg)
+![](/images/gintama.jpg)
 
 足足遲咗一個月先上㗎，忍死我...
 
-[![](https://c1.staticflickr.com/5/4407/36085750574_4c4079d2c6_z.jpg)](https://c1.staticflickr.com/5/4407/36085750574_4c4079d2c6_z.jpg)
+![](/images/gintama1.jpg)
 
 不過最後等唔切喇
 

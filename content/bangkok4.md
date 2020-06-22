@@ -18,16 +18,16 @@ BTS：พญาไท (Phaya Thai) → **อนุสาวรีย์ชัย
 
   
 
-[![](https://c1.staticflickr.com/5/4405/36496420552_ef7a3661f9_z.jpg)](https://c1.staticflickr.com/5/4405/36496420552_ef7a3661f9_z.jpg)
+![](https://c1.staticflickr.com/5/4405/36496420552_ef7a3661f9_z.jpg)
 
 出咗BTS一直响天橋圍住嚟行
 
 直至見到條河先好落橋  
 千祈千祈唔好patpat痕一早落呀！
 
-[![](https://c1.staticflickr.com/5/4401/36666419065_05a20877c4_z.jpg)](https://c1.staticflickr.com/5/4401/36666419065_05a20877c4_z.jpg)
+![](https://c1.staticflickr.com/5/4401/36666419065_05a20877c4_z.jpg)
 
-**ร้านสุดยอดก๋วยเตี๋ยวเรือป๋ายักษ์**** (****The Bestof Noodle Boat****)**
+**ร้านสุดยอดก๋วยเตี๋ยวเรือป๋ายักษ์ (The Bestof Noodle Boat)**
 
 （↑ 個英文照牌匾抄㗎啫）
 
@@ -41,13 +41,13 @@ BTS：พญาไท (Phaya Thai) → **อนุสาวรีย์ชัย
 
 是但啦唯有享受傳統河邊風味啦
 
-**船麵 (河)**好好食，絕對唔可以錯過
+**船麵 (河)** 好好食，絕對唔可以錯過
 
 特登嚟都係咁話！
 
-[![](https://c1.staticflickr.com/5/4432/35856903273_d88bfec309_z.jpg)](https://c1.staticflickr.com/5/4432/35856903273_d88bfec309_z.jpg)
+![](https://c1.staticflickr.com/5/4432/35856903273_d88bfec309_z.jpg)
 
-（**อนุสาวรีย์ชัยสมรภูมิ ****勝利紀念碑**）
+（**อนุสาวรีย์ชัยสมรภูมิ 勝利紀念碑**）
 
 呢度冇嘢睇冇嘢買得個碑
 
@@ -55,11 +55,11 @@ BTS：พญาไท (Phaya Thai) → **อนุสาวรีย์ชัย
 
   
 
-BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monument) → **สยาม**** (****Siam****)**
+BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monument) → **สยาม (Siam)**
 
-[![](https://c1.staticflickr.com/5/4414/36666498195_3f221fcaf6_z.jpg)](https://c1.staticflickr.com/5/4414/36666498195_3f221fcaf6_z.jpg)
+![](https://c1.staticflickr.com/5/4414/36666498195_3f221fcaf6_z.jpg)
 
-**สยามเซ็นเตอร์**** (****Siam Center****)**
+**สยามเซ็นเตอร์ (Siam Center)**
 
 啲人話呢度好好行好好買啦
 
@@ -73,7 +73,7 @@ BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monu
 
 購物零意欲，去搵嘢食啦咁！
 
-[![](https://c1.staticflickr.com/5/4378/36527996211_dfcaa63fee_z.jpg)](https://c1.staticflickr.com/5/4378/36527996211_dfcaa63fee_z.jpg)
+![](https://c1.staticflickr.com/5/4378/36527996211_dfcaa63fee_z.jpg)
 
 **ส้มตำนัว (Som Tam Nua)**  
 去泰國就一定要食**ส้มตำ (青木瓜沙律)**  
@@ -81,7 +81,7 @@ BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monu
 又唔想用腦諗揀邊間嘅話  
 就嚟呢度啦，完。  
 
-[![](https://c1.staticflickr.com/5/4353/36270735830_e9fcec3495_z.jpg)](https://c1.staticflickr.com/5/4353/36270735830_e9fcec3495_z.jpg)
+![](https://c1.staticflickr.com/5/4353/36270735830_e9fcec3495_z.jpg)
 
 再兜兩兜之後走去食甜品 @**Mango Tango**  
 係貴嘅，泰國物價嚟講就少少唔值  
@@ -98,7 +98,7 @@ BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monu
   
   
 
-[![](https://c1.staticflickr.com/5/4428/36666965585_3936da1f3c_z.jpg)](https://c1.staticflickr.com/5/4428/36666965585_3936da1f3c_z.jpg)
+![](https://c1.staticflickr.com/5/4428/36666965585_3936da1f3c_z.jpg)
 
 今晚好豪氣咁食泰國連續N年獲選最佳餐廳嘅**Nara**  
 痴線㗎！間嘢啲嘢食真係超好食！  
@@ -120,12 +120,5 @@ BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monu
 瞓醒聽日繼續食食食～  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：Taxi Taxi](https://www.hidie.net/2017/09/day1taxi-taxi.html)  
-[Day2：จตุจักร (Jatujak)、เซ็นทรัลเวิลด์ (CentralWorld)](https://www.hidie.net/2017/09/day2-jatujak-centralworld.html)  
-[Day3：อโศก (Asok) - เทอร์มินอล 21 อโศก (Terminal 21)](https://www.hidie.net/2017/09/day3-asok-21-terminal-21.html)  
-Day4：อนุสาวรีย์ชัยสมรภูมิ (Victory Monument)、สยาม (Siam)、ชิดลม (Chidlom)  
-[Day5：เซ็นทรัลเวิลด์ (CentralWorld)、TALAD Neon](https://www.hidie.net/2017/09/day5-centralworldtalad-neon.html)  
-[Day6：ท่าอากาศยานสุวรรณภูมิ Suvarnabhumi Airport (BKK)](https://www.hidie.net/2017/09/day6-suvarnabhumi-airport-bkk.html)
+
+{{<bangkok>}}

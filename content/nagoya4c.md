@@ -26,7 +26,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
 [![](https://c1.staticflickr.com/1/622/21940213081_1feab41b5b_z.jpg)](https://c1.staticflickr.com/1/622/21940213081_1feab41b5b_z.jpg)
 
 因為我是由矢場豬扒那邊進去  
-所以先經過**赤門**（**赤門****通**）  
+所以先經過**赤門（赤門通**）  
 （...中公設的東西很便宜，刨冰也很吸引）  
 
 [![](https://c2.staticflickr.com/6/5646/21741843518_0f0d0eecaa_z.jpg)](https://c2.staticflickr.com/6/5646/21741843518_0f0d0eecaa_z.jpg)
@@ -57,7 +57,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
 [![](https://c2.staticflickr.com/6/5630/21742722718_b5dd021a7e_z.jpg)](https://c2.staticflickr.com/6/5630/21742722718_b5dd021a7e_z.jpg)
 
 然後一個u turn後  
-走到了**大須観音****通**  
+走到了**大須観音通**  
   
 向直走也會到**萬松寺通**  
 不過體力開始下降（經過了seria！！！）  
@@ -71,7 +71,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
 
 [![](https://c2.staticflickr.com/6/5788/21918814382_44a89b9695_z.jpg)](https://c2.staticflickr.com/6/5788/21918814382_44a89b9695_z.jpg)
 
-也是走路回去，所以都會兜過**赤門**（**赤門明王殿**）  
+也是走路回去，所以都會兜過**赤門（赤門明王殿**）  
   
 先行告退 → 栄  
   

@@ -13,7 +13,7 @@ tags : [amusement - zene]
   
 **소리질러～～～～～～～**  
 
-[![](https://c1.staticflickr.com/5/4395/35881621154_2e4c50c54d_z.jpg)](https://c1.staticflickr.com/5/4395/35881621154_2e4c50c54d_z.jpg)
+![](/images/cnbluelive2017a.jpg)
 
   
 （今次冇大backdrop，得點影都反光嘅彩印poster）  
@@ -281,10 +281,10 @@ acoustic part主要係唱呢首歌
   
   
 
-[![](https://c1.staticflickr.com/5/4420/36332317640_495b2e6375_z.jpg)](https://c1.staticflickr.com/5/4420/36332317640_495b2e6375_z.jpg)
+![](/images/cnbluelive2017a1.jpg)
 
 點解有咁多嘢要做嘅？  
 
-[![](https://c1.staticflickr.com/5/4400/35893337034_29e7231fd7_z.jpg)](https://c1.staticflickr.com/5/4400/35893337034_29e7231fd7_z.jpg)
+![](/images/cnbluelive2017a2.jpg)
 
 好似唔見有人做只係齋吹脹咋喎...

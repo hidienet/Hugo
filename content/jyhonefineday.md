@@ -24,7 +24,7 @@ tags : [amusement - zene]
 
 果然是one fine day，好多個one fine day！
 
-[![](https://farm9.staticflickr.com/8687/16795030776_59ea0ffa24_z.jpg)](https://farm9.staticflickr.com/8687/16795030776_59ea0ffa24_z.jpg)
+![](/images/jyhonefineday.jpg)
 
 入手的是B版，A版白色tone也很漂亮
 

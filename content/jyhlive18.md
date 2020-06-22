@@ -12,7 +12,7 @@ room 621 去鄰居 room 622 度high咗一晚
 ... room 622嘅主人係6月22號生日容和啦  
 （嗱～ 咁6月21生日嘅我霸住間room 621都好正常吖）  
 
-[![](https://c1.staticflickr.com/5/4655/39472183604_f463a46128_z.jpg)](https://c1.staticflickr.com/5/4655/39472183604_f463a46128_z.jpg)
+![](/images/jyhlive18.jpg)
 
 同Bridal Shower一樣啦  
 呢次係容和入伍前嘅突然最後一場演唱會  

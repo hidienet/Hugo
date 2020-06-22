@@ -139,15 +139,4 @@ Naumr（那慕爾）
 你哋唔瞓，我瞓！  
 聽朝又去另一個城市（Zzz...）  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：AMS → Brussel](https://www.hidie.net/2019/05/day-1ams-brussel.html)  
-[Day2.1：Dinant](https://www.hidie.net/2019/05/day-21dinant.html)  
-Day2.2：Naumr  
-[Day3.1：Brugge](https://www.hidie.net/2019/05/day-31brugge.html)  
-[Day3.2：Gent → Brussel](https://www.hidie.net/2019/06/day-32gent-brussel.html)  
-[Day4： Leuven → Brussel](https://www.hidie.net/2019/06/day-41leuven.html)  
-[Day5： Antwerpen → Brussel](https://www.hidie.net/2019/06/day-5antwerpen-brussel.html)  
-[Day6： Brussel](https://www.hidie.net/2019/07/day-6brussel.html)  
-[Day7： Brussel](https://www.hidie.net/2019/07/day-7brussel.html)
+{{<belgium>}}  

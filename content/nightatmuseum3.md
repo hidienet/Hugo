@@ -8,7 +8,7 @@ tags : [amusement - films]
 
 喜歡笑！喜歡Ben Stiller式搞笑！  
 
-[![](https://farm8.staticflickr.com/7463/15480419894_d6f90d0eed_z.jpg)](https://farm8.staticflickr.com/7463/15480419894_d6f90d0eed_z.jpg)
+![](/images/nightatmuseum3.jpg)
 
 有看過1、2集的我也沒有覺得這集不好笑  
 （好吧我本身笑點低）  

@@ -13,7 +13,7 @@ red-eye flight係當然嘅首選
 凌晨上機清晨落機  
 再搭機場巴士600號  
 由北面嘅機場（한국공항공사）  
-到南面嘅**西歸浦**（**서귀포**）  
+到南面嘅**西歸浦（서귀포**）  
 咁就好開心咁由日玩到夜  
   
 掉低行李梗係先去食嘢  
@@ -22,7 +22,7 @@ red-eye flight係當然嘅首選
 係晏晝到好夜先係高峰期  
 即係，朝早八九點係冇咩嘢  
 
-[![](https://c1.staticflickr.com/5/4501/37137124484_f62c402eee_z.jpg)](https://c1.staticflickr.com/5/4501/37137124484_f62c402eee_z.jpg)
+![](https://c1.staticflickr.com/5/4501/37137124484_f62c402eee_z.jpg)
 
 不過冇還冇，要食嘅都有  
 呢個少少甜嘅**오메기떡** @**할머니떡집**  
@@ -37,48 +37,48 @@ red-eye flight係當然嘅首選
 啲果仁香到癲又夠脆  
 哇！真係好食到震～～～  
 
-[![](https://c1.staticflickr.com/5/4481/37847121831_da8a056d1e_z.jpg)](https://c1.staticflickr.com/5/4481/37847121831_da8a056d1e_z.jpg)
+![](https://c1.staticflickr.com/5/4481/37847121831_da8a056d1e_z.jpg)
 
 好喇，市場啲舖好多都响未開同準備中之間  
 去吓今個trip唯一嘅景點先  
 （冇錯！呢個trip實際上又係只得食啫）  
 
-[![](https://c1.staticflickr.com/5/4486/37137123134_47106ae3ba_z.jpg)](https://c1.staticflickr.com/5/4486/37137123134_47106ae3ba_z.jpg)
+![](https://c1.staticflickr.com/5/4486/37137123134_47106ae3ba_z.jpg)
 
-出市場之後就係**李仲燮藝術街**（**이중섭거리**）  
+出市場之後就係**李仲燮藝術街（이중섭거리**）  
 對佢啲嘢冇乜感覺同認識  
 兜過就算喇，反正係咪都要經過…  
 
-[![](https://c1.staticflickr.com/5/4462/37137123984_7ee4d355be_z.jpg)](https://c1.staticflickr.com/5/4462/37137123984_7ee4d355be_z.jpg)
+![](https://c1.staticflickr.com/5/4462/37137123984_7ee4d355be_z.jpg)
 
 呀，weekend有藝術市集嘅  
 不過啲嘢唔太吸引我  
 
-[![](https://c1.staticflickr.com/5/4458/37847121431_effc67314a_z.jpg)](https://c1.staticflickr.com/5/4458/37847121431_effc67314a_z.jpg)
+![](https://c1.staticflickr.com/5/4458/37847121431_effc67314a_z.jpg)
 
 沿著海邊行，好L大風  
 
-[![](https://c1.staticflickr.com/5/4506/37137128204_ea9ed4fa02_z.jpg)](https://c1.staticflickr.com/5/4506/37137128204_ea9ed4fa02_z.jpg)
+![](https://c1.staticflickr.com/5/4506/37137128204_ea9ed4fa02_z.jpg)
 
 唔向海望就係向山  
-**漢拏山**（**한라산**）係韓國最高嘅山，就咁。  
+**漢拏山（한라산**）係韓國最高嘅山，就咁。  
 
-[![](https://c1.staticflickr.com/5/4444/37137126964_172c06dd50_z.jpg)](https://c1.staticflickr.com/5/4444/37137126964_172c06dd50_z.jpg)
+![](https://c1.staticflickr.com/5/4444/37137126964_172c06dd50_z.jpg)
 
-好喇行到checkpoint：**正房瀑布**（**정방폭포**）  
+好喇行到checkpoint：**正房瀑布（정방폭포**）  
 特登嚟睇㗎！  
 佢係亞洲唯一直接流入海嘅瀑布  
 一啲都唔宏偉㗎  
 只係佢比較特別咋  
 加上呢度超近下一個食嘢嘅地方  
 
-[![](https://c1.staticflickr.com/5/4490/37137129304_6245139dbe_z.jpg)](https://c1.staticflickr.com/5/4490/37137129304_6245139dbe_z.jpg)
+![](https://c1.staticflickr.com/5/4490/37137129304_6245139dbe_z.jpg)
 
 so，就算呢樹有海女即捕即解嘅海鮮都冇試  
 
-[![](https://c1.staticflickr.com/5/4474/37137125074_f83536994d_z.jpg)](https://c1.staticflickr.com/5/4474/37137125074_f83536994d_z.jpg)
+![](https://c1.staticflickr.com/5/4474/37137125074_f83536994d_z.jpg)
 
-brunch @**風車雞海鮮鍋**（**풍차닭해물탕**）  
+brunch @**風車雞海鮮鍋（풍차닭해물탕**）  
 黐孖根㗎勁大兜囉（傻眼）  
 帶子個殼係我隻前臂咁長  
 然後裡面有蝦有蟹有八爪魚  
@@ -89,25 +89,25 @@ brunch @**風車雞海鮮鍋**（**풍차닭해물탕**）
 連埋海鮮呀雞呀咁一齊滾  
 個湯又甘又甜咁好好味  
 
-[![](https://c1.staticflickr.com/5/4509/37137122024_957289b534_z.jpg)](https://c1.staticflickr.com/5/4509/37137122024_957289b534_z.jpg)
+![](https://c1.staticflickr.com/5/4509/37137122024_957289b534_z.jpg)
 
 當然唔少得另一種甜味  
-嚟濟州梗係要飲吓呢度嘅**濟州柑makgeolli**（**막걸리**）  
+嚟濟州梗係要飲吓呢度嘅**濟州柑makgeolli（막걸리**）  
 呢隻有淡淡柑味米酒味出啲  
   
 ...食完慢慢行返去酒店check-in  
 
-[![](https://c1.staticflickr.com/5/4453/37815522572_61f89a2ddd_z.jpg)](https://c1.staticflickr.com/5/4453/37815522572_61f89a2ddd_z.jpg)
+![](https://c1.staticflickr.com/5/4453/37815522572_61f89a2ddd_z.jpg)
 
 跟住就殺落**HomePlus**  
 係㗎喇，不嬲都係介乎去食嘢同買嘢食咁㗎啦  
 
-[![](https://c1.staticflickr.com/5/4443/37815524222_2a5d965275_z.jpg)](https://c1.staticflickr.com/5/4443/37815524222_2a5d965275_z.jpg)
+![](https://c1.staticflickr.com/5/4443/37815524222_2a5d965275_z.jpg)
 
-晚餐就走去食濟州黑牛 @**흑한우명품관**（**토평동수국길**）  
+晚餐就走去食濟州黑牛 @**흑한우명품관（토평동수국길**）  
 炭～ 火～ 燒～ 牛～  
 
-[![](https://c1.staticflickr.com/5/4444/37589594310_1d07a95a5d_z.jpg)](https://c1.staticflickr.com/5/4444/37589594310_1d07a95a5d_z.jpg)
+![](https://c1.staticflickr.com/5/4444/37589594310_1d07a95a5d_z.jpg)
 
 有牛扒同胸腹肉  
 （想嗌排骨但係佢呢度得調味排骨要食原味嘅我就冇嗌到喇）  
@@ -120,7 +120,7 @@ brunch @**風車雞海鮮鍋**（**풍차닭해물탕**）
 仲要佢耐燒啲，個脂肪位燒到脆卜卜咁  
 肉位又唔會太乾，好好味呢～  
 
-[![](https://c1.staticflickr.com/5/4471/37589592330_62cbd55182_z.jpg)](https://c1.staticflickr.com/5/4471/37589592330_62cbd55182_z.jpg)
+![](https://c1.staticflickr.com/5/4471/37589592330_62cbd55182_z.jpg)
 
 今晚飲有汽嘅傳統濟州makgeolli  
 （**전통 제주 막걸리 생유산균**）  
@@ -128,7 +128,7 @@ brunch @**風車雞海鮮鍋**（**풍차닭해물탕**）
 米味香甜仲要有汽，好似飲汽水咁  
 但係又有微微發酵氣味，好正呢！  
 
-[![](https://c1.staticflickr.com/5/4496/37589591440_db442a4199_z.jpg)](https://c1.staticflickr.com/5/4496/37589591440_db442a4199_z.jpg)
+![](https://c1.staticflickr.com/5/4496/37589591440_db442a4199_z.jpg)
 
 一日嘅結束係唔可以遺漏宵夜呢樣嘢  
 不過食完牛飽飽地  
@@ -141,9 +141,4 @@ brunch @**風車雞海鮮鍋**（**풍차닭해물탕**）
 好喇，玩完一整日係時候休息吓  
 聽日再去食食食過～  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-Day1：西歸浦 서귀포  
-[Day2：西歸浦 서귀포 ⇋ 中文區 중문관광단지](https://www.hidie.net/2017/10/day-2_24.html)  
-[Day3：西歸浦 서귀포 ⇀ 濟州市 제주시](https://www.hidie.net/2017/10/day-3.html)
+{{<jeju>}}

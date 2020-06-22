@@ -9,7 +9,7 @@ tags : [travel - ประเทศไทย・กรุงเทพ (Bangkok)]
 要走喇要走喇  
 預早少少去機場  
 
-[![](https://c1.staticflickr.com/5/4331/36530586111_de1fbe4613_z.jpg)](https://c1.staticflickr.com/5/4331/36530586111_de1fbe4613_z.jpg)
+![](https://c1.staticflickr.com/5/4331/36530586111_de1fbe4613_z.jpg)
 
 臨check out前食返pack生果先  
 又香又甜又好味，啦啦啦～  
@@ -18,7 +18,7 @@ tags : [travel - ประเทศไทย・กรุงเทพ (Bangkok)]
   
   
 
-[![](https://c1.staticflickr.com/5/4374/36669361225_55044ec7f4_z.jpg)](https://c1.staticflickr.com/5/4374/36669361225_55044ec7f4_z.jpg)
+![](https://c1.staticflickr.com/5/4374/36669361225_55044ec7f4_z.jpg)
 
 早啲去機場就係特登嚟**機場個food court**食嘢  
 唔係遊客食肆嗰層喎  
@@ -32,7 +32,7 @@ check in後入閘過關又再行吓
   
   
 
-[![](https://c1.staticflickr.com/5/4377/36530808121_3852be88ee_z.jpg)](https://c1.staticflickr.com/5/4377/36530808121_3852be88ee_z.jpg)
+![](https://c1.staticflickr.com/5/4377/36530808121_3852be88ee_z.jpg)
 
 梗係揼揼骨鬆鬆筋啦  
 **Express Spa**當然係比市區嘅貴啲  
@@ -43,17 +43,10 @@ check in後入閘過關又再行吓
   
   
 
-[![](https://c1.staticflickr.com/5/4358/36531047071_c989fb41bc_z.jpg)](https://c1.staticflickr.com/5/4358/36531047071_c989fb41bc_z.jpg)
+![](https://c1.staticflickr.com/5/4358/36531047071_c989fb41bc_z.jpg)
 
 @高空三萬五千呎，隻非洲啤TUSKER都OK喎！  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：Taxi Taxi](https://www.hidie.net/2017/09/day1taxi-taxi.html)  
-[Day2：จตุจักร (Jatujak)、เซ็นทรัลเวิลด์ (CentralWorld)](https://www.hidie.net/2017/09/day2-jatujak-centralworld.html)  
-[Day3：อโศก (Asok) - เทอร์มินอล 21 อโศก (Terminal 21)](https://www.hidie.net/2017/09/day3-asok-21-terminal-21.html)  
-[Day4：อนุสาวรีย์ชัยสมรภูมิ (Victory Monument)、สยาม (Siam)、ชิดลม (Chidlom)](https://www.hidie.net/2017/09/day4-victory-monument-siam-chidlom.html)  
-[Day5：เซ็นทรัลเวิลด์ (CentralWorld)、TALAD Neon](https://www.hidie.net/2017/09/day5-centralworldtalad-neon.html)  
-Day6：ท่าอากาศยานสุวรรณภูมิ Suvarnabhumi Airport (BKK)
+
+{{<bangkok>}}

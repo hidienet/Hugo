@@ -12,7 +12,7 @@ AOA，有火辣辣美女也不錯
 （引HIMHIM的最大“動力”，ㅋㅋㅋ）  
 而「女版洪基」JUNIEL是清新的歌路，舒緩下也不錯  
 
-[![](https://farm8.staticflickr.com/7767/17133615114_272528517e_z.jpg)](https://farm8.staticflickr.com/7767/17133615114_272528517e_z.jpg)
+![](/images/fnckingdom20150516.jpg)
 
 好期待（興奮興奮興奮）  
 多謝HIMHIM，yeah～～～  

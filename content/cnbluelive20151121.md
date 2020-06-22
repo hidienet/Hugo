@@ -8,7 +8,7 @@ tags : [amusement - zene]
 
 Yeah Yeah Yeah！  
 
-[![](https://c1.staticflickr.com/1/739/22874970440_5be30ef7a4_z.jpg)](https://c1.staticflickr.com/1/739/22874970440_5be30ef7a4_z.jpg)
+![](/images/cnbluelive20151121.jpg)
 
 鄭容和，yo～  
 CNBLUE，yo yo yo～  

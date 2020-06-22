@@ -9,7 +9,7 @@ tags : [amusement - zene]
 咁就等咗三年喇（solo啦）  
 真係佢入伍前嘅最後嘅Live...  
 
-[![](https://c1.staticflickr.com/5/4670/26046749768_46c763cae1_z.jpg)](https://c1.staticflickr.com/5/4670/26046749768_46c763cae1_z.jpg)
+![](/images/jyhlive180127.jpg)
 
 **용화아 화이팅！！！**  
   

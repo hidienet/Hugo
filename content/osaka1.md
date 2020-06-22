@@ -11,7 +11,7 @@ tags : [lifestyle - 逃離852, travel - 日本（関西近畿）・ 大和奈良
 [![](https://c1.staticflickr.com/5/4387/36962153841_aa89c00efc_z.jpg)](https://c1.staticflickr.com/5/4387/36962153841_aa89c00efc_z.jpg)
 
 移動中嘅早餐 (又)係**柿の葉すし**  
-唔係平宗而另一間叫**[たなか](http://www.hidie.net/2017/11/day5.html)**嘅舖頭  
+唔係平宗而另一間叫[たなか](http://www.hidie.net/2017/11/day5.html)嘅舖頭  
 試吓新嘢嘛唔好只係食定一間嘛  
   
   
@@ -50,7 +50,7 @@ tags : [lifestyle - 逃離852, travel - 日本（関西近畿）・ 大和奈良
 
 [![](https://c1.staticflickr.com/5/4355/36633935876_23ec160e8a_z.jpg)](https://c1.staticflickr.com/5/4355/36633935876_23ec160e8a_z.jpg)
 
-**チーズタルトかき氷 **@**PABLO**  
+**チーズタルトかき氷** @**PABLO**  
 食完成個course都唔係頂住個肚  
 行兩粒鐘就可以食得落甜品喇  
 PABLO係食cheese tart嘅  
@@ -65,7 +65,7 @@ PABLO係食cheese tart嘅
 
 [![](https://c1.staticflickr.com/5/4337/36511245222_2bd686835f_z.jpg)](https://c1.staticflickr.com/5/4337/36511245222_2bd686835f_z.jpg)
 
-**せんべい **@**たこ八**  
+**せんべい** @**たこ八**  
 嚟大阪無理由唔食たこ焼き  
 
 但又想食啲再大阪風味啲嗰種
@@ -83,12 +83,5 @@ PABLO係食cheese tart嘅
   
 
 食飽就瞓，聽朝再食過！  
-  
-\-----------------------------------------------  
-  
-延伸閱讀：  
-Day1：黒門市場、道頓堀、心斎橋
 
-[Day2：黒門市場、千日前、道頓堀、アメリカ村](https://www.hidie.net/2017/09/day2.html)  
-[Day3：新世界、梅田](https://www.hidie.net/2017/09/day3.html)  
-[Day4：アメリカ村、難波、関西空港](https://www.hidie.net/2017/09/day4.html)
+{{<osaka>}}

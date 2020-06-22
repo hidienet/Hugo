@@ -17,23 +17,23 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 [![](https://c1.staticflickr.com/5/4438/36706823930_2bc613c274_z.jpg)](https://c1.staticflickr.com/5/4438/36706823930_2bc613c274_z.jpg)
 
 早餐就去創業逾百四年嘅吉野本葛舖頭  
-**[天極堂](http://www.hidie.net/2017/11/day4_9.html)**（since1870）  
+[天極堂](http://www.hidie.net/2017/11/day4_9.html)（since1870）  
 噶噶噶噶噶  
 
 [![](https://c1.staticflickr.com/5/4440/36932670562_7a97b93b53_z.jpg)](https://c1.staticflickr.com/5/4440/36932670562_7a97b93b53_z.jpg)
 
 然後就飽住咁參觀世界遺產之一  
-有成千二年歷史嘅**[東大寺](http://www.hidie.net/2017/11/day4_10.html)**  
+有成千二年歷史嘅[東大寺](http://www.hidie.net/2017/11/day4_10.html)  
 好～ 大～～～ 好多地方行好多嘢睇呀  
 
 [![](https://c1.staticflickr.com/5/4383/36979154051_37dfbe3cfd_z.jpg)](https://c1.staticflickr.com/5/4383/36979154051_37dfbe3cfd_z.jpg)
 
-再响**[二月堂北茶所](http://www.hidie.net/2017/11/day4_59.html)**飲吓綠茶  
-食吓**[大仏生あん葛](http://www.hidie.net/2017/11/day4_59.html)**  
+再响[二月堂北茶所](http://www.hidie.net/2017/11/day4_59.html)飲吓綠茶  
+食吓[大仏生あん葛](http://www.hidie.net/2017/11/day4_59.html)  
 
 [![](https://c1.staticflickr.com/5/4344/36706998960_09d3e2d266_z.jpg)](https://c1.staticflickr.com/5/4344/36706998960_09d3e2d266_z.jpg)
 
-跟住食晏 @**[麺闘庵](http://www.hidie.net/2017/11/day4_13.html)**  
+跟住食晏 @[麺闘庵](http://www.hidie.net/2017/11/day4_13.html)  
 （**巾着きつねうどん**）  
 好得意嘅大大塊豆皮包住烏冬  
 味道係好好嘅（拇指）  
@@ -41,7 +41,7 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 
 [![](https://c1.staticflickr.com/5/4425/36932929152_b8971370f6_z.jpg)](https://c1.staticflickr.com/5/4425/36932929152_b8971370f6_z.jpg)
 
-晚飯呢就响食鰻魚嘅連鎖店嘅**[江戸川](http://www.hidie.net/2017/11/day4_14.html)**  
+晚飯呢就响食鰻魚嘅連鎖店嘅[江戸川](http://www.hidie.net/2017/11/day4_14.html)  
 特登响奈良町食，當然係因為間町屋啦  
 不過啲嘢食係絕對冇被比下去  
 **国産鰻 x 大和牛**  

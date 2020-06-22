@@ -26,8 +26,7 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa1h3.jpg)
 
-今日已經過咗呢個時間  
-得返個普通冇咩特別嘅濕笠笠街巿
+but行埋啲，覺得冇咩特別咁...
 
 ![](/images/kanagawa1h4.jpg)
 

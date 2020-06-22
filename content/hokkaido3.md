@@ -48,7 +48,7 @@ tags : [travel - 日本（北海道蝦夷）・ 十勝帯広、釧路、北見�
 
 買完駅弁同羊羹又行返去和商市場  
 見到有鹿肉食就忍唔住喇  
-**鹿肉バーガー **@**喫茶ポラリス**  
+**鹿肉バーガー** @**喫茶ポラリス**  
 同麥記靚啲嘅包咁上下嘅價錢  
 買到兩塊厚厚鹿肉漢堡肉嘅包包  
 個味一啲都唔羶  
@@ -177,7 +177,7 @@ by 釧路くじら協議会
 
 [![](https://c1.staticflickr.com/5/4343/37305518706_a6c1810968_z.jpg)](https://c1.staticflickr.com/5/4343/37305518706_a6c1810968_z.jpg)
 
-都係用一節守車改造成車站站房嘅**びるわ****駅**  
+都係用一節守車改造成車站站房嘅**びるわ駅**  
 
 [![](https://c1.staticflickr.com/5/4334/37305607026_8cfd4df600_z.jpg)](https://c1.staticflickr.com/5/4334/37305607026_8cfd4df600_z.jpg)
 
@@ -212,7 +212,7 @@ by 釧路くじら協議会
 
 [![](https://c1.staticflickr.com/5/4491/37323883742_6d20007a9f_z.jpg)](https://c1.staticflickr.com/5/4491/37323883742_6d20007a9f_z.jpg)
 
-**網走（網走****駅）**  
+**網走（網走駅）**  
 到今日要stay嘅地方  
 又到咗拖行李去酒店嘅時候喇  
 
@@ -223,7 +223,7 @@ by 釧路くじら協議会
 
 [![](https://c1.staticflickr.com/5/4500/37097944150_1bdf682859_z.jpg)](https://c1.staticflickr.com/5/4500/37097944150_1bdf682859_z.jpg)
 
-不過呢間先有得食**網走****モヨロ鍋**  
+不過呢間先有得食**網走モヨロ鍋**  
 呢個鍋呀嘛... 係網走當地料理  
 要符合10項標準先算係正宗  
 所以就算响呢度都唔係周街有呢樣嘢食  
@@ -256,14 +256,4 @@ round 2
 然後Zzz...  
   
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：新千歳空港 → 帯広](https://www.hidie.net/2017/09/day1_28.html)  
-[Day2：帯広 → 釧路](https://www.hidie.net/2017/09/day2_29.html)  
-Day3： 釧路 → 塘路 → 網走  
-[Day4： 網走 → 旭川](https://www.hidie.net/2017/10/day4.html)  
-[Day5： 旭川 → 稚內](https://www.hidie.net/2017/10/day5.html)  
-[Day6： 稚內 → 札幌](https://www.hidie.net/2017/10/day6.html)  
-[Day7： 札幌 ↔ 小樽](https://www.hidie.net/2017/10/day7.html)  
-[Day8： 札幌 → 新千歳空港](https://www.hidie.net/2017/10/day8.html)
+{{<hokkaido>}}

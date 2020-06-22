@@ -78,10 +78,23 @@ hello相模湾
 
 ![](/images/kanagawa1g16.jpg)
 
+check point 3：**ウミウ展望台**  
+三浦半島八景 之一「城ヶ島の落雁」
 
+![](/images/kanagawa1g17.jpg)
 
+如果天朗氣清會見到對出對落嘅島sss  
+but今日嘛… 都叫見到啲黑影嘅…
 
+![](/images/kanagawa1g18.jpg)
 
+**ウミウの銅像**
 
+![](/images/kanagawa1g19.jpg)
+
+山路路程短短，話咁快就行完  
+雖然繼續順住直行仲可以去到**県立城ヶ島公園**  
+不過行少少就夠加上啲雨越嚟越大粒  
+都係落返白秋碑前等巴士走...
 
 {{<kanagawa>}}

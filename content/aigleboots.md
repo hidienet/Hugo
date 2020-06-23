@@ -3,12 +3,12 @@ title: '[rain boots] liberty of London for Aigle'
 date: 2014-05-05T08:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/rain-boots-liberty-of-london-for-aigle.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 落雨的日子去踩踩水就最開心（啦啦啦）  
 
-[![](https://2.bp.blogspot.com/-0pjL2Ze9r3A/XDGmXFYIkKI/AAAAAAAAElM/2CpLOHDZKHoVTUNfG4f-j0V5_k_Df5z2ACLcBGAs/s640/2.jpg)](https://2.bp.blogspot.com/-0pjL2Ze9r3A/XDGmXFYIkKI/AAAAAAAAElM/2CpLOHDZKHoVTUNfG4f-j0V5_k_Df5z2ACLcBGAs/s1600/2.jpg)
+![](/images/aigleboots.jpg)
 
 下雨天一般天空都是昏昏沉沉  
 著對花花boot周街走  

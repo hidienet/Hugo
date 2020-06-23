@@ -8,7 +8,7 @@ tags : [amusement - games]
 
 嗱～ 唔係嘢嘢開會都係痛苦同嘥時間嘅...  
 
-[![](https://c1.staticflickr.com/1/873/39263722640_97bb3d81f7_z.jpg)](https://c1.staticflickr.com/1/873/39263722640_97bb3d81f7_z.jpg)
+![](/images/villannex.jpg)
 
 好似呢盒**合併競議会**咁  
 要諗自己出咩最有利  

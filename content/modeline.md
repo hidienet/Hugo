@@ -3,13 +3,13 @@ title: '[stocking] modeline おそと用タイツ 80デニール'
 date: 2014-01-29T08:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/stocking-modeline-80.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 像我這種脂肪+肌肉+水腫三重打擊的胖胖腿  
 日瘦夜瘦當然是目標之一（絕不認命）  
 
-[![](https://1.bp.blogspot.com/-cC-27kx9ZYk/XCi1bigVH2I/AAAAAAAADdg/jPgAFip0YK00WNvtEfTMiRMJHx3mjfERACLcBGAs/s640/13.jpg)](https://1.bp.blogspot.com/-cC-27kx9ZYk/XCi1bigVH2I/AAAAAAAADdg/jPgAFip0YK00WNvtEfTMiRMJHx3mjfERACLcBGAs/s1600/13.jpg)
+![](/images/modeline.jpg)
 
 made in japan的80針黑絲  
 （強調來源是因為多數同類型產品都是M.I.C.的）  
@@ -37,4 +37,4 @@ made in japan的80針黑絲
 不過也夠開心呢～  
 （女人）  
   
-延伸閱讀：[Dr. Scholl Medi QttO](http://www.hidie.net/2013/12/leg-dr-scholl-medi-qtto.html)
+延伸閱讀：[Dr. Scholl Medi QttO](https://hidie.net/drschollqtto/)

@@ -3,10 +3,10 @@ title: '[sandals] havaianas x 陽光與海灘'
 date: 2013-09-27T22:17:00.000+08:00
 draft: false
 aliases: [ "/2013/09/slippers-havaianas-x.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
-[![](https://3.bp.blogspot.com/-E92YbMuZg5I/XCOIFixHUVI/AAAAAAAABy4/NaWxoqSQ-3kKDau4XTx1B-QcKusGaHUuACLcBGAs/s640/p.jpg)](https://3.bp.blogspot.com/-E92YbMuZg5I/XCOIFixHUVI/AAAAAAAABy4/NaWxoqSQ-3kKDau4XTx1B-QcKusGaHUuACLcBGAs/s1600/p.jpg)
+![](/images/havaianas.jpg)
 
   
 

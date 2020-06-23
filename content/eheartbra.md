@@ -3,19 +3,19 @@ title: '[brassiere] e·heart sexy v-line beauty bra'
 date: 2014-05-04T11:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/brassiere-eheart-sexy-v-line-beauty-bra.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 如果說之前的[wacoal](http://www.hidie.net/2014/02/brassiere-wacoal.html)尺碼令我重獲自信  
 那麼這隻爸爸應該是令我重生吧（嘿）  
 
-[![](https://4.bp.blogspot.com/-zCNGWKf4eJU/XDGljLTpK5I/AAAAAAAAEkk/dW0QHP1yv70-JRarTMnLo3_0_RYX9wTDACLcBGAs/s640/96.jpg)](https://4.bp.blogspot.com/-zCNGWKf4eJU/XDGljLTpK5I/AAAAAAAAEkk/dW0QHP1yv70-JRarTMnLo3_0_RYX9wTDACLcBGAs/s1600/96.jpg)
+[![](/images/eheartbra.jpg)
 
 （擠眉弄眼的劉伊心真的不是我杯茶）  
 像sport bra的樣子跟材質  
 cool touch的布料，不會悶熱  
 
-[![](https://3.bp.blogspot.com/-uJ__ctP8044/XDGlsmB7SyI/AAAAAAAAEks/eEUcp0r5-pEJe-2mQU5zGJDIEtQvc-riQCLcBGAs/s640/97.jpg)](https://3.bp.blogspot.com/-uJ__ctP8044/XDGlsmB7SyI/AAAAAAAAEks/eEUcp0r5-pEJe-2mQU5zGJDIEtQvc-riQCLcBGAs/s1600/97.jpg)
+![](/images/eheartbra1.jpg)
 
 圖右那種背部高身點  
 加上車了“x”的設計是為了防止寒背  

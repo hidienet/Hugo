@@ -6,7 +6,7 @@ aliases: [ "/2018/03/005.html" ]
 tags : [lifestyle - 攝 ‧ 時間]
 ---
 
-[![](https://c1.staticflickr.com/1/817/27117615168_b36ec70bc3_z.jpg)](https://c1.staticflickr.com/1/817/27117615168_b36ec70bc3_z.jpg)
+![](/images/hopeless005.jpg)
 
 呢個城市，無論人定雀  
 只要有權勢嘅人覺得你間屋礙眼  

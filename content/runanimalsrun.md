@@ -9,17 +9,17 @@ tags : [amusement - games]
 清明，悼念仙遊咗嘅先人之外  
 不妨以遊玩方式去正視動物絕種問題…  
 
-[![](https://c1.staticflickr.com/1/865/26358119137_3d707bff14_z.jpg)](https://c1.staticflickr.com/1/865/26358119137_3d707bff14_z.jpg)
+![](/images/runanimalsrun.jpg)
 
 用色好灰，玩完都覺得好灰  
 厭世姬筆下隻隻都係眼神死喊晒口嘅動物  
 而呢批仲係臺灣瀕危類嘅物種  
 
-[![](https://c1.staticflickr.com/1/821/40334012365_85dc22dd99_z.jpg)](https://c1.staticflickr.com/1/821/40334012365_85dc22dd99_z.jpg)
+![](/images/runanimalsrun1.jpg)
 
 棋盤呀棋呀骰仔呀mission card呀  
 
-[![](https://c1.staticflickr.com/1/809/26358118307_7cbe3a47fb_z.jpg)](https://c1.staticflickr.com/1/809/26358118307_7cbe3a47fb_z.jpg)
+![](/images/runanimalsrun2.jpg)
 
 同個墳墓...（w/哀號）  
   

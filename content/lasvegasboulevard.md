@@ -8,7 +8,7 @@ tags : [amusement - games]
 
 响Las Vegas唔係聚賭仲有咩好做？  
 
-[![](https://c1.staticflickr.com/5/4744/38544140700_5666330933_z.jpg)](https://c1.staticflickr.com/5/4744/38544140700_5666330933_z.jpg)
+![](/images/lasvegasboulevard.jpg)
 
 最多8個人一齊玩嘅遊戲  
 （4-6人最適合）  

@@ -6,30 +6,30 @@ aliases: [ "/2014/07/death-note-1-12.html" ]
 tags : [amusement - manga]
 ---
 
-如果殺人有那麼簡單方法就好了  
-（已經有一大條waiting list好了嘿嘿嘿）  
+如果殺人有咁直接簡單嘅方法就好喇  
+（已經有一大條waiting list嘿嘿嘿）  
 
-[![](https://2.bp.blogspot.com/-TxvQPOH5U44/XEQDIt010iI/AAAAAAAAF_8/RWf8hJeatfYrUIDDp-VAgLvknPsXOJrAQCLcBGAs/s640/11020216506_20283b213d_z.jpg)](https://2.bp.blogspot.com/-TxvQPOH5U44/XEQDIt010iI/AAAAAAAAF_8/RWf8hJeatfYrUIDDp-VAgLvknPsXOJrAQCLcBGAs/s1600/11020216506_20283b213d_z.jpg)
+![](/images/deathnote.jpg)
 
-超喜歡這個題材  
-由一個IQ同EQ都很高的人  
-判別那些是應該消滅的壞人  
-令世界少一些罪犯壞蛋  
-然後在人道上  
-警察們就要去抓殺人犯  
-好一場鬥腦的遊戲  
+超鍾意呢個題材  
+由一個IQ同EQ都好高嘅人  
+判別邊啲係應該要消滅嘅壞人  
+令世界少一啲罪犯壞蛋  
+然而晌人道上  
+警察就要去捉殺人犯  
+好一場鬥腦嘅遊戲  
   
-不過L死後就不好看了  
-之後的又屈機  
-又甚麼邪不能勝正  
+不過L死後就唔好睇喇  
+之後嘅又屈機  
+又咩邪不能勝正咁  
 （誰邪誰正？）  
-結局不好看，主角不應該是這樣  
+結局唔好睇，主角唔應該係咁樣（扼拳）  
   
-沒看過的話  
-強烈建議只看1-7集  
-日本連載大多都這樣爛尾，唉～  
+無睇過嘅話  
+強烈建議只睇1-7集  
+日本連載大多都係咁爛尾，唉～  
   
-一整套是1-712本  
-第13本是解釋本解讀云云  
+成套係1-12本  
+第13本係解釋本解讀云云  
   
 夜神月呀、L呀～～～

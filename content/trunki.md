@@ -3,7 +3,7 @@ title: '[suitcase] trunki - frieda cow'
 date: 2014-05-03T11:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/suitcase-trunki-frieda-cow.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 如果不是出走很多天  

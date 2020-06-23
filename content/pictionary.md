@@ -6,23 +6,23 @@ aliases: [ "/2014/01/board-game-pictionary.html" ]
 tags : [amusement - games]
 ---
 
-過時過節當然要玩得開心  
+過時過節梗係要玩得開心  
 
-[![](https://1.bp.blogspot.com/-0ibxsp4PYe4/XCiwsQFFwhI/AAAAAAAADcc/x_Pu-sdZNOMNBODT8TmQ3GFNyPi2IB9kACLcBGAs/s640/05.jpg)](https://1.bp.blogspot.com/-0ibxsp4PYe4/XCiwsQFFwhI/AAAAAAAADcc/x_Pu-sdZNOMNBODT8TmQ3GFNyPi2IB9kACLcBGAs/s1600/05.jpg)
+![](/images/pictionary.jpg)
 
-有四個人以上就要玩這套超爆的pictionary  
+有四個人以上就要玩呢套超爆笑嘅pictionary  
 兩人一組，一個負責畫  
-另一個就估畫什麼  
-溝通良好的有時候畫少少都大概知道是什麼  
-畫功好的當然有著數  
-不過估的那個也要用d頭腦  
-爆笑點永遠在畫功奇怪  
+另一個就估畫緊咩  
+溝通良好嘅有時候畫少少都大概知道係咩  
+畫功好嘅當然有著數  
+不過估嘅人都要用d頭腦  
+爆笑點永遠晌畫功奇怪  
 組合沒有默契  
-加上估的人腦袋空白  
-那就會有一番好戲上演 XDDD  
+加上估嘅人腦袋空白  
+咁就會有一番好戲上演 XDDD  
   
 超好玩超好笑  
-絕對是誠意推介的玩意  
+絕對係誠意推介嘅玩意  
   
   
-快樂是必須品啊～
+快樂係必須品啊～

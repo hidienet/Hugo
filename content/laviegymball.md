@@ -8,7 +8,7 @@ tags : [lifestyle - zakka]
 
 個gym ball係要嚟鍛鍊嘅！  
 
-[![](https://c1.staticflickr.com/1/813/26006662677_fecbc8222f_z.jpg)](https://c1.staticflickr.com/1/813/26006662677_fecbc8222f_z.jpg)
+![](/images/laviegymball.jpg)
 
 不過我喎，懶到出血嘅我喎  
 又點會係拎嚟碌吓碌吓做運動吖  

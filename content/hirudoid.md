@@ -14,7 +14,7 @@ tags : [lifestyle - 急救箱]
 那個女的由細到大都會用這法寶祛瘀傷  
   
 
-[![](https://3.bp.blogspot.com/-5CxOofh2i6Q/XC4JfzU-XwI/AAAAAAAAD3E/gmotfBYjqKEzSqAldL94KEu6GwU0MO8dwCLcBGAs/s640/68.jpg)](https://3.bp.blogspot.com/-5CxOofh2i6Q/XC4JfzU-XwI/AAAAAAAAD3E/gmotfBYjqKEzSqAldL94KEu6GwU0MO8dwCLcBGAs/s1600/68.jpg)
+![](/images/hirudoid.jpg)
 
 這支德國寶物  
 使她的瘀傷快2-3倍復原  

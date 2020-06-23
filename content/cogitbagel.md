@@ -10,7 +10,7 @@ tags : [lifestyle - zakka]
 其中一個很大的變化就是愛上坐在地上  
 但畢竟硬硬的地板不會太舒服...  
 
-[![](https://farm8.staticflickr.com/7796/17426322755_f06fed9be3_z.jpg)](https://farm8.staticflickr.com/7796/17426322755_f06fed9be3_z.jpg)
+![](/images/cogitbagel.jpg)
 
 所以就買了個舒服又對盆骨好的低壓座墊  
 坐著來看書用電腦很舒適  
@@ -25,4 +25,4 @@ tags : [lifestyle - zakka]
   
 \-----------------------------------------------  
   
-延伸閱讀：[cogit らくちん美尻クッション](http://www.hidie.net/2014/02/cogit.html)
+延伸閱讀：[cogit らくちん美尻クッション](https://hidie.net/cogitcusion/)

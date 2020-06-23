@@ -9,7 +9,7 @@ tags : [amusement - drama]
 話說呢套劇第九次公演  
 等我又湊熱鬧講吓先  
 
-[![](https://c1.staticflickr.com/5/4412/36065622410_d233316c32_z.jpg)](https://c1.staticflickr.com/5/4412/36065622410_d233316c32_z.jpg)
+![](/images/waiting4match.jpg)
 
 我睇嘅場次係2011年嘅第七次公演  
 角色係廖啟智、鄧健泓、鄧智堅同鄭至芝  

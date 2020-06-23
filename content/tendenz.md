@@ -3,12 +3,12 @@ title: '[loafers] TendenZ'
 date: 2014-06-10T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/flats-tendenz.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 哈哈哈～ 隻色同個樣好似垃圾蟲  
 
-[![](https://2.bp.blogspot.com/-nXtN6py0wY0/XDNZHjxxXvI/AAAAAAAAFDM/L9ILtq4xRRUd2LMxazGS190czT_lr_VnwCLcBGAs/s640/119.jpg)](https://2.bp.blogspot.com/-nXtN6py0wY0/XDNZHjxxXvI/AAAAAAAAFDM/L9ILtq4xRRUd2LMxazGS190czT_lr_VnwCLcBGAs/s1600/119.jpg)
+![](/images/tendenz.jpg)
 
 made in bulgaria  
 鞋底是玫瑰花花紋  

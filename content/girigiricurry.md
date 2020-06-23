@@ -9,7 +9,7 @@ tags : [amusement - games]
 天氣凍凍哋就會想食吓咖喱  
 （黃明志：「讓我們一起吃咖哩咧...」）  
 
-[![](https://c1.staticflickr.com/5/4682/39421374892_3fdd68ac54_z.jpg)](https://c1.staticflickr.com/5/4682/39421374892_3fdd68ac54_z.jpg)
+![](/images/girigiricurry.jpg)
 
 食咖喱前不如玩玩呢個咖喱game暖身  
 好搞笑㗎又易上手喎！  
@@ -32,4 +32,4 @@ tags : [amusement - games]
   
 \-----------------------------------------------  
   
-延伸閱讀：[回憶咖喱](http://www.hidie.net/2014/06/blog-post_22.html)
+延伸閱讀：[回憶咖喱](https://hidie.net/curryalbum/)

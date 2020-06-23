@@ -8,16 +8,14 @@ tags : [amusement - games]
 
 港人港game，香港人的「集體回憶」就在棋盤裡 ．．．  
 
-[![](https://2.bp.blogspot.com/-NkP75nUisis/XCQ8HsaWrSI/AAAAAAAAB50/hIVSSwI3QOsF4PAqfhExhWTIXBluMc0xwCLcBGAs/s640/8.jpg)](https://2.bp.blogspot.com/-NkP75nUisis/XCQ8HsaWrSI/AAAAAAAAB50/hIVSSwI3QOsF4PAqfhExhWTIXBluMc0xwCLcBGAs/s1600/8.jpg)
+![](/images/quizztory.jpg)
 
 行棋是最普通那種，比snakes and ladders更沒有捷徑  
-
 除非，到了棋盤上有「＋」的位置
 
   
 
-Quizztory，是 Quiz + History
-
+Quizztory，是 Quiz + History  
 問的是關於香港的歷史、逸事題目  
 （這個世代稱為“通識”，對嗎？）  
 答對了問題便擲骰前進；否則後退  

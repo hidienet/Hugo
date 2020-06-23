@@ -6,7 +6,7 @@ aliases: [ "/2014/05/brassiere-eheart-sexy-v-line-beauty-bra.html" ]
 tags : [glamorous - 裝身]
 ---
 
-如果說之前的[wacoal](http://www.hidie.net/2014/02/brassiere-wacoal.html)尺碼令我重獲自信  
+如果說之前的[wacoal](https://hidie.net/wacoal/)尺碼令我重獲自信  
 那麼這隻爸爸應該是令我重生吧（嘿）  
 
 [![](/images/eheartbra.jpg)

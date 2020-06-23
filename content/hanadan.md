@@ -9,7 +9,7 @@ tags : [amusement - manga]
 如果話只係港女鍾情高富帥嘅話就有啲不公平  
 因為從來呢種男仔都係憧憬對象  
 
-[![](https://apgenw.ch.files.1drv.com/y4mMoUL6oWwEMTP0rrqjQ4bnsy5TFKuHt__JhGgdC2tdq3GK21bmdzktzJFRgqhk11iXitHb6i1jzCsYdYbJF1Z0JCYSAEqPvbboshPaQia_PeqkVJaYOY7hhgrhD8BzyLPdxlyXO8XJqBYeGWfWZO_Cna7PMZ1IQYSPeHhZvNGWFS5QlcemxH-PUiPPZqTXUV4vK0XgRK8a-vWySAx7mK_Xg?width=660&height=371&cropmode=none)](https://apgenw.ch.files.1drv.com/y4mMoUL6oWwEMTP0rrqjQ4bnsy5TFKuHt__JhGgdC2tdq3GK21bmdzktzJFRgqhk11iXitHb6i1jzCsYdYbJF1Z0JCYSAEqPvbboshPaQia_PeqkVJaYOY7hhgrhD8BzyLPdxlyXO8XJqBYeGWfWZO_Cna7PMZ1IQYSPeHhZvNGWFS5QlcemxH-PUiPPZqTXUV4vK0XgRK8a-vWySAx7mK_Xg?width=660&height=371&cropmode=none)
+![](/images/hanadan.jpg)
 
 呢套漫畫，日韓台都有拍過劇  
 屈機男根本就係深入民心  

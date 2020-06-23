@@ -3,7 +3,7 @@ title: 'S&B 七味唐がらし'
 date: 2014-12-13T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/12/s.html" ]
-tags : [collections - BIG & small]
+tags : [collections - mini]
 ---
 
 1:6的七味粉  

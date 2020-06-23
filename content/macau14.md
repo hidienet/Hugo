@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - macao]
 
 樣子醜，不過既然好吃也不妨一試對吧！  
 
-[![](https://farm9.staticflickr.com/8749/16950528872_6a8a3812fe_z.jpg)](https://farm9.staticflickr.com/8749/16950528872_6a8a3812fe_z.jpg)
+![](/images/macau14a.jpg)
 
 同豬紅一樣啡啡黑黑的是鴨血  
 用鴨血煮鴨，味道就是濃郁加濃郁  
@@ -16,7 +16,7 @@ tags : [flavor - 行膳積腹, travel - macao]
 纖維足而且鴨很新鮮所以富彈性  
 味道鮮而不會很鹹果真不錯吃  
 
-[![](https://farm8.staticflickr.com/7641/16765629469_995765768b_z.jpg)](https://farm8.staticflickr.com/7641/16765629469_995765768b_z.jpg)
+![](/images/macau14.jpg)
 
 爆濃有柔滑的龍蝦湯  
 不愛龍蝦味的我也覺得很好  

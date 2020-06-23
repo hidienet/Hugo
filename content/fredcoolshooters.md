@@ -8,7 +8,7 @@ tags : [lifestyle - zakka]
 
 只得一個大口仔小酒杯是獨樂樂  
 
-[![](https://3.bp.blogspot.com/-n6XF6UUasZU/XEMjZSLEz3I/AAAAAAAAFu8/wUUGTTQi6hcYAzWQwYDBpoTB0iBbdEmNACLcBGAs/s640/14186756419_0c65d115bd_z.jpg)](https://3.bp.blogspot.com/-n6XF6UUasZU/XEMjZSLEz3I/AAAAAAAAFu8/wUUGTTQi6hcYAzWQwYDBpoTB0iBbdEmNACLcBGAs/s1600/14186756419_0c65d115bd_z.jpg)
+![](/images/fredcoolshooters.jpg)
 
 一set四個冰shooter杯才會眾樂樂，yeah～  
   

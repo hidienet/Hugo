@@ -8,13 +8,13 @@ tags : [amusement - games]
 
 與其十一跟蝗蟲們擠在已淪陷的大街商場，不如宅在家玩更好！  
 
-[![](https://3.bp.blogspot.com/-xV4kdUdLtuc/XCOLy7FgtuI/AAAAAAAAB0U/5iuQPQjyN-IYJCdXLiRLpkTiNs6wZPuyACLcBGAs/s640/1.jpg)](https://3.bp.blogspot.com/-xV4kdUdLtuc/XCOLy7FgtuI/AAAAAAAAB0U/5iuQPQjyN-IYJCdXLiRLpkTiNs6wZPuyACLcBGAs/s1600/1.jpg)
+![](/images/abalone.jpg)
 
 人不多，今天下下棋動腦筋  
 這套棋不像中國象棋國際象棋等那麼多規矩  
 只記住要大蝦細 (yo!) 跟要想辦法推對手落街 (yeah!)就是  
 
-[![](https://2.bp.blogspot.com/-l6yNenBdFrE/XCOL70Q5kJI/AAAAAAAAB0Y/Zm2E4ljqAakBPXiOPzI21USUok6kbD06QCLcBGAs/s640/2.jpg)](https://2.bp.blogspot.com/-l6yNenBdFrE/XCOL70Q5kJI/AAAAAAAAB0Y/Zm2E4ljqAakBPXiOPzI21USUok6kbD06QCLcBGAs/s1600/2.jpg)
+![](/images/abalone1.jpg)
 
 易學，卻難精  
 如果對手智慧跟自己差不多就要花多點時間膠著  

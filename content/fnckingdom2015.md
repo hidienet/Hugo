@@ -18,7 +18,7 @@ tags : [amusement - zene]
 high到一整晚在跳在叫  
 星期日晚完show返屋企落車那一刻  
 已經深深感到小腿痛  
-就算當晚覺覺豬的時候已經貼了[休足時間](http://www.hidie.net/2013/11/lion.html)  
+就算當晚覺覺豬的時候已經貼了[休足時間](https://hidie.net/kyusokujikan/)  
 星期一起身返工  
 仍然覺得那雙踢英超的烏金豬腿並不屬於我的  
 不過我絕對不會露出哭臉（泣かないと決めた日？）  

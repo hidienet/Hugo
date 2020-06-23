@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - macao]
 不過這是葡萄牙的青酒（白酒）  
 並非竹葉青啦哈哈哈  
 
-[![](https://farm8.staticflickr.com/7285/16127237724_cb0e83160f_z.jpg)](https://farm8.staticflickr.com/7285/16127237724_cb0e83160f_z.jpg)
+![](/images/aveledavinhoverde2011.jpg)
 
 極度清新，不帶酸的味道  
 冷冷的，非常適合午餐飲用～  

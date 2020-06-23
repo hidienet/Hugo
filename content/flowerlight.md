@@ -6,6 +6,6 @@ aliases: [ "/2015/03/blog-post_6.html" ]
 tags : [lifestyle - 攝 ‧ 時間]
 ---
 
-[![](https://farm9.staticflickr.com/8661/16723273565_11edff33e0_z.jpg)](https://farm9.staticflickr.com/8661/16723273565_11edff33e0_z.jpg)
+![](/images/flowerlight.jpg)
 
 不只是燈下黑...

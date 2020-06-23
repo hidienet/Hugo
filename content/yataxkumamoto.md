@@ -9,7 +9,7 @@ tags : [lifestyle - zakka]
 一年喇，好似已經無事發生過咁嘅？  
 可能D人會以旅遊去振興當地經濟啩...  
 
-[![](https://c1.staticflickr.com/3/2916/34051709285_0145ede1e2_z.jpg)](https://c1.staticflickr.com/3/2916/34051709285_0145ede1e2_z.jpg)
+![](/images/yataxkumamoto.jpg)
 
 我可以做嘅嘢唔多  
 呢個章本身價值唔高  

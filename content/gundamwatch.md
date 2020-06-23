@@ -3,7 +3,7 @@ title: '[watch] GUNDAM 軍事風限定版錶 紅渣古'
 date: 2019-10-21T21:45:00.000+08:00
 draft: false
 aliases: [ "/2019/10/watch-gundam.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 黑色 x 紅渣古…  

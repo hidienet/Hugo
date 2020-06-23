@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 23 Jun 2020 05:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Tue, 23 Jun 2020 15:50:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>amusement - films</title>
+      <link>https://hidie.net/tags/amusement-films/</link>
+      <pubDate>Tue, 23 Jun 2020 15:50:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/amusement-films/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>travel - 日本（関東東海道）・ 相模神奈川三浦、川崎、横浜、鎌倉</title>
@@ -36,15 +45,6 @@
       <pubDate>Tue, 16 Jun 2020 00:00:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>amusement - films</title>
-      <link>https://hidie.net/tags/amusement-films/</link>
-      <pubDate>Sat, 06 Jun 2020 21:42:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/amusement-films/</guid>
       <description></description>
     </item>
     
@@ -229,11 +229,11 @@
     </item>
     
     <item>
-      <title>glamorous - 衫衫不盡 物慾無窮</title>
-      <link>https://hidie.net/tags/glamorous-%E8%A1%AB%E8%A1%AB%E4%B8%8D%E7%9B%A1-%E7%89%A9%E6%85%BE%E7%84%A1%E7%AA%AE/</link>
+      <title>glamorous - 裝身</title>
+      <link>https://hidie.net/tags/glamorous-%E8%A3%9D%E8%BA%AB/</link>
       <pubDate>Sat, 04 Jan 2020 11:06:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/glamorous-%E8%A1%AB%E8%A1%AB%E4%B8%8D%E7%9B%A1-%E7%89%A9%E6%85%BE%E7%84%A1%E7%AA%AE/</guid>
+      <guid>https://hidie.net/tags/glamorous-%E8%A3%9D%E8%BA%AB/</guid>
       <description></description>
     </item>
     

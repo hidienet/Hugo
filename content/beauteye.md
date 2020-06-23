@@ -8,7 +8,7 @@ tags : [lifestyle - rosy rosy, lifestyle - 急救箱]
 
 為女性而設的玫瑰味眼藥水（撒花）  
 
-[![](https://3.bp.blogspot.com/-yursoDOySaA/XE29WwDWYwI/AAAAAAAAHwk/1jW00RupegoncYx8KFPYLYxU4-3Y1p0HQCLcBGAs/s640/15720307016_be0410936a_z.jpg)](https://3.bp.blogspot.com/-yursoDOySaA/XE29WwDWYwI/AAAAAAAAHwk/1jW00RupegoncYx8KFPYLYxU4-3Y1p0HQCLcBGAs/s1600/15720307016_be0410936a_z.jpg)
+![](/images/beauteye.jpg)
 
 帶有薄荷玫瑰味  
 （倒出來才聞到，滴在眼的時候無感）  

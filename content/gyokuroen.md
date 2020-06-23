@@ -3,7 +3,7 @@ title: '[tea] 玉露園 こんぶ茶 x 利休庵 わかめ茶'
 date: 2015-05-28T10:00:00.000+08:00
 draft: false
 aliases: [ "/2015/05/x.html" ]
-tags : [collections - BIG & small, flavor - 飲！]
+tags : [collections - mini, flavor - 飲！]
 ---
 
 平日愛喝花茶、茶葉茶  

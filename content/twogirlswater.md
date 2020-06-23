@@ -17,7 +17,7 @@ tags : [lifestyle - 急救箱]
 好好好~ 既然不從難達成的方法去出發   
 那就用其他方法趕它們走     
 
-[![](https://2.bp.blogspot.com/-DRSv8kqfvVk/XC4N9fwG-0I/AAAAAAAAD5E/PMQC8Nqm0VY7rp90AONRKKLA9h-HmtQKwCLcBGAs/s640/85.jpg)](https://2.bp.blogspot.com/-DRSv8kqfvVk/XC4N9fwG-0I/AAAAAAAAD5E/PMQC8Nqm0VY7rp90AONRKKLA9h-HmtQKwCLcBGAs/s1600/85.jpg)
+![](/images/twogirlswater.jpg)
 
 沒看錯這是阿嬤級的雙妹嘜花露水   
 包裝貼紙還是很懷舊的款色   

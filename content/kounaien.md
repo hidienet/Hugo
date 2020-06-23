@@ -8,7 +8,7 @@ tags : [lifestyle - 急救箱]
 
 有痱滋就要速速消滅  
 
-[![](https://4.bp.blogspot.com/-n_8AE3ipSyM/XERvEu6jwGI/AAAAAAAAGWU/CDXnf68J-SwxH39OtoJ_5fo1U-BEf7NvgCLcBGAs/s640/14896431083_2404151217_z.jpg)](https://4.bp.blogspot.com/-n_8AE3ipSyM/XERvEu6jwGI/AAAAAAAAGWU/CDXnf68J-SwxH39OtoJ_5fo1U-BEf7NvgCLcBGAs/s1600/14896431083_2404151217_z.jpg)
+![](/images/kounaien.jpg)
 
 痱滋貼要出場  
 黏住透明那邊是外面  

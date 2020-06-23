@@ -3,7 +3,7 @@ title: '[cheers!] 三和 麦焼酎 いいちこシルエット iichiko'
 date: 2017-10-20T20:50:00.000+08:00
 draft: false
 aliases: [ "/2017/10/cheers-iichiko.html" ]
-tags : [collections - BIG & small, flavor - 飲！]
+tags : [collections - mini, flavor - 飲！]
 ---
 
 去啲日式餐廳食飯都會見到佢嘅蹤影  

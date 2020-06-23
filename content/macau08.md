@@ -8,7 +8,7 @@ tags : [travel - macao]
 
 夜晚上塔就可以看到萬家燈火  
 
-[![](https://farm9.staticflickr.com/8609/16276515118_d954d2d8fb_z.jpg)](https://farm9.staticflickr.com/8609/16276515118_d954d2d8fb_z.jpg)
+![](/images/macau08a.jpg)
 
 塔底的lego很吸睛  
   
@@ -16,7 +16,7 @@ tags : [travel - macao]
 只是一條條長公路  
 說實話真的不太吸引我  
 
-[![](https://farm8.staticflickr.com/7421/16438218356_0221c5f18f_z.jpg)](https://farm8.staticflickr.com/7421/16438218356_0221c5f18f_z.jpg)
+![](/images/macau08.jpg)
 
 晚上也不會開放跳塔  
 唯有在玻璃下看一下作罷（boo～）

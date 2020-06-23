@@ -9,7 +9,7 @@ tags : [collections - BIG & small, flavor - 飲！]
 平日愛喝花茶、茶葉茶  
 但有些時候也會想要點鹹東西  
 
-[![](https://farm6.staticflickr.com/5456/17844646149_594d0544df_z.jpg)](https://farm6.staticflickr.com/5456/17844646149_594d0544df_z.jpg)
+![](/images/gyokuroen.jpg)
 
 不過說的不是湯，是こんぶ茶  
 有著淡淡的昆布味  
@@ -17,7 +17,7 @@ tags : [collections - BIG & small, flavor - 飲！]
   
 喔～ 小小的一粒？  
 
-[![](https://farm8.staticflickr.com/7768/18004415426_93f0b9de97_z.jpg)](https://farm8.staticflickr.com/7768/18004415426_93f0b9de97_z.jpg)
+![](/images/gyokuroen1.jpg)
 
 哈哈哈這是re-ment的利休庵わかめ茶啦  
 好可愛，不過蓋子不能打開的！  

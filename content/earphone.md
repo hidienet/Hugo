@@ -13,7 +13,7 @@ tags : [lifestyle - zakka, lifestyle - 嗨啲的極樂世界]
 通勤時上班時在家裡活動  
 甚至睡覺，也是會戴上耳筒...  
 
-[![](https://farm9.staticflickr.com/8588/16412285219_83fd08be4f_z.jpg)](https://farm9.staticflickr.com/8588/16412285219_83fd08be4f_z.jpg)
+![](/images/earphone.jpg)
 
 並沒有甚麼大要求的我  
 這陣兒都是用隔音度很好  
@@ -22,14 +22,14 @@ download app之後
 除了可以通話外還可以play back forward歌曲  
 在電話同播歌的使用上很方便...  
 
-[![](https://farm8.staticflickr.com/7423/16410911618_bcb03c0570_z.jpg)](https://farm8.staticflickr.com/7423/16410911618_bcb03c0570_z.jpg)
+![](/images/earphone1.jpg)
 
 音色好一點可以用B&O這種  
 以耳仔形狀設計  
 很貼耳，也戴得很舒服  
 用了幾年才壞，算耐用了  
 
-[![](https://farm8.staticflickr.com/7287/16596935741_e99f1731b3_z.jpg)](https://farm8.staticflickr.com/7287/16596935741_e99f1731b3_z.jpg)
+![](/images/earphone2.jpg)
 
 另一款是bose  
 這種緊貼耳蝸，隔聲效果也不錯  

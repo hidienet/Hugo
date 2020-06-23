@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, lifestyle - 急救箱]
 不管是因為千頌伊或是全智賢  
 反正這東西一定會買啦～  
 
-[![](https://4.bp.blogspot.com/-RYeOzV-DlIM/XEM6rf_4t7I/AAAAAAAAF7M/ouRBL4fWwns0PJx-8euGW1F9pTucJSCJwCLcBGAs/s640/14584720142_005840b582_z.jpg)](https://4.bp.blogspot.com/-RYeOzV-DlIM/XEM6rf_4t7I/AAAAAAAAF7M/ouRBL4fWwns0PJx-8euGW1F9pTucJSCJwCLcBGAs/s1600/14584720142_005840b582_z.jpg)
+![](/images/hanyuljawoondan.jpg)
 
 好一盒萬用保濕膏  
 在身體面部唇部一乾就搽  

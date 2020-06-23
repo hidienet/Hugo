@@ -11,7 +11,7 @@ tags : [lifestyle - 急救箱]
 最討厭係夜晚瞓瞓吓覺  
 俾蚊咬啦同响耳邊嘈  
 
-[![](https://c1.staticflickr.com/5/4700/25741853407_9737dab968_z.jpg)](https://c1.staticflickr.com/5/4700/25741853407_9737dab968_z.jpg)
+![](/images/vape.jpg)
 
 有咗佢就安心晒  
   

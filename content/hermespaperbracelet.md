@@ -8,7 +8,7 @@ tags : [made by H - 雜作, glamorous - 衫衫不盡 物慾無窮]
 
 無錢扮奢華，哈哈哈  
 
-[![](https://farm9.staticflickr.com/8618/16352789462_642effd02e_z.jpg)](https://farm9.staticflickr.com/8618/16352789462_642effd02e_z.jpg)
+![](/images/hermespaperbracelet.jpg)
 
 hermès網之前限定版的紙bracelet  
 串流下載後打印出來  

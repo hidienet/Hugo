@@ -8,7 +8,7 @@ tags : [lifestyle - zakka]
 
 絕對是窮風流！  
 
-[![](https://farm8.staticflickr.com/7650/16332118513_79a04d844f_z.jpg)](https://farm8.staticflickr.com/7650/16332118513_79a04d844f_z.jpg)
+![](/images/wedgwoodteacup.jpg)
 
 雖然屋子小小的；但也不能失去生活的品味  
 這就是我對生活的堅持  

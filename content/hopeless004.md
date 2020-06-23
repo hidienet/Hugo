@@ -9,7 +9,7 @@ tags : [lifestyle - 攝 ‧ 時間]
 一對年老夫婦；一架走鬼車仔  
 造就咗呢底好有誠意兼好足料嘅炭火烤雞蛋仔  
 
-[![](https://c1.staticflickr.com/5/4454/37953687912_f6e24170c2_z.jpg)](https://c1.staticflickr.com/5/4454/37953687912_f6e24170c2_z.jpg)
+![](/images/hopeless004.jpg)
 
   
 外脆內軟，火候啱啱好  

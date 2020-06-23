@@ -6,14 +6,12 @@ aliases: [ "/2015/02/montblanc-meisterstuck-fountain-pen.html" ]
 tags : [lifestyle - zakka]
 ---
 
-在一直用鍵盤的年代
-
+在一直用鍵盤的年代  
 以親筆寫上的祝福就顯得更珍貴
 
-[![](https://farm8.staticflickr.com/7323/16415309565_65899ee59b_z.jpg)](https://farm8.staticflickr.com/7323/16415309565_65899ee59b_z.jpg)
+![](/images/montblancpen.jpg)
 
-不過嘛... 這種筆很難寫一手靚字
-
+不過嘛... 這種筆很難寫一手靚字  
 需知道買筆是不會附送良好寫字技巧
 
   

@@ -10,7 +10,7 @@ tags : [lifestyle - zakka]
 屁股就越坐越平肥肉往外發展  
 這個座墊是為了解決平平屁股的問題  
 
-[![](https://4.bp.blogspot.com/-nQqpAeULAnk/XC4LlpXPzVI/AAAAAAAAD3w/Gxm_D2moudA1pr4YVjGCiirLJaoRYI-eQCLcBGAs/s640/74.jpg)](https://4.bp.blogspot.com/-nQqpAeULAnk/XC4LlpXPzVI/AAAAAAAAD3w/Gxm_D2moudA1pr4YVjGCiirLJaoRYI-eQCLcBGAs/s1600/74.jpg)
+![](/images/cogitcusion.jpg)
 
 左右兩旁後面是突出來硬硬的  
 說能壓逼屁股連大腿的脂肪肌肉  

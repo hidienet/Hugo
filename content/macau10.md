@@ -3,12 +3,12 @@ title: '馮記三盞燈豬腳姜'
 date: 2015-02-23T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/blog-post_23.html" ]
-tags : [flavor - 行膳積腹]
+tags : [flavor - 行膳積腹, travel - macao]
 ---
 
 不只是坐月才要吃豬腳薑吧...  
 
-[![](https://farm8.staticflickr.com/7416/15969731064_d781a22583_z.jpg)](https://farm8.staticflickr.com/7416/15969731064_d781a22583_z.jpg)
+![](/images/macau10.jpg)
 
 醋濃郁，甜酸辣度很平均  
 薑夠辣卻不會很嗆喉  

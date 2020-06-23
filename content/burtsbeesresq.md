@@ -9,7 +9,7 @@ tags : [lifestyle - 急救箱]
 如果真的成為蚊子的營養補充飲料  
 就會癢癢的不好受，所以要靠這個止止癢
 
-[![](https://3.bp.blogspot.com/-VKBnynBFFE0/XDCFKyY0K-I/AAAAAAAAEOc/m5vDaEqQglQgjJ8GrCVWHcmvgZdge8DbwCLcBGAs/s640/53.jpg)](https://3.bp.blogspot.com/-VKBnynBFFE0/XDCFKyY0K-I/AAAAAAAAEOc/m5vDaEqQglQgjJ8GrCVWHcmvgZdge8DbwCLcBGAs/s1600/53.jpg)
+![](/images/burtsbeesresq.jpg)
 
 綠色的草本膏  
 雖然本身不喜歡薰衣草味  
@@ -22,7 +22,7 @@ tags : [lifestyle - 急救箱]
 舒緩跟能褪紅這樣  
 故除蚊叮蟲咬時使用以外  
 對付paper cut時也會即時塗在傷口上  
-（但流血時還是最常用[小林製薬 サカムケア](http://www.hidie.net/2014/01/blog-post.html)來封住傷口啦）  
+（但流血時還是最常用[小林製薬 サカムケア](https://hidie.net/sakamucare/)來封住傷口啦）  
 還有還有，當突然出了粒粒  
 對，就是有暗瘡危機時  
 都會先拿這罐做急救  
@@ -34,4 +34,4 @@ tags : [lifestyle - 急救箱]
   
 \-----------------------------------------------  
   
-延伸閱讀：[惹蚊族之預防篇－雙妹嚜花露水](http://www.hidie.net/2014/02/blog-post.html)
+延伸閱讀：[惹蚊族之預防篇－雙妹嚜花露水](https://hidie.net/twogirlswater/)

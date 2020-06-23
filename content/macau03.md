@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族, travel - macao]
 前者是店舖名沙度娜  
 後者是指木糠布甸    
 
-[![](https://farm8.staticflickr.com/7545/16006523807_56a3be5af8_z.jpg)](https://farm8.staticflickr.com/7545/16006523807_56a3be5af8_z.jpg)
+![](/images/macau03.jpg)
 
 扭紋頂上面鋪著碎得如沙般的淺啡色木糠   
 所謂「木」是指瑪莉餅餅碎  

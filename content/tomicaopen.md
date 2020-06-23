@@ -8,7 +8,7 @@ tags : [collections - トミカ (tomica)]
 
 好得意好得意好得意呀～  
 
-[![](https://c1.staticflickr.com/1/654/31069844054_0596c6f31f_z.jpg)](https://c1.staticflickr.com/1/654/31069844054_0596c6f31f_z.jpg)
+![](/images/tomicaopen.jpg)
 
 臺灣限定喎，有唔買嘅理由咩？  
   

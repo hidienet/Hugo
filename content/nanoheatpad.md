@@ -9,7 +9,7 @@ tags : [lifestyle - zakka]
 無論係春夏秋冬  
 响office要飲就一定係飲熱嘢  
 
-[![](https://c1.staticflickr.com/5/4421/36131811613_9cbb62e04a_z.jpg)](https://c1.staticflickr.com/5/4421/36131811613_9cbb62e04a_z.jpg)
+![](/images/nanoheatpad.jpg)
 
 有咗佢，就算杯嘢放低幾耐  
 都仲會一直好熱好熱咁  

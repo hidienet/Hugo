@@ -3,7 +3,7 @@ title: 'sophisca：招呼親戚長輩的朱古力 x 糖果'
 date: 2015-02-19T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/sophisca-x.html" ]
-tags : [flavor - 螞蟻族, collections - ？]
+tags : [flavor - 螞蟻族, collections - 可愛い]
 ---
 
 招呼親戚的最佳甜點，恭喜恭喜～（逃）

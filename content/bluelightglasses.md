@@ -6,10 +6,10 @@ aliases: [ "/2014/08/blog-post.html" ]
 tags : [lifestyle - zakka]
 ---
 
-不是已[脫離四眼妹行列](http://www.hidie.net/2014/01/bye-bye.html)嗎  
+不是已[脫離四眼妹行列](https://hidie.net/lasik/)嗎  
 幹嗎要又特登買副新眼鏡呢  
 
-[![](https://3.bp.blogspot.com/-8hl7A2j2Dnk/XEQU1Sco1VI/AAAAAAAAGKA/2KcrdU15x-gQ-0na5Odg_NHaOe_hO2A4wCLcBGAs/s640/14763045386_de5ec42ecf_z.jpg)](https://3.bp.blogspot.com/-8hl7A2j2Dnk/XEQU1Sco1VI/AAAAAAAAGKA/2KcrdU15x-gQ-0na5Odg_NHaOe_hO2A4wCLcBGAs/s1600/14763045386_de5ec42ecf_z.jpg)
+![](/images/bluelightglasses.jpg)
 
 就是因為做完lasik更要好好保護眼睛  
 這副臺灣製造的防藍光眼鏡  

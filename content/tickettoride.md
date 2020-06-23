@@ -8,15 +8,15 @@ tags : [amusement - games]
 
 歐洲，我來也～  
 
-[![](https://1.bp.blogspot.com/-76jPqLBWvY4/XChyNqjEuCI/AAAAAAAAC_U/uJDyeU4-KIwW7hjdHs2t9I5ZEPBZXZmUQCLcBGAs/s640/16.jpg)](https://1.bp.blogspot.com/-76jPqLBWvY4/XChyNqjEuCI/AAAAAAAAC_U/uJDyeU4-KIwW7hjdHs2t9I5ZEPBZXZmUQCLcBGAs/s1600/16.jpg)
+![](/images/tickettoride.jpg)
 
-玩法不太難：  
-把火車連上手上的卡中地方就可以  
-是個運氣（！）加上智慧的遊戲  
+玩法唔太難：  
+將火車連貫手上嘅卡中地方就可以  
+係個運氣（！）加上智慧嘅遊戲  
   
 歐洲版圖比較好玩  
-比美國的線路平均一點  
+比美國嘅線路平均啲  
 2-5人玩都可以  
   
-不錯玩啊～  
+幾好玩啊～  
 （想去歐洲耶⋯⋯）

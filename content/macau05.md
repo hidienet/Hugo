@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族, travel - macao]
 
 分開後老婆的去雞記食
 
-[![](https://farm8.staticflickr.com/7419/16351825922_93dc42e9db_z.jpg)](https://farm8.staticflickr.com/7419/16351825922_93dc42e9db_z.jpg)
+![](/images/macau05.jpg)
 
 老公的就只能到澳門才會有  
 覺得安德魯的香滑一點  

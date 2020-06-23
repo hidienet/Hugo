@@ -9,7 +9,7 @@ tags : [amusement - manga]
 大齡單身女子，中文稱為「剩女」；日文稱之「敗犬」  
 但長期處於單身的森下筆下的她，說：我的單身不命苦  
 
-[![](https://3.bp.blogspot.com/-qJe0LYfd8t8/XCOKKyyel0I/AAAAAAAABzk/L6Qb16jzplgMyWgVC97FivVjNANB1AM8gCLcBGAs/s640/p7.jpg)](https://3.bp.blogspot.com/-qJe0LYfd8t8/XCOKKyyel0I/AAAAAAAABzk/L6Qb16jzplgMyWgVC97FivVjNANB1AM8gCLcBGAs/s1600/p7.jpg)
+![](/images/singlebook.jpg)
 
 沒有伴侶可依靠，一個人住，甚麼都是靠自己  
 比毛毛主席說的「女人撐起半邊天」更厲害！  

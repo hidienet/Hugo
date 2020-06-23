@@ -3,13 +3,13 @@ title: '[stocking] Dr. miz - Let''s diet'
 date: 2014-02-04T08:00:00.000+08:00
 draft: false
 aliases: [ "/2014/02/stocking-dr-miz-lets-diet.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 在那雙肉腿還沒能真正瘦起來之前  
 看起來瘦了的掩眼法就要出動  
 
-[![](https://3.bp.blogspot.com/--os_jc7kvOM/XCyw2W4ETHI/AAAAAAAADuo/AiJrIxOGZOkEg4HDeckQwmyC2aL1V583QCLcBGAs/s640/79.jpg)](https://3.bp.blogspot.com/--os_jc7kvOM/XCyw2W4ETHI/AAAAAAAADuo/AiJrIxOGZOkEg4HDeckQwmyC2aL1V583QCLcBGAs/s1600/79.jpg)
+![](/images/drmiz.jpg)
 
 非常舒服的柔滑觸摸感  
 超密的織法使其完全不透光  

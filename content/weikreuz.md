@@ -9,7 +9,7 @@ tags : [amusement - animation]
 懶得連小說漫畫都拿不起  
 看動畫吧～  
 
-[![](https://1.bp.blogspot.com/-kdKWdjByeZ8/XEM_q2Y4H1I/AAAAAAAAF88/VqHSq48cu3U-Vy25MgHkUchlo2f8McK-ACLcBGAs/s640/16284581117_4695a5667e_z.jpg)](https://1.bp.blogspot.com/-kdKWdjByeZ8/XEM_q2Y4H1I/AAAAAAAAF88/VqHSq48cu3U-Vy25MgHkUchlo2f8McK-ACLcBGAs/s1600/16284581117_4695a5667e_z.jpg)
+![](/images/weikreuz.jpg)
 
 Weiß kreuz為德語，意指「白色十字架」  
 四位主角早上在花店打工  
@@ -23,7 +23,7 @@ Weiß kreuz為德語，意指「白色十字架」
   
 雖然剷除壞人得橋段是非常老土  
 但喜歡看奪取他人生命的我  
-（《monster》、《death note》同《黒鷺死体宅配便我》等題材也很喜歡）  
+（《monster》、《[death note](https://hidie.net/deathnote/)》同《黒鷺死体宅配便》等題材也很喜歡）  
 就對殺人過程很著迷  
 動畫人物樣子畫得細膩  
 殺又殺得凌厲漂亮  

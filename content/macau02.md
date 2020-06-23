@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族, travel - macao]
 
 但這杯沒有喔！會不會少了一分美味呢？  
 
-[![](https://farm4.staticflickr.com/3760/9710763042_da96005f62_z.jpg)](https://farm4.staticflickr.com/3760/9710763042_da96005f62_z.jpg)
+![](/images/macau02.jpg)
 
 大菜本身是沒有味道
 

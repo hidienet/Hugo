@@ -12,7 +12,7 @@ tags : [flavor - 螞蟻族, travel - macao]
 
 而包裝也是沿用當時的樣式
 
-[![](https://farm9.staticflickr.com/8676/16463771107_e484e5f778_z.jpg)](https://farm9.staticflickr.com/8676/16463771107_e484e5f778_z.jpg)
+![](/images/macau11.jpg)
 
 三色三文治雪糕（上面中間四方盒）
 

@@ -9,7 +9,7 @@ tags : [amusement - games]
 今天是「好色」日～（哈）  
 玩這種簡單的遊戲就最好  
 
-[![](https://farm1.staticflickr.com/275/19005817490_feea86b994_z.jpg)](https://farm1.staticflickr.com/275/19005817490_feea86b994_z.jpg)
+![](/images/chromino.jpg)
 
 只要兩邊同色就可以拼在一起  
 （就像情侶一樣，對吧）  

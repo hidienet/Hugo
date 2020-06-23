@@ -8,7 +8,7 @@ tags : [travel - macao, flavor - 小食部]
 
 我不吃雞仔餅的，從小已覺得這東西很臭  
 
-[![](https://4.bp.blogspot.com/-xU0ZOFk_n48/XCOPJAr0XyI/AAAAAAAAB1c/yx1F_121CfsGJ6HYCcfdSzxcirMrtnnuACLcBGAs/s640/11.jpg)](https://4.bp.blogspot.com/-xU0ZOFk_n48/XCOPJAr0XyI/AAAAAAAAB1c/yx1F_121CfsGJ6HYCcfdSzxcirMrtnnuACLcBGAs/s1600/11.jpg)
+![](/images/macau01.jpg)
 
 雖然跟雞仔餅一樣難聞，但我卻喜愛吃肉切酥  
 臭臭的氣味是來自焗後的南乳味  

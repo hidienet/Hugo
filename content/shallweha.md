@@ -8,7 +8,7 @@ tags : [amusement - drama]
 
 每年去到年底都會有咩年度大事回顧  
 
-[![](https://c1.staticflickr.com/5/4688/38394756854_0837fbc478_z.jpg)](https://c1.staticflickr.com/5/4688/38394756854_0837fbc478_z.jpg)
+![](/images/shallweha.jpg)
 
 而以前最鍾意就係入劇場  
 睇笑中帶message嘅《**快樂無罪**》  

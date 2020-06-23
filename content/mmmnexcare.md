@@ -3,7 +3,7 @@ title: '[mask] 3M Nexcare 순면마스크(블랙)'
 date: 2019-10-05T10:47:00.000+08:00
 draft: false
 aliases: [ "/2019/10/3m-nexcare.html" ]
-tags : [lifestyle - zakka, glamorous - 衫衫不盡 物慾無窮]
+tags : [lifestyle - zakka, glamorous - 裝身]
 ---
 
 冇咩嘅… 分享吓去韓國daiso入手嘅好物啫～  

@@ -8,7 +8,7 @@ tags : [collections - 可愛い〜]
 
 响Loft度見到，一秒思考都冇就即係入手...  
 
-[![](https://c1.staticflickr.com/5/4548/37616564904_e50d01bc99_z.jpg)](https://c1.staticflickr.com/5/4548/37616564904_e50d01bc99_z.jpg)
+![](/images/ladolcevitaseal.jpg)
 
 「哇！真係好得意呀好得意呀你話係唔係？」  
   

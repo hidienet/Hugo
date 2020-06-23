@@ -12,7 +12,7 @@ tags : [lifestyle - 急救箱]
   
 所以，這時候檯面隨手就會放了隻超～ 冰～ 涼～ 的眼藥水  
 
-[![](https://2.bp.blogspot.com/-vsRcmGSc61Q/XCiKIp6NKoI/AAAAAAAADOU/M9qJ2eUTrfQqREXnLiM9U_4XuUp5tL8DwCLcBGAs/s640/64.jpg)](https://2.bp.blogspot.com/-vsRcmGSc61Q/XCiKIp6NKoI/AAAAAAAADOU/M9qJ2eUTrfQqREXnLiM9U_4XuUp5tL8DwCLcBGAs/s1600/64.jpg)
+![](/images/santafxv.jpg)
 
 是市面上最最最最最冰涼的眼藥水  
 第一次用的時候「哇～」了  

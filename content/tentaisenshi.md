@@ -6,20 +6,17 @@ aliases: [ "/2015/06/1-20.html" ]
 tags : [amusement - manga]
 ---
 
-侵略地球的怪物士善良的  
+侵略地球嘅怪物士善良嘅  
+保衛地球嘅戰士係小白臉
 
-保衛地球的戰士是小白臉
+![](/images/tentaisenshi.jpg)
 
-[![](https://farm1.staticflickr.com/258/17670758804_dc425e5b66_z.jpg)](https://farm1.staticflickr.com/258/17670758804_dc425e5b66_z.jpg)
+哈哈哈，其實就算係人類都根本無絕對嘅好同壞  
+超無聊嘅漫畫  
+畫也唔係畫得好靚
 
-哈哈哈，其實人類根本沒有絕對的好同壞
-
-超無聊的漫畫
-
-畫也不是畫得很好
-
-低B不過搞笑
+低B，但係夠搞笑嘛
 
   
 
-用來kill time就不錯（哈）
+用嚟kill time就啱晒（哈）

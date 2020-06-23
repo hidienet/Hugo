@@ -3,7 +3,7 @@ title: '[glasses] Dangly TR7510 圓圓眼鏡框'
 date: 2014-01-26T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/glasses-dangly-tr7510.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 在南浦洞逛街時以超平價入手  
@@ -11,7 +11,7 @@ made in Korea，當地品質
 （原本想買另外一種款式是長頸鹿pattern的  
 但看到是M.I.C.的就放下了）  
 
-[![](https://1.bp.blogspot.com/-tQtmA4wQf-w/XCi5H6FQPhI/AAAAAAAADfU/8KFFvcVg7Mk3vMgNHtGoHpGoJblF7ZdrwCLcBGAs/s640/30.jpg)](https://1.bp.blogspot.com/-tQtmA4wQf-w/XCi5H6FQPhI/AAAAAAAADfU/8KFFvcVg7Mk3vMgNHtGoHpGoJblF7ZdrwCLcBGAs/s1600/30.jpg)
+![](/images/dangly.jpg)
 
 整個框都是可以屈不會爛  
 圓圓的鏡框令眼鏡有放大的效果  

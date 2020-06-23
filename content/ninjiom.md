@@ -8,7 +8,7 @@ tags : [lifestyle - 急救箱]
 
 天氣終於轉涼了，有好好保重身體沒有？  
 
-[![](https://1.bp.blogspot.com/-bHhEzS4AlTk/XE25Ws0UuYI/AAAAAAAAHu8/iQSrPWqI3AkpO-WUmU-BUz8YaMgMvHSmgCLcBGAs/s640/15119734453_7336d2ae29_z.jpg)](https://1.bp.blogspot.com/-bHhEzS4AlTk/XE25Ws0UuYI/AAAAAAAAHu8/iQSrPWqI3AkpO-WUmU-BUz8YaMgMvHSmgCLcBGAs/s1600/15119734453_7336d2ae29_z.jpg)
+![](/images/ninjiom.jpg)
 
 不小心注意保暖就容易著涼  
 傷風了，身體不好受  
@@ -25,4 +25,4 @@ tags : [lifestyle - 急救箱]
 當然，真的生病了還是淺中醫啦～  
   
 除了漢方的小柴胡湯之外  
-韓方的[雙和茶](http://www.hidie.net/2014/10/seoul-time-day2_1.html)也有差不多的功效呢！
+韓方的[雙和茶](https://hidie.net/seoul2e/)也有差不多的功效呢！

@@ -9,12 +9,12 @@ tags : [lifestyle - zakka]
 一般的即棄型膠羹膠叉木筷子  
 既不環保又沒有包裝上寫的那麼衛生  
 
-[![](https://3.bp.blogspot.com/-p6uhvemWwgk/XDC5gps6WYI/AAAAAAAAEWA/GiV3kmbdQhE6W1x3PLpyLZu2FoYY7oPlwCLcBGAs/s640/f.jpg)](https://3.bp.blogspot.com/-p6uhvemWwgk/XDC5gps6WYI/AAAAAAAAEWA/GiV3kmbdQhE6W1x3PLpyLZu2FoYY7oPlwCLcBGAs/s1600/f.jpg)
+![](/images/mycutlery.jpg)
 
 自備就最好，又可以選擇自己喜歡的顏色  
 （最愛黑色黑色yeah yeah yeah）  
 
-[![](https://4.bp.blogspot.com/-hAhg3OaWJQI/XDC5maUcr0I/AAAAAAAAEWI/vSmSTpSY4ScEgtrM6g-xI06L2pb8ktkFQCLcBGAs/s640/q1.jpg)](https://4.bp.blogspot.com/-hAhg3OaWJQI/XDC5maUcr0I/AAAAAAAAEWI/vSmSTpSY4ScEgtrM6g-xI06L2pb8ktkFQCLcBGAs/s1600/q1.jpg)
+![](/images/mycutlery1.jpg)
 
 這套就齊備筷子、叉同羹  
 食中西餐都無問題  

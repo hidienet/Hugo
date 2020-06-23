@@ -9,7 +9,7 @@ tags : [lifestyle - zakka]
 好似卡片咁薄嘅鏡  
 輕飄飄，放响銀包card holder度就啱啱好  
 
-[![](https://c1.staticflickr.com/5/4364/36106899564_665f8e592d_z.jpg)](https://c1.staticflickr.com/5/4364/36106899564_665f8e592d_z.jpg)
+![](/images/notbrokenthinmirror.jpg)
 
 好揸手嘅水滴形  
 個公仔樣仲要好得意  

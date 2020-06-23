@@ -16,27 +16,27 @@ tags : [lifestyle - zakka]
 以前會用奶樽的我  
 有了這新樽後就貪新厭舊了（呵呵）  
 
-[![](https://farm1.staticflickr.com/364/18986221071_29932d86bb_z.jpg)](https://farm1.staticflickr.com/364/18986221071_29932d86bb_z.jpg)
+![](/images/ecocanplus1.jpg)
 
 樣子跟膠真的差不多耶  
 
-[![](https://farm1.staticflickr.com/470/18795559598_4fb34b51cb_z.jpg)](https://farm1.staticflickr.com/470/18795559598_4fb34b51cb_z.jpg)
+![](/images/ecocanplus2.jpg)
 
 印有西班牙畫家Eva Armisén的畫  
 
-[![](https://farm1.staticflickr.com/375/18956971456_391b61a539_z.jpg)](https://farm1.staticflickr.com/375/18956971456_391b61a539_z.jpg)
+![](/images/ecocanplus.jpg)
 
 是crossover的呢  
 
-[![](https://farm4.staticflickr.com/3704/18983202005_f048b18fcc_z.jpg)](https://farm4.staticflickr.com/3704/18983202005_f048b18fcc_z.jpg)
+![](/images/ecocanplus3.jpg)
 
 瓶蓋以汽水罐的樣式  
 
-[![](https://farm4.staticflickr.com/3749/18797016449_dedbd055ef_z.jpg)](https://farm4.staticflickr.com/3749/18797016449_dedbd055ef_z.jpg)
+![](/images/ecocanplus4.jpg)
 
 不是是裝飾，可以打開的  
 
-[![](https://farm1.staticflickr.com/414/18795560878_ec5367c233_z.jpg)](https://farm1.staticflickr.com/414/18795560878_ec5367c233_z.jpg)
+![](/images/ecocanplus5.jpg)
 
 底部及貼紙說明這是0%膠  
 這種ECO樽是可100%被分解  
@@ -45,7 +45,7 @@ tags : [lifestyle - zakka]
 可是，鍾情於黑色的我  
 為甚麼不是入手黑色那款呢？  
 
-[![](https://farm1.staticflickr.com/514/18360647214_959b3acf74_z.jpg)](https://farm1.staticflickr.com/514/18360647214_959b3acf74_z.jpg)
+![](/images/ecocanplus6.jpg)
 
 因為這是member的禮物啦～  
 （這次終於不是因為甚麼限量版而入手了）  

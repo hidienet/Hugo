@@ -3,7 +3,7 @@ title: '[umbrella] 7-11 風に強いワンタッチ長傘'
 date: 2019-07-14T18:30:00.001+08:00
 draft: false
 aliases: [ "/2019/07/umbrella-7-11.html" ]
-tags : [lifestyle - zakka, glamorous - 衫衫不盡 物慾無窮]
+tags : [lifestyle - zakka, glamorous - 裝身]
 ---
 
 佢係一把非常之好嘅長遮！！！  

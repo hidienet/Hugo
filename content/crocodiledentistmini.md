@@ -8,7 +8,7 @@ tags : [collections - 可愛い〜]
 
 為沈悶的生活帶點樂趣吧～  
 
-[![](https://2.bp.blogspot.com/-w_XJ0cCmQhE/XDGGAh9-N7I/AAAAAAAAEdI/AgxH91kij14AdrV_F6xdBqk_H1rOv7wrgCLcBGAs/s640/34.jpg)](https://2.bp.blogspot.com/-w_XJ0cCmQhE/XDGGAh9-N7I/AAAAAAAAEdI/AgxH91kij14AdrV_F6xdBqk_H1rOv7wrgCLcBGAs/s1600/34.jpg)
+![](/images/crocodiledentistmini.jpg)
 
 哈哈哈，小小的鱷魚玩具匙扣  
 按按牙齒⋯⋯ 然後⋯⋯⋯⋯  

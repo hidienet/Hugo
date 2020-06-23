@@ -18,7 +18,7 @@ tags : [flavor - 螞蟻族, travel - macao]
 
 沒有任何分店，所以算是來「參拜」吧
 
-[![](https://farm4.staticflickr.com/3788/9869925025_930732a454_z.jpg)](https://farm4.staticflickr.com/3788/9869925025_930732a454_z.jpg)
+![](/images/macau04.jpg)
 
 雙皮的那層皮很薄
 

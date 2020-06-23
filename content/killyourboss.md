@@ -20,7 +20,10 @@ tags : [amusement - picture books]
 雖然總不能真的去殺人啦～  
 但，嘻嘻嘻～ 諗吓都好吖！  
 
-[![](https://4.bp.blogspot.com/-V0jmofP0tfY/XC3tlFzb92I/AAAAAAAADwU/u-EOz1jH1RMjH4iOb1G6C3xWgc0ksDGHQCLcBGAs/s640/12.jpg)](https://4.bp.blogspot.com/-V0jmofP0tfY/XC3tlFzb92I/AAAAAAAADwU/u-EOz1jH1RMjH4iOb1G6C3xWgc0ksDGHQCLcBGAs/s1600/12.jpg)
+![](/images/killyourboss.jpg)
+
+101 ways to kill your boss  
+by Garham Roumieu  
 
 很感謝這本書完全地滿足我的願望  
 當受了氣受了委屈嬲嬲的時候  
@@ -30,10 +33,7 @@ tags : [amusement - picture books]
 呵呵呵呵呵呵呵呵！  
   
   
-\* 不要跟我的老闆說啊 :x  
-\*\* 他(們)真的死了的話不是我做的，我可沒有勇氣去殺人呢 :p  
+ps 不要跟我的老闆說啊 :x  
+pps 他(們)真的死了的話不是我做的，我可沒有勇氣去殺人呢 :p  
   
   
-  
-101 ways to kill your boss  
-by Garham Roumieu

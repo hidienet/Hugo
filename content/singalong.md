@@ -6,11 +6,10 @@ aliases: [ "/2014/11/3214131.html" ]
 tags : [amusement - drama]
 ---
 
-「我們都是聽流行曲長大(生活)的」  
-  
+「我們都是聽流行曲長大(生活)的」    
 當然是由三角關係的徐羨曾、馬志豪同譚國明主演～  
 
-![](https://3.bp.blogspot.com/-DYPevVZA0bs/XE2uvo41BPI/AAAAAAAAHqM/Rq-pND6hutMPWYfUnWrZI7AzB0_gN_-LACLcBGAs/s640/15687636425_2a44d53514_z.jpg)
+![](/images/singalong3.jpg)
 
 **勁金歌曲3 - 請您記住我**  
 （演員：李頊珩、黃如妹）  
@@ -38,7 +37,7 @@ tags : [amusement - drama]
 十、正氣歌  
 尾聲、我最喜愛的歌  
 
-![](https://1.bp.blogspot.com/-8zFKYckgHPk/XE2u0U43iTI/AAAAAAAAHqQ/bpafwAsdB7EGke2wi2sgUo78Hoevz6WhwCLcBGAs/s640/15663923196_ffba5efaac_z.jpg)
+![](/images/singalong2.jpg)
 
 **勁金歌曲2 - 誰比你重要**  
 （演員：歐佩瑩）  
@@ -49,7 +48,7 @@ tags : [amusement - drama]
 連貫哥哥的演藝事業同主角們的生活  
 故事張力還可以，選曲好（標準哥哥迷）  
 
-![](https://1.bp.blogspot.com/-59oyIkHLWZg/XE2u5ofBphI/AAAAAAAAHqU/9ZYQ0VK7kxcEDz-BvG_XzA8E7LDo3vkdQCLcBGAs/s640/15502440557_019cce5e9d_z.jpg)
+![](/images/singalong1d.jpg)
 
 **勁金歌曲 4th run**  
 （演員：陳裕恆、王曦玟、余傲芝、潘思穎、蕭沛欣）  
@@ -71,7 +70,7 @@ side B
 hidden track  
 我的歌  
 
-![](https://2.bp.blogspot.com/-2m2QcPlFB5s/XE2u_Uxt5sI/AAAAAAAAHqY/HwkaTNYRiyQIYjzN6dYrLs-G3Z3pAMK2QCLcBGAs/s640/15502826870_6ae6c513d7_z.jpg)
+![](/images/singalong1c.jpg)
 
 **勁金歌曲 3rd run**  
 （演員：鄺慧雯、陳裕恆、王曦玟、余傲芝、何淑馨、潘思穎）  
@@ -85,7 +84,7 @@ hidden track
 可惜re-run的劇情就是會有變動  
 刪減了，劇就變得有點牽強  
 
-![](https://4.bp.blogspot.com/-Qmx0ozFiTvM/XE2vESt9RfI/AAAAAAAAHqg/EujdRz3h9TsXUr--M9uYozu6l47b_9WZwCLcBGAs/s640/15501777359_74b27f9de7_z.jpg)
+![](/images/singalong.jpg)
 
 **勁金歌曲**（找不到本場刊呀）（嗚～）  
 （但宣傳卡也型到震啦！）  

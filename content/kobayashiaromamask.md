@@ -10,7 +10,7 @@ tags : [lifestyle - zakka, lifestyle - rosy rosy]
 個死人office開埋晒啲中央冷氣啫  
 搞到成個area都鬼死咁乾  
 
-[![](https://c1.staticflickr.com/5/4640/38523020554_c0f15d1e68_z.jpg)](https://c1.staticflickr.com/5/4640/38523020554_c0f15d1e68_z.jpg)
+![](/images/kobayashiaromamask.jpg)
 
 响我竟然令自己都覺得驚訝咁仲未買加濕器嘅情況下  
 就用呢個人哋愛嚟瞓覺用嘅加濕口罩啦！  
@@ -25,7 +25,7 @@ tags : [lifestyle - zakka, lifestyle - rosy rosy]
 最最最緊要係吸氣嚟每嘢都係玫～ 瑰～ 味～  
 因為呢隻係塊濕綿裡面係加咗生活の木嘅玫瑰香薰（耶）  
 
-[![](https://c1.staticflickr.com/5/4597/39202442212_f3a03a392d_z.jpg)](https://c1.staticflickr.com/5/4597/39202442212_f3a03a392d_z.jpg)
+![](/images/kobayashiaromamask1.jpg)
 
 瞓覺用口罩我真係瞓覺用㗎  
 放完假响office瞓覺係常識嘛  
@@ -33,4 +33,4 @@ tags : [lifestyle - zakka, lifestyle - rosy rosy]
   
 \-----------------------------------------------  
   
-延伸閱讀：[SUICAのペンギン！！！](https://www.hidie.net/2013/11/suica.html)
+延伸閱讀：[SUICAのペンギン！！！](https://hidie.net/suica/)

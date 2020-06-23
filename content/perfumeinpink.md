@@ -9,7 +9,7 @@ tags : [collections - 可愛い〜]
 相比大大枝香水  
 迷你裝就既可愛又容易收藏  
 
-[![](https://farm8.staticflickr.com/7486/16017342655_e373e4b34f_z.jpg)](https://farm8.staticflickr.com/7486/16017342655_e373e4b34f_z.jpg)
+![](/images/perfumeinpink.jpg)
 
 （左起）  
 guerlain - my insolence  

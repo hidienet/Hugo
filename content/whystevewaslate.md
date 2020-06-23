@@ -11,7 +11,7 @@ tags : [amusement - picture books]
 
 不如看看Steve怎說．．．
 
-[![](/images/whystevewaslate.jpg)
+![](/images/whystevewaslate.jpg)
 
 Why Steve was Late - 101 Exceptional Excuse for Terrible Timekeeping  
 by Dave Skinner & Henry Paker  

@@ -6,52 +6,44 @@ aliases: [ "/2013/10/blog-post_1899.html" ]
 tags : [amusement - drama]
 ---
 
-結婚，常識地知道這不只是兩個人的事
+結婚，常識地知道唔止係兩個人嘅事
 
-[![](https://4.bp.blogspot.com/-8xdfO4D84DE/XCRS5RXAYDI/AAAAAAAACCw/dwXO4ZGnXOkUz-uang-djwebRkrdoTaAQCLcBGAs/s640/1.jpg)](https://4.bp.blogspot.com/-8xdfO4D84DE/XCRS5RXAYDI/AAAAAAAACCw/dwXO4ZGnXOkUz-uang-djwebRkrdoTaAQCLcBGAs/s1600/1.jpg)
+![](/images/ido.jpg)
 
-這是兩家人的事；兩家人的家人的事；
+係兩家人嘅事；兩家人嘅家人嘅事；  
+兩家人嘅家人嘅親朋戚友．．．嘅．．．嘅事  
+但台前幕後主要統籌，都係要結婚嗰兩位
 
-兩家人的家人的親朋戚友；．．．的．．．的事
+總之就係咩都要鋪張得體  
+不過其實參加完都無邊個認真記得細節等等
 
-但台前幕後主要統籌，都是要結婚的那兩位
+![](/images/ido1.jpg)
 
-總之就是要甚麼鋪張得體
-
-不過其實參加完也沒有誰認真記得細節等等
-
-[![](https://2.bp.blogspot.com/-JTOoBQlNc1o/XCRTEwinxkI/AAAAAAAACC0/qt-BmZU9UKgCC76cSXvIdmCdCNzKz1kagCLcBGAs/s640/2.jpg)](https://2.bp.blogspot.com/-JTOoBQlNc1o/XCRTEwinxkI/AAAAAAAACC0/qt-BmZU9UKgCC76cSXvIdmCdCNzKz1kagCLcBGAs/s1600/2.jpg)
-
-以男人的角度看籌備婚宴過程
-
-三個演員分身N個角色
-
-一如而往的爆笑連場
+以男人嘅角度睇籌備婚宴過程  
+三個演員分身N個角色  
+一如而往爆笑連場
 
   
 
-笑中，反思這種結婚時做show的意義
-
-兩個人，相愛，一起排除萬難解決問題
-
-不這最終現實中成不成事這點嘛．．．
+笑中，反思呢種結婚時做show嘅意義  
+兩個人，相愛，一齊排除萬難解決問題  
+不這最終現實中成唔成事呢點嘛．．．
 
   
 
-（去了外太空）
+（遠望外太空）
 
   
 
   
 
-呃呃呃，開開心心進場去笑一晚便好了
-
-人請做足了就是要笑餐飽！ XD
-
-  
+呃呃呃，開開心心入場去笑一晚便好了  
+人請做足晒就係要笑餐飽啊！ XD
 
   
 
-[![](https://1.bp.blogspot.com/-wzqPqwj2iYU/XCRTNGKSAXI/AAAAAAAACC8/crEU4LLVvWI7WBM3gP9qmIpOqx4g-jG5gCLcBGAs/s640/3.jpg)](https://1.bp.blogspot.com/-wzqPqwj2iYU/XCRTNGKSAXI/AAAAAAAACC8/crEU4LLVvWI7WBM3gP9qmIpOqx4g-jG5gCLcBGAs/s1600/3.jpg)
+  
 
-回禮的朱古力，超愛這張貼紙～
+![](/images/ido2.jpg)
+
+回禮嘅朱古力，超鍾意張貼紙～

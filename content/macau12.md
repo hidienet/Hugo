@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - macao]
 
 好吃的牛雜實在有太多太多...
 
-[![](https://farm9.staticflickr.com/8569/16615304907_fbaa26242d_z.jpg)](https://farm9.staticflickr.com/8569/16615304907_fbaa26242d_z.jpg)
+![](/images/macau12.jpg)
 
 而位於氹仔的鴻彬記
 

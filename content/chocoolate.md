@@ -7,11 +7,11 @@ tags : [lifestyle - zakka]
 ---
 
 一向都會自備水樽出街  
-之不過本身用緊嗰隻[ECO Can Plus](https://www.hidie.net/2015/06/eco-can-plus-city-super-x-eva-armisen.html)  
+之不過本身用緊嗰隻[ECO Can Plus](https://hidie.net/ecocanplus/)  
 反轉用同就咁掉入袋fing fing吓會漏水  
 所以變成只可以乖乖地留响室內  
 
-[![](https://c1.staticflickr.com/5/4389/36799796881_78f6abb4ff_z.jpg)](https://c1.staticflickr.com/5/4389/36799796881_78f6abb4ff_z.jpg)
+![](/images/chocoolate.jpg)
 
 咁都要搵返個代替品嘅  
 原本一路都鍾情於駱駝牌隻112壺  

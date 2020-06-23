@@ -8,7 +8,7 @@ tags : [collections - 可愛い〜]
 
 沒有換一套的衝動  
 
-[![](https://farm1.staticflickr.com/378/18327322890_eb9b756329_z.jpg)](https://farm1.staticflickr.com/378/18327322890_eb9b756329_z.jpg)
+![](/images/mcnanblock.jpg)
 
 只是比較喜歡薯條而已  
 硬膠一舊，不可以拆開的  

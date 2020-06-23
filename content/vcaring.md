@@ -3,12 +3,12 @@ title: '[accessories] Van Cleef & Arpels - Infini Etoiles wedding band'
 date: 2014-04-01T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/accessories-van-cleef-arpels-infini.html" ]
-tags : [glamorous - 衫衫不盡 物慾無窮]
+tags : [glamorous - 裝身]
 ---
 
 隻鑽戒真的好漂亮（心）  
 
-[![](https://1.bp.blogspot.com/-zGLfkkfRYQo/XDCFVDJqlKI/AAAAAAAAEOg/aRWbLRu6sDIZpLEpmBVPsgWhRBaZKYr7gCLcBGAs/s640/54.jpg)](https://1.bp.blogspot.com/-zGLfkkfRYQo/XDCFVDJqlKI/AAAAAAAAEOg/aRWbLRu6sDIZpLEpmBVPsgWhRBaZKYr7gCLcBGAs/s1600/54.jpg)
+![](/images/vcaring.jpg)
 
 Van Cleef & Arpels  
 就是Grace Kelly結婚時首飾們的品牌  

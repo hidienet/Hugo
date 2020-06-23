@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - macao]
 遠一遠走到去黑沙環  
 就是為了吃這頭燒乳豬  
 
-[![](https://farm8.staticflickr.com/7460/16283494059_599e67b80a_z.jpg)](https://farm8.staticflickr.com/7460/16283494059_599e67b80a_z.jpg)
+![](/images/macau09.jpg)
 
 即燒的乳豬～  
 「咔嚓」一聲脆脆的薄皮層  

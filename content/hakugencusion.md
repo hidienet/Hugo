@@ -9,7 +9,7 @@ tags : [lifestyle - zakka]
 呢幾日朝早已經唔再凍  
 不過夜晚都係鍾意對腳仔暖笠笠咁  
 
-[![](https://c1.staticflickr.com/5/4690/38354489925_90290a6cec_z.jpg)](https://c1.staticflickr.com/5/4690/38354489925_90290a6cec_z.jpg)
+![](/images/hakugencusion.jpg)
 
 橙色叮叮保暖包  
 18 x 25 cm 夠擺晒兩隻腳踭  

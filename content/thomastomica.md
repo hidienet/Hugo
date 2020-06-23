@@ -8,7 +8,7 @@ tags : [collections - トミカ (tomica)]
 
 hello to my new cars trains（響按）  
 
-[![](https://farm8.staticflickr.com/7476/15969952937_e1565cc9bf_z.jpg)](https://farm8.staticflickr.com/7476/15969952937_e1565cc9bf_z.jpg)
+![](/images/thomastomica.jpg)
 
 塗鴉的thomas好漂亮耶  
 （香港塗鴉乜乜乜都是犯法的呢！）  

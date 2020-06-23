@@ -13,7 +13,7 @@ tags : [lifestyle - 急救箱]
 分程度不同，解救方法都會有分別  
 （畢竟自己就是自己的醫生）  
 
-[![](https://4.bp.blogspot.com/-b2Z2WV9lPXQ/XC30Ir_wWZI/AAAAAAAADzE/RjcsnA3fK7ceGYr1M7ycrP2XDiC_osgBACLcBGAs/s640/34.jpg)](https://4.bp.blogspot.com/-b2Z2WV9lPXQ/XC30Ir_wWZI/AAAAAAAADzE/RjcsnA3fK7ceGYr1M7ycrP2XDiC_osgBACLcBGAs/s1600/34.jpg)
+![](/images/ryukakusan.jpg)
 
 病到失聲就絕對是食direct  
 direct是粉末狀，藍色爲mint flavor  
@@ -22,7 +22,7 @@ direct是粉末狀，藍色爲mint flavor
 （哪來的美妙啊？！）  
 但對於再能發聲已經很好  
 
-[![](https://2.bp.blogspot.com/-rYzLYn713Bw/XC30OydU3AI/AAAAAAAADzI/QbEimKEzrFc0Bd8kXTKDTMGAKwiHBFPegCLcBGAs/s640/35.jpg)](https://2.bp.blogspot.com/-rYzLYn713Bw/XC30OydU3AI/AAAAAAAADzI/QbEimKEzrFc0Bd8kXTKDTMGAKwiHBFPegCLcBGAs/s1600/35.jpg)
+![](/images/ryukakusan1.jpg)
 
 粉紅色的direct，peach味  
 味道甜甜的不錯吃  
@@ -30,13 +30,13 @@ direct是粉末狀，藍色爲mint flavor
 卻有輕微舒緩感  
 有事不可以靠這包就是  
 
-[![](https://3.bp.blogspot.com/-Jdago9Q9cpM/XC30UTl6MwI/AAAAAAAADzM/LBGRfNpRlN4jy9c_eU5bTohsRZh0Z0bDwCLcBGAs/s640/36.jpg)](https://3.bp.blogspot.com/-Jdago9Q9cpM/XC30UTl6MwI/AAAAAAAADzM/LBGRfNpRlN4jy9c_eU5bTohsRZh0Z0bDwCLcBGAs/s1600/36.jpg)
+![](/images/ryukakusan2.jpg)
 
 藥片裝，芒果味  
 （盒子是橙色那隻）  
 好好食但藥效跟direct peach差不多  
 
-[![](https://4.bp.blogspot.com/-TpOvai8p3s4/XC30aebCuVI/AAAAAAAADzU/LJoROhAL4ZIWuAVUXcwWtjpVXk-5CItzwCLcBGAs/s640/37.jpg)](https://4.bp.blogspot.com/-TpOvai8p3s4/XC30aebCuVI/AAAAAAAADzU/LJoROhAL4ZIWuAVUXcwWtjpVXk-5CItzwCLcBGAs/s1600/37.jpg)
+![](/images/ryukakusan3.jpg)
 
 四方粒的飴裝  
 下面白色的原味（原味不是mint來的）  

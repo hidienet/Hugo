@@ -9,7 +9,7 @@ tags : [lifestyle - 急救箱]
 在那麼乾燥的天氣手部非常容易發生意外  
 真的是十指痛歸心的 （哭慘了 T-T）  
 
-[![](https://2.bp.blogspot.com/-5PdxZ7ujp9w/XChwVN5skUI/AAAAAAAAC98/9gQJPCXqvh4d-tyLI3zPqjqPjstRDUxCQCLcBGAs/s640/05.jpg)](https://2.bp.blogspot.com/-5PdxZ7ujp9w/XChwVN5skUI/AAAAAAAAC98/9gQJPCXqvh4d-tyLI3zPqjqPjstRDUxCQCLcBGAs/s1600/05.jpg)
+![](/images/sakamucare.jpg)
 
 膠布不夠貼服而且不耐水  
 用甚麼紅藥水藍藥水又很醜（小學生嗎？）  

@@ -6,10 +6,10 @@ aliases: [ "/2014/01/m.html" ]
 tags : [lifestyle - zakka]
 ---
 
-雖然經過了「[火燒後欄](http://www.hidie.net/2014/01/day7.html)」的經歷   
+雖然經過了「[火燒後欄](https://hidie.net/busanjj7a/)」的經歷   
 依然不減喜歡以艾草暖暖子宮     
 
-[![](https://4.bp.blogspot.com/--RdozZ8zn0Q/XCiy1bbTKKI/AAAAAAAADc8/FX2PqtCJNN4L2G_S1DiHtGoqksxa_GbyACLcBGAs/s640/08.jpg)](https://4.bp.blogspot.com/--RdozZ8zn0Q/XCiy1bbTKKI/AAAAAAAADc8/FX2PqtCJNN4L2G_S1DiHtGoqksxa_GbyACLcBGAs/s1600/08.jpg)
+![](/images/mugwortpad.jpg)
 
 超～ 長～ 的M巾  
 這M巾散發不太濃的艾草味  

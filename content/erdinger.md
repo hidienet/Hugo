@@ -18,7 +18,7 @@ touchwood講句我從來都沒食過安眠藥
 但眼皮卻想合埋也合不到  
 我的方法就是飲～ 啤～ 酒～  
 
-[![](https://1.bp.blogspot.com/-vToNs4I9Vwc/XCi3WkrzK0I/AAAAAAAADd0/vB0Fv0cgWkcdi1V9s6OeMAeoVTWQnQHLwCLcBGAs/s640/16.jpg)](https://1.bp.blogspot.com/-vToNs4I9Vwc/XCi3WkrzK0I/AAAAAAAADd0/vB0Fv0cgWkcdi1V9s6OeMAeoVTWQnQHLwCLcBGAs/s1600/16.jpg)
+![](/images/erdinger.jpg)
 
 昨晚陪我的時這枝erdinger的dunkel  
 入口很順滑，像有氣泡的絲在舌頭上溜過  

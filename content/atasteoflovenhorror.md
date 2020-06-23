@@ -8,7 +8,7 @@ tags : [amusement - drama]
 
 鬼，可怕嗎？  
 
-[![](https://4.bp.blogspot.com/-LMtcYC3aWW0/XE1DiCNlV7I/AAAAAAAAG_k/VBsafugiVAAeB73t8JP6HomUhrqleUYtgCLcBGAs/s640/15375175062_ebc7f5f847_z.jpg)](https://4.bp.blogspot.com/-LMtcYC3aWW0/XE1DiCNlV7I/AAAAAAAAG_k/VBsafugiVAAeB73t8JP6HomUhrqleUYtgCLcBGAs/s1600/15375175062_ebc7f5f847_z.jpg)
+![](/images/atasteoflovenhorror.jpg)
 
 這套圍繞家庭的劇  
 家庭成員都因為只顧自己  

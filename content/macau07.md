@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - macao]
 
 sorry～ 相機不能食先（笑）  
 
-[![](https://farm6.staticflickr.com/5473/9710769934_731f629cb8_z.jpg)](https://farm6.staticflickr.com/5473/9710769934_731f629cb8_z.jpg)
+![](/images/macau07.jpg)
 
 （滿滿的一盒在拍照時已經只剩下幾塊）  
 於50年代創立的最香餅家  

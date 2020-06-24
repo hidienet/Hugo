@@ -8,17 +8,17 @@ tags : [travel - Portugal]
 
 由Barcelos去另一個市要幾耐？  
 
-[![](https://c1.staticflickr.com/5/4256/35070691043_824b080db8_z.jpg)](https://c1.staticflickr.com/5/4256/35070691043_824b080db8_z.jpg)
+![](/images/portugal5f.jpg)
 
 喔！就好似個羅湖關咁，對面就係㗎喇～  
 
-[![](https://c1.staticflickr.com/5/4741/38823898220_bb2ca14eca_z.jpg)](https://c1.staticflickr.com/5/4741/38823898220_bb2ca14eca_z.jpg)
+![](/images/portugal5f1.jpg)
 
 對面岸嘅城市叫**Barcelinhos**  
 （啲草都剪好咗個市名呀）  
 呢個係佢嘅**Penedos**區  
 
-[![](https://c1.staticflickr.com/5/4713/39738280565_b10a530156_z.jpg)](https://c1.staticflickr.com/5/4713/39738280565_b10a530156_z.jpg)
+![](/images/portugal5f2.jpg)
 
 行又得揸車亦得，近在咫尺  
 但係游水就NG喇  

@@ -8,11 +8,11 @@ tags : [travel - Portugal]
 
 總之就係「雞 全部都係雞...」啦～  
 
-[![](https://c1.staticflickr.com/5/4258/35747601981_d44a9cf746_z.jpg)](https://c1.staticflickr.com/5/4258/35747601981_d44a9cf746_z.jpg)
+![](/images/portugal5d.jpg)
 
 是咁的，Barcelos就係令葡萄牙「雞化」嘅發源地。  
 
-[![](https://c1.staticflickr.com/5/4619/39122996355_b6ec80e103_z.jpg)](https://c1.staticflickr.com/5/4619/39122996355_b6ec80e103_z.jpg)
+![](/images/portugal5d1.jpg)
 
 相傳有個嚟自加利西亞嘅朝聖者  
 諗住去聖地亞哥朝聖嘅途中兜過呢個鎮仔  
@@ -34,17 +34,17 @@ tags : [travel - Portugal]
 公雞 (galo)在葡萄牙變成咗公正、信任同好運嘅象徵  
 仲係葡萄牙嘅吉祥物同非官方嘅國家標誌  
 
-[![](https://c1.staticflickr.com/5/4694/39989426032_66bb98c411_z.jpg)](https://c1.staticflickr.com/5/4694/39989426032_66bb98c411_z.jpg)
+![](/images/portugal5d2.jpg)
 
 雖然葡萄牙真係唔少galo嘅嘢  
 然而周圍都係大雞就好似係呢個發祥地先有  
 
-[![](https://c1.staticflickr.com/5/4770/39989425642_52d7e9d6ae_z.jpg)](https://c1.staticflickr.com/5/4770/39989425642_52d7e9d6ae_z.jpg)
+![](/images/portugal5d3.jpg)
 
 餐廳店面都係...  
 色彩繽紛好靚呢～  
 
-[![](https://c1.staticflickr.com/5/4664/39989424542_91bb04c37e_z.jpg)](https://c1.staticflickr.com/5/4664/39989424542_91bb04c37e_z.jpg)
+![](/images/portugal5d4.jpg)
 
 呢個仲成頭都係㖭！（哈）  
   

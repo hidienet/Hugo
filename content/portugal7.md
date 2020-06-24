@@ -64,7 +64,7 @@ metro：São Bento → **Santa Clara**
 冇～ 帶～ 遮～ 呀～～～  
 要搵地方避雨（等停雨）  
 
-![](/images/portugal7g4.jpg)
+![](/images/portugal7g3.jpg)
 
 同啲海鷗一齊見證停雨喇  
 （排排企好整齊，仲成地雀屎）  

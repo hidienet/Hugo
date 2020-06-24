@@ -9,12 +9,12 @@ tags : [travel - Portugal]
 參觀完教堂行去食lunch之際  
 見到有限時市集，去兜個圈先  
 
-![](https://c1.staticflickr.com/5/4310/35163485804_44411d559b_z.jpg)
+![](/images/portugal7c.jpg)
 
 堅多文青嘢嘅  
 而我都有嘢啱入到手㗎...  
 
-![](https://c1.staticflickr.com/5/4403/35593307273_47927ee997_z.jpg)
+![](/images/portugal7c1.jpg)
 
 Lagar Do Mel嘅脆口蜜糖杏仁同合桃蜜！  
 哈哈哈係呀都係買嘢食啱啲～（笑）  

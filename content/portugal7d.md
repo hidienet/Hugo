@@ -8,17 +8,17 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 
 一定要嚟呢度食羊羊羊呀～～～  
 
-[![](https://c1.staticflickr.com/1/794/40517032114_9ecdee8513_z.jpg)](https://c1.staticflickr.com/1/794/40517032114_9ecdee8513_z.jpg)
+![](/images/portugal7d1.jpg)
 
 當然，仲有超好食嘅蒜蓉包  
 （今次係encore都仍然好好好好食！）  
 
-[![](https://c1.staticflickr.com/5/4314/35192842573_4d376cd6d0_z.jpg)](https://c1.staticflickr.com/5/4314/35192842573_4d376cd6d0_z.jpg)
+![](/images/portugal7d.jpg)
 
 Douro嘅紅酒：Grambeira Red  
 微微嘅煙燻味，配今日嘅羊肉就啱啱好  
 
-[![](https://c1.staticflickr.com/1/796/40517031814_982309644e_z.jpg)](https://c1.staticflickr.com/1/796/40517031814_982309644e_z.jpg)
+![](/images/portugal7d2.jpg)
 
 （左）牛內臟 x 白豆  
 （右）羊羊羊羊羊羊羊 x 薯仔  

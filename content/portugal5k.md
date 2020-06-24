@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 係嘅，葡國菜係好好食  
 食咗好多餐都唔厭呀  
 
-[![](https://c1.staticflickr.com/5/4216/35097300804_8b0cbd41f7_z.jpg)](https://c1.staticflickr.com/5/4216/35097300804_8b0cbd41f7_z.jpg)
+![](/images/portugal5k1.jpg)
 
 不過佢嘅鄰居西班牙啲嘢都好正之嘛！  
 好似sangria咁，咩款都好飲  
@@ -18,13 +18,13 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 係啦比平日紅酒嗰種甜啲  
 試吓新嘢都唔錯吖～  
 
-[![](https://c1.staticflickr.com/5/4782/40116666774_dd2b80ab3b_z.jpg)](https://c1.staticflickr.com/5/4782/40116666774_dd2b80ab3b_z.jpg)
+![](/images/portugal5k2.jpg)
 
 西班牙嘢梗係要食tapas啦  
 先嚟兜煮**牛雜**  
 味道濃郁但係唔會好鹹  
 
-[![](https://c1.staticflickr.com/5/4771/40116666284_79a9257141_z.jpg)](https://c1.staticflickr.com/5/4771/40116666284_79a9257141_z.jpg)
+![](/images/portugal5k.jpg)
 
 嗱～ 都葡萄牙㗎  
 **codfish salad**嚟㗎  
@@ -32,19 +32,19 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 黑欖更加唔需要再形容佢嘅香啦  
 好好好好食！  
 
-[![](https://c1.staticflickr.com/5/4783/39931056535_d63a2499ef_z.jpg)](https://c1.staticflickr.com/5/4783/39931056535_d63a2499ef_z.jpg)
+![](/images/portugal5k3.jpg)
 
 **炒雜菌**啦，啲嘢夠新鮮就咁炒就已經好好味  
 加埋少少ham，哇送酒一流呀  
 
-[![](https://c1.staticflickr.com/1/818/26955974398_175d39ac2a_z.jpg)](https://c1.staticflickr.com/1/818/26955974398_175d39ac2a_z.jpg)
+![](/images/portugal5k4.jpg)
 
 响menu見到諗都無諗就點  
 對**青椒仔**呢家嘢真係毫無免疫力  
 無嗌錯㗎佢用少少鹽炒  
 青椒仔嘅味道鹹香清甜出晒嚟勁好食啊  
 
-[![](https://c1.staticflickr.com/1/809/39931054755_c75da66462_z.jpg)](https://c1.staticflickr.com/1/809/39931054755_c75da66462_z.jpg)
+![](/images/portugal5k5.jpg)
 
 再嚟兜**雞腎**  
 又香又腍，一粒一粒啪好過癮  

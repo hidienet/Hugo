@@ -10,7 +10,7 @@ tags : [travel - Malaysia・Sabah]
 （都再一年之末，為何還要這樣對自己？）  
 不理了，未睡醒就吃個營養早餐  
 
-[![](https://2.bp.blogspot.com/-pGm7DrBRhI4/XCh8RZpCB-I/AAAAAAAADHY/pxDYfujvvJswA5bSVwuWkj5jIMUFLhW4wCLcBGAs/s640/04.jpg)](https://2.bp.blogspot.com/-pGm7DrBRhI4/XCh8RZpCB-I/AAAAAAAADHY/pxDYfujvvJswA5bSVwuWkj5jIMUFLhW4wCLcBGAs/s1600/04.jpg)
+![](/images/sabah4a.jpg)
 
 kaya多+豉油胡椒蛋+濃滑奶茶  
   
@@ -20,4 +20,4 @@ kaya多+豉油胡椒蛋+濃滑奶茶
   
 \-----------------------------------------------  
   
-延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)
+延伸閱讀：[沙巴密密食（5D4N）](https://hidie.net/sabah5d4n/)

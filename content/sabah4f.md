@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
 
 這年「最後的晚餐」XD  
 
-[![](https://3.bp.blogspot.com/-SMjqyKKqMNg/XCh50g1ak6I/AAAAAAAADFc/ncAQrmrnELsZbH3gKfeJLHU3vR12ymVMQCLcBGAs/s640/69.jpg)](https://3.bp.blogspot.com/-SMjqyKKqMNg/XCh50g1ak6I/AAAAAAAADFc/ncAQrmrnELsZbH3gKfeJLHU3vR12ymVMQCLcBGAs/s1600/69.jpg)
+![](/images/sabah4f.jpg)
 
 一檯四煲，煲煲不同  
 有三個都是肉骨茶（bah kut tê，此爲閩南語）  
@@ -23,4 +23,4 @@ tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
   
 \-----------------------------------------------  
   
-延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)
+延伸閱讀：[沙巴密密食（5D4N）](https://hidie.net/sabah5d4n/)

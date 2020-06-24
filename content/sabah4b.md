@@ -10,7 +10,7 @@ tags : [travel - Malaysia・Sabah]
 搭了兩個多小時的車先到了Pekan Nabalu  
 是個買水果的地方  
 
-[![](https://1.bp.blogspot.com/-RlvOq1kKFUA/XCh7z0TZmxI/AAAAAAAADHE/3AOmWGpwTqwFrPDIB7lxt6RLYYwTUIMxwCLcBGAs/s640/01.jpg)](https://1.bp.blogspot.com/-RlvOq1kKFUA/XCh7z0TZmxI/AAAAAAAADHE/3AOmWGpwTqwFrPDIB7lxt6RLYYwTUIMxwCLcBGAs/s1600/01.jpg)
+![](/images/sabah4b.jpg)
 
 遍地菠蘿～  
   
@@ -18,11 +18,11 @@ tags : [travel - Malaysia・Sabah]
   
 不過⋯⋯  
 
-[![](https://2.bp.blogspot.com/-E8XPg-Zezv4/XCh75SPgZ-I/AAAAAAAADHI/-ddfrY0PK_Ueuqh0uR_n2SAFsPQ9WzraQCLcBGAs/s640/02.jpg)](https://2.bp.blogspot.com/-E8XPg-Zezv4/XCh75SPgZ-I/AAAAAAAADHI/-ddfrY0PK_Ueuqh0uR_n2SAFsPQ9WzraQCLcBGAs/s1600/02.jpg)
+![](/images/sabah4b1.jpg)
 
 神山呢？  
 
-[![](https://3.bp.blogspot.com/-D_T1Fj9IL7E/XCh7-eVpdDI/AAAAAAAADHM/_yik_Pj4h1gkt-k33IOMbIOhBFHblkJAACLcBGAs/s640/03.jpg)](https://3.bp.blogspot.com/-D_T1Fj9IL7E/XCh7-eVpdDI/AAAAAAAADHM/_yik_Pj4h1gkt-k33IOMbIOhBFHblkJAACLcBGAs/s1600/03.jpg)
+![](/images/sabah4b2.jpg)
 
 神山在哪裡？  
   
@@ -33,4 +33,4 @@ tags : [travel - Malaysia・Sabah]
   
 \-----------------------------------------------  
   
-延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)
+延伸閱讀：[沙巴密密食（5D4N）](https://hidie.net/sabah5d4n/)

@@ -8,13 +8,13 @@ tags : [travel - Portugal]
 
 廢墟都曾經有輝煌嘅時候...  
 
-[![](https://c1.staticflickr.com/5/4292/35748613051_eb9e858f1d_z.jpg)](https://c1.staticflickr.com/5/4292/35748613051_eb9e858f1d_z.jpg)
+![](/images/portugal5g.jpg)
 
 呢座名為**Paço dos Condes de Barcelos**嘅城堡仔  
 係响15世紀上半興建嘅哥德式建築  
 真係當期時呢個地區最有米嘅建築物  
 
-[![](https://c1.staticflickr.com/5/4741/39739121585_2eef3c4d34_z.jpg)](https://c1.staticflickr.com/5/4741/39739121585_2eef3c4d34_z.jpg)
+![](/images/portugal5g1.jpg)
 
 可惜1755年地震震到散晒  
 1801年嗰陣仲冧埋樓  
@@ -22,7 +22,7 @@ tags : [travel - Portugal]
 不過比啲民眾抗議啦最後冇拆  
 所以就變成而家睇到嘅一支煙囪幾幅牆  
 
-[![](https://c1.staticflickr.com/5/4791/39924738444_f9c3672bca_z.jpg)](https://c1.staticflickr.com/5/4791/39924738444_f9c3672bca_z.jpg)
+![](/images/portugal5g2.jpg)
 
 本身個樣就只得返藍白瓷磚見到  
 喔！真係幾大座咁喎～  

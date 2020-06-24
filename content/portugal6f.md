@@ -9,20 +9,20 @@ tags : [travel - Portugal]
 呢度主要嘅兩座嘢都參觀完  
 咁就响度再周圍兜吓啦  
 
-[![](https://c1.staticflickr.com/1/799/26137113297_aae8a122b1_z.jpg)](https://c1.staticflickr.com/1/799/26137113297_aae8a122b1_z.jpg)
+![](/images/portugal6f.jpg)
 
 Museu Arqueológico da Sociedade Martins Sarmento  
 呢個位係整得幾靚嘅  
 但係唔入去啦，都唔識佢...  
 
-[![](https://c1.staticflickr.com/1/819/39198718000_459daba191_z.jpg)](https://c1.staticflickr.com/1/819/39198718000_459daba191_z.jpg)
+![](/images/portugal6f1.jpg)
 
 然後再兜個九曲十三彎落去  
 
-[![](https://c1.staticflickr.com/5/4788/39198714740_9808f94b72_z.jpg)](https://c1.staticflickr.com/5/4788/39198714740_9808f94b72_z.jpg)
+![](/images/portugal6f2.jpg)
 
 落到嚟Guimarães遊客中心推薦過嘅市集  
-不過連歐洲最最最大嘅市集都覺得唔啱買  
+不過連[歐洲最最最大嘅市集](https://hidie.net/portugal5b/)都覺得唔啱買  
 呢個市集更雜架攤咁更加唔啱睇  
 算啦咁，唔行就去食吓嘢啦～  
   

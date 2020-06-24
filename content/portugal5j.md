@@ -8,7 +8,7 @@ tags : [travel - Portugal]
 
 Porto嘅貓巷... Travessa do Ferraz  
 
-[![](https://c1.staticflickr.com/5/4779/40097392494_255999746c_z.jpg)](https://c1.staticflickr.com/5/4779/40097392494_255999746c_z.jpg)
+![](/images/portugal5j.jpg)
 
 咁啱見到畫咗嘅貓同隻真黑貓咪影吓囉  
   

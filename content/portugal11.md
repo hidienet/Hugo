@@ -8,16 +8,16 @@ tags : [travel - Portugal]
 
 成個area都係文化遺產...  
 
-[![](https://c1.staticflickr.com/5/4304/35262506524_8a72ccb19c_z.jpg)](https://c1.staticflickr.com/5/4304/35262506524_8a72ccb19c_z.jpg)
+![](/images/portugal11a0.jpg)
 
 Lisboa - Rossio → **Sintra**  
 搭一粒鐘有找嘅火車就到  
 所以今朝係移動完先食早餐嘅  
 
-[![](https://c1.staticflickr.com/5/4297/36102312535_753f65374e_z.jpg)](https://c1.staticflickr.com/5/4297/36102312535_753f65374e_z.jpg)
+![](/images/portugal11a.jpg)
 
 落車未搭上山嘅巴士前  
-就嚟呢間距離火車同巴士站都好近嘅**Cintia**食早餐  
+就嚟呢間距離火車同巴士站都好近嘅[Cintia](https://hidie.net/portugal11a/)食早餐  
 諗住呢種咁方便遊客嘅café會又貴又整得求其  
 點知唔係喎！好好味喎啲嘢食  
 係一間絕對值得推薦嘅café（拍手）  

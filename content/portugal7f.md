@@ -8,7 +8,7 @@ tags : [travel - Portugal]
 
 係呀，有靚靚教堂同修道院唔入  
 
-![](https://c1.staticflickr.com/5/4314/35962849656_11525174b8_z.jpg)
+![](/images/portugal7f.jpg)
 
 就係要行落嚟呢個鎮度  
   
@@ -19,7 +19,7 @@ tags : [travel - Portugal]
 .  
 ...點解？  
 
-![](https://c1.staticflickr.com/1/898/41296930772_3c2b1d27cb_z.jpg)
+![](/images/portugal7f1.jpg)
 
 响呢度再沿著Rio Ave  
 望到嘛望到嘛？  

@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族, travel - Portugal]
 返到嚟São Bento唔早唔晏  
 食吓雪糕都好吖～  
 
-[![](https://c1.staticflickr.com/5/4317/36005268525_d6d1727981_z.jpg)](https://c1.staticflickr.com/5/4317/36005268525_d6d1727981_z.jpg)
+![](/images/portugal7i.jpg)
 
 去呢間叫**Ice Lover**食gelados  
 上面球淺啡色係肉桂  

@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 一朝早，想飲返杯咖啡  
 但係間嘢嘅朱古力係signature喎... 點算？  
 
-[![](https://c1.staticflickr.com/5/4322/35191017453_c7b9edc4bb_z.jpg)](https://c1.staticflickr.com/5/4322/35191017453_c7b9edc4bb_z.jpg)
+![](/images/portugal7a.jpg)
 
 Why not both？（Special Moka）  
 綿密嘅奶泡  
@@ -19,7 +19,7 @@ Why not both？（Special Moka）
 喂，好好飲呀佢  
 好想再encore多杯朱古力呢...  
 
-[![](https://c1.staticflickr.com/1/812/40178679545_1df33dd7f1_z.jpg)](https://c1.staticflickr.com/1/812/40178679545_1df33dd7f1_z.jpg)
+![](/images/portugal7a1.jpg)
 
 moka係好飲又飽肚  
 咁都要食早餐㗎  

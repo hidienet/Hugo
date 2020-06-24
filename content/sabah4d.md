@@ -13,11 +13,11 @@ tags : [travel - Malaysia・Sabah]
 有森林有溫泉，而且這硫磺水還有舒緩疲勞  
 聽說還能治療皮膚病  
 
-[![](https://3.bp.blogspot.com/-J6_gd5aLA0Y/XCh6JHbvU4I/AAAAAAAADFo/tpf7zEd1x_4iVvGfGH8-53Ig0tZjt2sQACLcBGAs/s640/71.jpg)](https://3.bp.blogspot.com/-J6_gd5aLA0Y/XCh6JHbvU4I/AAAAAAAADFo/tpf7zEd1x_4iVvGfGH8-53Ig0tZjt2sQACLcBGAs/s1600/71.jpg)
+![](/images/sabah4d.jpg)
 
 逗留的時間不多，在免費區泡泡腳也不錯  
 （超愛泡溫泉超愛泡溫泉超愛泡溫泉）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)
+延伸閱讀：[沙巴密密食（5D4N）](https://hidie.net/sabah5d4n/)

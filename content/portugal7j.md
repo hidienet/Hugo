@@ -10,23 +10,23 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 但係已經到埋宵夜時間喇  
 又唔可以唔食啲嘢㗎嘛  
 
-[![](https://c1.staticflickr.com/1/794/40600924695_f58544ecff_z.jpg)](https://c1.staticflickr.com/1/794/40600924695_f58544ecff_z.jpg)
+![](/images/portugal7j.jpg)
 
 諗住食少少嘢送吓酒咋喎個芝士火腿盤唔駛咁大碟呀化？！  
 （...最後食唔晒要打包做聽朝嘅早餐）  
 不過盤嘢真係好乞人憎㗎  
 款式多仲要好鬼好食  
 
-[![](https://c1.staticflickr.com/1/882/40600925465_889cf3f7d4_z.jpg)](https://c1.staticflickr.com/1/882/40600925465_889cf3f7d4_z.jpg)
+![](/images/portugal7j1.jpg)
 
 兜welcome包起新鮮熱辣辣  
 香到痺，又係冇唔好食嘅道理  
 
-[![](https://c1.staticflickr.com/5/4309/35963958076_45648ff1ed_z.jpg)](https://c1.staticflickr.com/5/4309/35963958076_45648ff1ed_z.jpg)
+![](/images/portugal7j2.jpg)
 
 今晚飲紅酒～  
 
-[![](https://c1.staticflickr.com/1/815/27622911248_8fc9a89204_z.jpg)](https://c1.staticflickr.com/1/815/27622911248_8fc9a89204_z.jpg)
+![](/images/portugal7j3.jpg)
 
 對住燭光慢慢吹下水先再行返去瞓  
   

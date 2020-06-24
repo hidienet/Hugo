@@ -40,16 +40,16 @@ cheers～～～！
 
 [![](https://c1.staticflickr.com/5/4312/35873696442_626614e680_z.jpg)](https://c1.staticflickr.com/5/4312/35873696442_626614e680_z.jpg)
 
-（**Quinta do Bomfim**）  
+[Quinta do Bomfim](https://hidie.net/portugal8d/)  
 食飽飽，當然要做嘅第二件事  
 嗱～ 呢樣係今次Pinhão遊最緊要嘅事  
 去農園 x 酒莊！！！  
 
-[![](https://c1.staticflickr.com/5/4293/35234554533_e23dbc5bee_z.jpg)](https://c1.staticflickr.com/5/4293/35234554533_e23dbc5bee_z.jpg)
+![](/images/portugal8d.jpg)
 
 勁勁勁濃郁嘅酒味呀，醉喇醉喇～  
 
-[![](https://c1.staticflickr.com/5/4326/35873694022_21c8732d29_z.jpg)](https://c1.staticflickr.com/5/4326/35873694022_21c8732d29_z.jpg)
+![](/images/portugal8d4.jpg)
 
 梗係唔少得試酒嘅環節啦（大大心）  
   

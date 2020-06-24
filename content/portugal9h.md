@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 
 日落就當然會去食晚飯兼飲返杯啦  
 
-![](https://c1.staticflickr.com/1/865/41211803014_88c5a49920_z.jpg)
+![](/images/portugal9h1.jpg)
 
 包盤裡面嘅包都有幾款  
 有硬有軟有腍有脆  
@@ -16,41 +16,41 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 仲有自家製超香嘅橄欖醬  
 好好味呢～  
 
-![](https://c1.staticflickr.com/5/4293/35954279401_94bc4d7bb5_z.jpg)
+![](/images/portugal9h2.jpg)
 
 開心嘅一晚會飲令人歡悅嘅酒  
 sparkling wine sangria  
 香甜嘅生果加埋有氣嘅酒  
 聽到個組合已經夠興奮  
 
-![](https://c1.staticflickr.com/1/952/41211801454_e3cbea64c1_z.jpg)
+![](/images/portugal9h3.jpg)
 
 送酒嘅好拍檔唔少得煙燻火腿嘅  
 呢隻仲配埋焦糖洋蔥  
 個味鹹香再俾甜美令鮮味提升  
 啲芝麻又推進多層香氣，實在太美味  
 
-![](https://c1.staticflickr.com/1/826/40122686630_3fd206b84f_z.jpg)
+![](/images/portugal9h4.jpg)
 
 上咗個好似童軍露營兜嘅餸  
 係番茄仔煮薄豬肉片  
 簡單純粹嘅味道  
 就係嗰啲材料夠新鮮所以好好食嘅嘢  
 
-![](https://c1.staticflickr.com/1/903/41885864042_78ba83979a_z.jpg)
+![](/images/portugal9h.jpg)
 
 Alheira，被譽為King of Portuguese sausage  
 切碌碌嘅煙燻腸拎去炸  
 然後上面鋪煎蛋仔  
 配陳醋食唔會好油膩  
 
-![](https://c1.staticflickr.com/1/872/41885863662_6bbbf335d1_z.jpg)
+![](/images/portugal9h5.jpg)
 
 啦啦啦～ 葡國菜老是常出現嘅馬介休  
 搵啲橄欖伴吓碟咁  
 做法太多真係點食都唔會厭  
 
-![](https://c1.staticflickr.com/1/951/41211805314_94c7dd78c6_z.jpg)
+![](/images/portugal9h6.jpg)
 
 甜品係蕃薯糕配橙雪糕  
 蕃薯味濃甜橙味啱啱好去解膩  

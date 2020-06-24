@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
 是次旅程的最後一餐@沙巴（已經捨不得）  
 早餐都是潮式粉麵，不過這是撈的比較特別  
 
-[![](https://2.bp.blogspot.com/-eQLhP-sfkKE/XCh5Kd8Yh4I/AAAAAAAADE4/3YJM4VZrfpQ9FVEdqABznxr6UalsWHlgQCLcBGAs/s640/65.jpg)](https://2.bp.blogspot.com/-eQLhP-sfkKE/XCh5Kd8Yh4I/AAAAAAAADE4/3YJM4VZrfpQ9FVEdqABznxr6UalsWHlgQCLcBGAs/s1600/65.jpg)
+![](/images/sabah5b.jpg)
 
 除了平常都能吃到的魚蛋跟魚片  
 還加了大大粒炸魚蛋  
@@ -22,4 +22,4 @@ tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
   
 \-----------------------------------------------  
   
-延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)
+延伸閱讀：[沙巴密密食（5D4N）](https://hidie.net/sabah5d4n/)

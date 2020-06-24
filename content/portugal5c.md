@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, flavor - 螞蟻族, travel - Por
 
 終於响葡萄牙第一次食到葡撻（感動）  
 
-[![](https://c1.staticflickr.com/5/4237/35710396302_688289b196_z.jpg)](https://c1.staticflickr.com/5/4237/35710396302_688289b196_z.jpg)
+![](/images/portugal5c.jpg)
 
 咁當然都要食正餐嘅  
 個餐有麥包硬豬仔三款果jam同火腿芝士咁  
@@ -26,7 +26,7 @@ caffè latte就係caffè latte咁
 冇話邊隻好食啲只係邊隻啱個人口味啲  
 well，我兩隻都鍾意（嘻）  
 
-[![](https://c1.staticflickr.com/5/4758/39086979365_efbfdf02a2_z.jpg)](https://c1.staticflickr.com/5/4758/39086979365_efbfdf02a2_z.jpg)
+![](/images/portugal5c1.jpg)
 
 呀！唔夠分嗌多份nata x 牛油厚多士  
 酥酥脆嘅包加牛油味就係正囉！  

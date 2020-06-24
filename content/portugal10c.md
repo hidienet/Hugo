@@ -16,21 +16,21 @@ tags : [flavor - 螞蟻族, travel - Portugal]
 全Lisboa第二好食嘅葡撻店**Manteigaria**  
 食～ 葡～ 撻～～～  
 
-![](https://c1.staticflickr.com/1/946/41278792264_d2b4dc5066_z.jpg)
+![](/images/portugal10c1.jpg)
 
 全custard嘅正宗葡撻呀  
 超香又流心嘅內層呢  
 
-![](https://c1.staticflickr.com/1/958/28126151628_989d81dcac_z.jpg)
+![](/images/portugal10c2.jpg)
 
 舖裡面嘅玻璃窗係睇到啲葡撻嘅making of  
 
-![](https://c1.staticflickr.com/1/945/41278791094_c3909b515a_z.jpg)
+![](/images/portugal10c3.jpg)
 
 因為焗爐都係响度  
 所以由店內到街外都成陣葡撻味  
 
-![](https://c1.staticflickr.com/1/830/28126150478_c471ffa630_z.jpg)
+![](/images/portugal10c4.jpg)
 
 自己任加嘅糖霜同肉桂  
 不過其實就咁食已經好夠味！  

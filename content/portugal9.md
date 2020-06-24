@@ -8,61 +8,61 @@ tags : [travel - Portugal]
 
 最後一個whole day响Porto喇（淚）  
 
-[![](https://c1.staticflickr.com/5/4298/36045939185_90b5314d8d_z.jpg)](https://c1.staticflickr.com/5/4298/36045939185_90b5314d8d_z.jpg)
+![](/images/portugal9a2.jpg)
 
 都係嚟杯咖啡食個早餐先... @**Bufete Marina**  
   
 搭巴士（Line 500）由São Bento去**Matosinhos - Mercado**  
 車程半粒鐘有找  
 
-[![](https://c1.staticflickr.com/5/4330/36046017426_d44a3470bb_z.jpg)](https://c1.staticflickr.com/5/4330/36046017426_d44a3470bb_z.jpg)
+![](/images/portugal9.jpg)
 
 沿途仲有河景 x 海景睇  
 **Douro** x **Oceano Atlântico**  
 貴就貴過metro少少不過一定值回票價囉  
 
-[![](https://c1.staticflickr.com/5/4327/36085850615_cc3fbe021b_z.jpg)](https://c1.staticflickr.com/5/4327/36085850615_cc3fbe021b_z.jpg)
+![](/images/portugal9c2.jpg)
 
 **Mercado Municipal de Matosinhos**  
 特登嚟到呢個所謂必參觀嘅景點：街市  
 嗱～ 見到啦佢哋未開呀  
 又濕立立咁樣，點行啫出去搵嘢食好過啦～  
 
-[![](https://c1.staticflickr.com/5/4310/36086248585_5da925a290_z.jpg)](https://c1.staticflickr.com/5/4310/36086248585_5da925a290_z.jpg)
+![](/images/portugal9d1.jpg)
 
 專程嚟Matosinhos除咗因為個街市  
 梗係為咗呢度係連當地人都會做嘅嘢：**食！海！鮮！**  
 Lunch @**Dom Peixe**  
 而食海鮮就揀枝白酒啦（yes! Planalto again~）  
 
-[![](https://c1.staticflickr.com/5/4307/35696677640_c107fbd840_z.jpg)](https://c1.staticflickr.com/5/4307/35696677640_c107fbd840_z.jpg)
+![](/images/portugal9e0.jpg)
 
 食完就行吓**Rua de Brito Capelo**  
 睇到條metro路軌啦  
 搭呢個就無河景海景睇㗎喇  
 
-[![](https://c1.staticflickr.com/5/4291/35696812730_0249b4e0c2_z.jpg)](https://c1.staticflickr.com/5/4291/35696812730_0249b4e0c2_z.jpg)
+![](/images/portugal9e1.jpg)
 
 但係就有超級市場可以補充吓新鮮嘅維他命C（嘻嘻）  
 
-[![](https://c1.staticflickr.com/5/4316/36046865386_7e10d9e751_z.jpg)](https://c1.staticflickr.com/5/4316/36046865386_7e10d9e751_z.jpg)
+![](/images/portugal9f2.jpg)
 
 然後無嘢做㗎喇搭車返去囉  
 
-[![](https://c1.staticflickr.com/5/4328/36046865326_e6859902f1_z.jpg)](https://c1.staticflickr.com/5/4328/36046865326_e6859902f1_z.jpg)
+![](/images/portugal9f5.jpg)
 
 又巴士is a MUST啦個景靚到咁  
 
-[![](https://c1.staticflickr.com/5/4298/35247213074_3e741e6a22_z.jpg)](https://c1.staticflickr.com/5/4298/35247213074_3e741e6a22_z.jpg)
+![](/images/portugal9g.jpg)
 
 （**Igreja do Terço**）  
 返到去又係行吓行吓咁  
 
-[![](https://c1.staticflickr.com/5/4295/35247207544_7f5146e22b_z.jpg)](https://c1.staticflickr.com/5/4295/35247207544_7f5146e22b_z.jpg)
+![](/images/portugal9g2.jpg)
 
 慢慢行下咪日落囉 @**R. de 31 de Janeiro**  
 
-[![](https://c1.staticflickr.com/5/4293/35954279401_94bc4d7bb5_z.jpg)](https://c1.staticflickr.com/5/4293/35954279401_94bc4d7bb5_z.jpg)
+![](/images/portugal9h2.jpg)
 
 咁日落又即係晚飯時間  
 去食晚餐就最正常不過啦right？  

@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - Malaysia・Sabah]
 但那是老字號的舊街場白咖啡  
 不會不試一下吧～  
 
-[![](https://1.bp.blogspot.com/-UXIIGLwh3BM/XCiDaybkCKI/AAAAAAAADKE/_HuXl9cnKSo4Tb0bwIDj94INyW9rFlvjACLcBGAs/s640/27.jpg)](https://1.bp.blogspot.com/-UXIIGLwh3BM/XCiDaybkCKI/AAAAAAAADKE/_HuXl9cnKSo4Tb0bwIDj94INyW9rFlvjACLcBGAs/s1600/27.jpg)
+![](/images/sabah2c.jpg)
 
 白咖啡一般粉狀沖劑都是甜死不償命的  
 這杯加了冰，沒有那麼甜  
@@ -19,11 +19,11 @@ tags : [flavor - 飲！, travel - Malaysia・Sabah]
   
 肚子餓（自早餐後就沒再好好的吃過），吃點東西  
 
-[![](https://3.bp.blogspot.com/-h8h0hwLa-3o/XCiDgH2KjoI/AAAAAAAADKI/TiP6ycpHYQYB6MnSKZD4OOqPON4HWwWoACLcBGAs/s640/28.jpg)](https://3.bp.blogspot.com/-h8h0hwLa-3o/XCiDgH2KjoI/AAAAAAAADKI/TiP6ycpHYQYB6MnSKZD4OOqPON4HWwWoACLcBGAs/s1600/28.jpg)
+![](/images/sabah2c1.jpg)
 
 咖央厚切牛油多  
 
-[![](https://4.bp.blogspot.com/-v7qS-2D_yLA/XCiDlKTO5EI/AAAAAAAADKQ/8Q6kLN0uXzU8KxXl5c2eCAspMKJIQcPLQCLcBGAs/s640/29.jpg)](https://4.bp.blogspot.com/-v7qS-2D_yLA/XCiDlKTO5EI/AAAAAAAADKQ/8Q6kLN0uXzU8KxXl5c2eCAspMKJIQcPLQCLcBGAs/s1600/29.jpg)
+![](/images/sabah2c2.jpg)
 
 （近鏡）  
 烤得香脆的麥多士  
@@ -32,14 +32,14 @@ tags : [flavor - 飲！, travel - Malaysia・Sabah]
   
 不過，對於肚子餓的人豈能滿足？  
 
-[![](https://4.bp.blogspot.com/-u1Jx6-119mo/XCiDq0WHM-I/AAAAAAAADKU/nsg1c-BRqj8L1K9bq0nISrNnhtZifpHxwCLcBGAs/s640/30.jpg)](https://4.bp.blogspot.com/-u1Jx6-119mo/XCiDq0WHM-I/AAAAAAAADKU/nsg1c-BRqj8L1K9bq0nISrNnhtZifpHxwCLcBGAs/s1600/30.jpg)
+![](/images/sabah2c3.jpg)
 
 signature prawn meehoon mee  
 雖然樣子像laksa但這只是碗蝦麵  
 湯底很濃，蝦子也很鮮甜  
 不過蠻辣的所以都不太適合我  
 
-[![](https://4.bp.blogspot.com/-0dhGMlAIqf4/XCiDv95RQPI/AAAAAAAADKc/59xSfY78ZH854kuZiyD8PnqFuR31l3XcwCLcBGAs/s640/31.jpg)](https://4.bp.blogspot.com/-0dhGMlAIqf4/XCiDv95RQPI/AAAAAAAADKc/59xSfY78ZH854kuZiyD8PnqFuR31l3XcwCLcBGAs/s1600/31.jpg)
+![](/images/sabah2c4.jpg)
 
 signature rendang chicken rice  
 我怕辣，但超喜歡吃rendang  
@@ -56,4 +56,4 @@ rendang是傳統的印尼菜
   
 \-----------------------------------------------  
   
-延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)
+延伸閱讀：[沙巴密密食（5D4N）](https://hidie.net/sabah5d4n/)

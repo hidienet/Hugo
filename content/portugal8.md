@@ -8,9 +8,9 @@ tags : [travel - Portugal]
 
 一早就搭幾粒鐘火車（呵欠）  
 
-[![](https://c1.staticflickr.com/5/4297/35616872250_db2dab75a5_z.jpg)](https://c1.staticflickr.com/5/4297/35616872250_db2dab75a5_z.jpg)
+![](/images/portugal8a1.jpg)
 
-（**Douro**）  
+[Douro](https://hidie.net/portugal8a/)  
 Estação de São Bento → **Pinhão**  
 一落車就吸一大大大啖空氣  
 哇～～～～～ 啲空氣清！新！到！癲！  
@@ -20,25 +20,25 @@ Estação de São Bento → **Pinhão**
   
   
 
-[![](https://c1.staticflickr.com/5/4324/35233980243_d77d0e8afb_z.jpg)](https://c1.staticflickr.com/5/4324/35233980243_d77d0e8afb_z.jpg)
+![](/images/portugal8b1.jpg)
 
-Douro遊覽船，兜一個圈咁嘅  
+[Douro遊覽船](https://hidie.net/portugal8b/)，兜一個圈咁嘅  
 响船度遇到嚟呢度遊覽嘅當地人  
 好好客呀佢哋  
 分咗啲佢哋自己釀嘅白酒俾我哋一齊飲  
 cheers～～～！  
 
-[![](https://c1.staticflickr.com/5/4293/35204821634_5e8593b8a8_z.jpg)](https://c1.staticflickr.com/5/4293/35204821634_5e8593b8a8_z.jpg)
+![](/images/portugal8b.jpg)
 
 呃... 遊河先係重點（笑）  
 係今日嚟呢度要做嘅第一件事  
 
-[![](https://c1.staticflickr.com/5/4299/35910368541_1b91a4d4d1_z.jpg)](https://c1.staticflickr.com/5/4299/35910368541_1b91a4d4d1_z.jpg)
+![](/images/portugal8c2.jpg)
 
 遊完梗係會肚餓啦  
-食晏喇 @**Veladouro**  
+食晏喇 @[Veladouro](https://hidie.net/portugal8c/)  
 
-[![](https://c1.staticflickr.com/5/4312/35873696442_626614e680_z.jpg)](https://c1.staticflickr.com/5/4312/35873696442_626614e680_z.jpg)
+![](/images/portugal8d2.jpg)
 
 [Quinta do Bomfim](https://hidie.net/portugal8d/)  
 食飽飽，當然要做嘅第二件事  

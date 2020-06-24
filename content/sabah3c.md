@@ -8,11 +8,11 @@ tags : [travel - Malaysia・Sabah]
 
 今晚是在屋前開P  
 
-[![](https://2.bp.blogspot.com/-svJagM6ZvJM/XCh8a1Q6_vI/AAAAAAAADHc/46sYuF_5w58fq-CoOLhmZ6LThPLF87pZgCLcBGAs/s640/05.jpg)](https://2.bp.blogspot.com/-svJagM6ZvJM/XCh8a1Q6_vI/AAAAAAAADHc/46sYuF_5w58fq-CoOLhmZ6LThPLF87pZgCLcBGAs/s1600/05.jpg)
+![](/images/sabah3c.jpg)
 
 酒一堆  
 
-[![](https://2.bp.blogspot.com/-yGLfAPq2J4Y/XCh8g-ecOMI/AAAAAAAADHg/EuOHhf46EvA67W_JSNBC_5dgBIq0XcTmwCLcBGAs/s640/06.jpg)](https://2.bp.blogspot.com/-yGLfAPq2J4Y/XCh8g-ecOMI/AAAAAAAADHg/EuOHhf46EvA67W_JSNBC_5dgBIq0XcTmwCLcBGAs/s1600/06.jpg)
+![](/images/sabah3c1.jpg)
 
 沙巴的中菜到會  
 在香港的一般都是西式  
@@ -22,4 +22,4 @@ tags : [travel - Malaysia・Sabah]
   
 \-----------------------------------------------  
   
-延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)
+延伸閱讀：[沙巴密密食（5D4N）](https://hidie.net/sabah5d4n/)

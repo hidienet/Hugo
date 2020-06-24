@@ -71,7 +71,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 ![](https://0ho8tw.ch.files.1drv.com/y4mzZ2v8H1QYXn3Sdo9uHRABvK4u2BKBLwkcfGQWIK5PZKJomzeH1ujph4Gd9JCZcNjqHWsX0KENjng3x6J3wcyEZWmXgNZ49xQjRWFJaGPRrZXIoP490v0pQtj1qQIk-IcSWqyeIax85a5ZwZTNpFfJj_uxLabQXx6g1L2Z0mYW3Cxn9VxF5EI0uvO93FjbN68ND3KnhpKCi6LFO8qSzVbDw?width=660&height=372&cropmode=none)
 
 舊醬油味付鰹魚好正就梗㗎喇 \
-個鰹魚胃造嘅**酒盜**更更更吸引呢！
+個鰹魚胃造嘅**酒盗**更更更吸引呢！
 
 ![](https://0ho6tw.ch.files.1drv.com/y4mtuzHt7_AD2DlXBy6SKpoOiD6j4tYCKXOIvS6lXnSypPo1ez2dZjtDD2wDfT9U4jjpZ5Atr2b07APUuYu-h9vL1mMyJ6ACX5IHfEYK9TseuTkhkQdyG94o15as2yZlBIpEylZSsk0x9-ZZ70kU_KmqidY7Izs7fBWSed3rJSRV9mXuQi2gqjzjNXtH_mc_Rael0yR63tmXfj1_tVeemLxmg?width=660&height=372&cropmode=none)
 

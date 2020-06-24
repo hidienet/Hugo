@@ -8,10 +8,10 @@ tags : [travel - Malaysia・Sabah]
 
 這年最後一次的黃昏  
 
-[![](https://4.bp.blogspot.com/-hSvgi2Lm0DU/XCh5-BUXfvI/AAAAAAAADFg/JUng7oSZMxcAZMLjEocG-836lYTkGbtygCLcBGAs/s640/70.jpg)](https://4.bp.blogspot.com/-hSvgi2Lm0DU/XCh5-BUXfvI/AAAAAAAADFg/JUng7oSZMxcAZMLjEocG-836lYTkGbtygCLcBGAs/s1600/70.jpg)
+![](/images/sabah4e.jpg)
 
 byebye grandpa sun，see u tomorrow～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[沙巴密密食（5D4N）](http://www.hidie.net/2014/01/5d4n.html)
+延伸閱讀：[沙巴密密食（5D4N）](https://hidie.net/sabah5d4n/)

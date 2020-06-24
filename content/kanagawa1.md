@@ -76,11 +76,11 @@ tags : [lifestyle - 逃離852, travel - 日本（関東東海道）・ 相模神
 
 Mmm... 今日個天氣嘛...  
 
-![](https://odeqwq.ch.files.1drv.com/y4m3FM4QDQEWh9nk5q0Uz1TXWy0CeoKG4ggR5MIbmrntQry3-FUpuEOkzw2HjJlR9R4pR3AdiI1dcZwGSlXNxy5UBHauT5auTv3GjuiWSnhSxOgWY9najlNybzivuEYLX8mfUOiVbQC7ZHQfe4LXIK7twt4pwi32OlCYNptt6YmMCHcoViXQxw7BRBtMSH6Lehm_0rNumjx-koaSumFo8Zr6g?width=371&height=660&cropmode=none)
+![](/images/kanagawa1g2.jpg)
 
 照行山囉（嘻）  
 
-![](/images/kanagawa1g2.jpg)
+![](/images/kanagawa1g8.jpg)
 
 海天一色... 灰...  
 

@@ -8,28 +8,23 @@ tags : [travel - Portugal]
 
 風和日麗好日子呢～  
 
-[![](https://c1.staticflickr.com/5/4297/35129235123_f80f6130bd_z.jpg)](https://c1.staticflickr.com/5/4297/35129235123_f80f6130bd_z.jpg)
+![](/images/portugal6b.jpg)
 
 **Aqui Nasceu Portugal**
 
-（Portugal Was Born Here）
-
+（Portugal Was Born Here）  
 所以要嚟一嚟**Guimarães**呢度睇吓
 
-[![](https://c1.staticflickr.com/1/784/40857967892_a8b2b2d3df_z.jpg)](https://c1.staticflickr.com/1/784/40857967892_a8b2b2d3df_z.jpg)
+![](/images/portugal6b1.jpg)
 
-**Largo do Toural**
-
+**Largo do Toural**  
 係㗎啦，呢度一帶都係保留呢啲建築
 
-[![](https://c1.staticflickr.com/1/820/27029266168_d40c5231b5_z.jpg)](https://c1.staticflickr.com/1/820/27029266168_d40c5231b5_z.jpg)
+![](/images/portugal6b2.jpg)
 
-繼續响周圍附近兜兜吓
-
-啲餐廳係就係擺咗好多枱櫈
-
-但係其實宜家係呢度嘅旅遊淡季
-
+繼續响周圍附近兜兜吓  
+啲餐廳係就係擺咗好多枱櫈  
+但係其實宜家係呢度嘅旅遊淡季  
 仲要係平日嘛所以冇乜人
 
   

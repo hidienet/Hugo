@@ -132,24 +132,24 @@ but今日嘛... 都叫見到啲黑影嘅...
 ![](/images/kanagawa1i.jpg)
 
 冇咩興趣睇拍賣 & 條魚都食咗啦  
-去間古老樣嘅酒店飲返杯先 @[山田屋酒店](https:hidie.net/kanagawa1i/)  
+去間古老樣嘅酒店飲返杯先 @[山田屋酒店](https://hidie.net/kanagawa1i/)  
 兩隻都係神奈川限定販売出品  
 **「寶CRAFT」＜小田原うめ＞** - 清爽嘅梅味有氣liqueur  
 **湘南ゴールド サワー** - 酸爽清甜帶微苦嘅檸檬味汽酒  
 
-![](https://bl2g5g.ch.files.1drv.com/y4mDOyYPvuJSykF_VBH1ti9yjsRYBjYCtZ6QbBYI27a0Qg1kevleJoJI71b9qyaYWvEO5bYJyeFAOEEAeXdMSeuwu6iPB_ukBEOKuzPkA3ldktE12ZfzM3UPD454iL0YG12npQuBtwg0M6eRR_-3WpYbcBDoanzv38ly4WDEKA7eFHoAJvVRQhbYP0tZ1RURhWbMowjYRYwZrOgkMn-fYYrcQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa1j0.jpg)
 
 食嗰兩三碟吞拿魚又點會滿足  
 落咗少少格又再去食過喇  
 搭個火車去**三浦海岸駅**  
 
-![](https://nderwq.ch.files.1drv.com/y4mp9G8Wm_9ob0neoQe-3tjohyeYrM-aGbUg7nKcpTEYBbxWvBs-8HEZm3TzXjBl0b8tsL9w9NT4jyTI87hW4co4fxF7RsrfrBLPXtw3KaxkEbXdp_apqYeRLOmQIVx4yS2KyU6mRBkE6J4JLqIaavHbLjHZCGbXk6h-0B0Hn6Z2Oy4Uvzh9DLtfUHO_kNQnlHkaxf7tIqQQbrNmePT8StffQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa1j.jpg)
 
-去到tabelog好高分嘅**廻転寿司 海鮮**食（心）  
+去到tabelog好高分嘅[廻転寿司 海鮮](https://hidie.net/kanagawa1j/)食寿司（心）  
 
-![](https://ltemwq.ch.files.1drv.com/y4mLZVaApAQhyK1NJJsMYc4byDZluBRlaMk-WQygp0IMIbAXGLMgXLVfvP9PR2orcyMKcgqa9RfeqGslgKgzHfeXeQGdygYJ-l5ZbPVgrDSWCIFpB2l5_dRlT7PpgLni9syp4gMa8gYalfB8USSF2tTQX43eSA9jDVlTPr7I-RgVUXDNRHrVwHXWOv1KtIHAXn6HxDq1EMyVPFeZ1Guhr7S0A?width=371&height=660&cropmode=none)
+![](/images/kanagawa1j3.jpg)
 
-**東光**  
+**東光 大吟釀**  
 刺身配大吟釀開心過飲啤酒  
 
 ![](https://a12o5g.ch.files.1drv.com/y4m8EJqER33IICDktWpHDOME1QQN2oQTIqgQwRTavr4DH1apu6aNHfOC53w_gmGN8kihsFwKoKE6ktKWthsA07ksrUfvSHo64nyQA15ufE3vjFUES2neogVQEmGwK1DHHp37xVVXP9uz7IP4sqgslYtQrzyCufI5EZzk19hoVLbxrq-lR2-PZjuajMkTeNHViAxOaAlk6BAiB1UKjwz7edqPA?width=660&height=371&cropmode=none)

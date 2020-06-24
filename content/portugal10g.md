@@ -8,7 +8,7 @@ tags : [travel - Portugal]
 
 用五臟廟去尋找旅行的意義...  
 
-![](https://c1.staticflickr.com/5/4296/35932962042_a8359d7c80_z.jpg)
+![](/images/portugal10g1.jpg)
 
 係呀！又係時候食癲喇～  
   
@@ -24,7 +24,7 @@ tags : [travel - Portugal]
 係強烈鮮甜嘅蝦膏味呀該煨  
 香到爆囉咪就係  
 
-![](https://c1.staticflickr.com/1/974/27258778657_9ff4dc7c56_z.jpg)
+![](/images/portugal10g2.jpg)
 
 去法國就食高檔嘅花瓜（鴨鵝膶）  
 呢度就有親民好多炸豬潤  
@@ -34,14 +34,14 @@ tags : [travel - Portugal]
 濃得嚟冇豬臊味同血腥味  
 唯一唔滿意係連埋薯條就份量太多  
 
-![](https://c1.staticflickr.com/1/909/27258777487_1df65c1984_z.jpg)
+![](/images/portugal10g3.jpg)
 
 諗住試吓兜飯仔  
 點知黐線㗎個焗海鮮飯駛唔L駛咁大兜呀？  
 衰得佢仲要啲海鮮夠鮮  
 汁又教得香啲飯焗得粒粒分明  
 
-![](https://c1.staticflickr.com/1/829/27258776537_6b9c98b70c_z.jpg)
+![](/images/portugal10g4.jpg)
 
 以為已經收手？未！  
 因為唔知呢度啲嘢係咁大碟  

@@ -9,28 +9,28 @@ tags : [travel - Portugal]
 除咗雞之外，Barcelos呢度都仲有嘢睇吓嘅...  
   
 
-[![](https://c1.staticflickr.com/5/4253/35748373791_b5ec9f9daa_z.jpg)](https://c1.staticflickr.com/5/4253/35748373791_b5ec9f9daa_z.jpg)
+![](/images/portugal5e.jpg)
 
 **Templo do Senhor Bom Jesus da Cruz**  
 响1705年興建1710年竣工嘅教堂  
 係為咗保護一個响1504年已經有嘅十字架嘅  
 
-[![](https://c1.staticflickr.com/5/4650/39717950725_17c85ca536_z.jpg)](https://c1.staticflickr.com/5/4650/39717950725_17c85ca536_z.jpg)
+![](/images/portugal5e1.jpg)
 
 商店街一條  
 
-[![](https://c1.staticflickr.com/5/4782/39718134935_eab76ba9bc_z.jpg)](https://c1.staticflickr.com/5/4782/39718134935_eab76ba9bc_z.jpg)
+![](/images/portugal5e2.jpg)
 
 沿路一直上就見到呢大～ 座～ 嘢  
 佢叫**Câmara Municipal de Barcelos**  
 即係city hall啦  
 
-[![](https://c1.staticflickr.com/5/4699/40613367611_b13618560f_z.jpg)](https://c1.staticflickr.com/5/4699/40613367611_b13618560f_z.jpg)
+![](/images/portugal5e3.jpg)
 
 **Jardim da Igreja Matriz de Barcelos**  
 花園一個，加條柱咁啦  
 
-[![](https://c1.staticflickr.com/5/4285/35936479345_df72b3bf5a_z.jpg)](https://c1.staticflickr.com/5/4285/35936479345_df72b3bf5a_z.jpg)
+![](/images/portugal5e4.jpg)
 
 **Coreto no Jardim Velho de Barcelos**  
 （舊）花園嘅音樂演奏臺  

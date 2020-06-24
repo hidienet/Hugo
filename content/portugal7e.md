@@ -8,14 +8,14 @@ tags : [travel - Portugal]
 
 食飽午飯，搭metro去差唔多Porto邊皮嘅**Santa Clara**  
 
-[![](https://c1.staticflickr.com/5/4316/35615048640_d6b285d366_z.jpg)](https://c1.staticflickr.com/5/4316/35615048640_d6b285d366_z.jpg)
+![](/images/portugal7e.jpg)
 
 一落車就已經見到呢條好～～ 長～～～ 嘅引水道**Aqueduct of Santa Clara**  
 17世紀嘅產物  
 全場4公里一共有999個arch  
 係葡萄牙第二長  
 
-[![](https://c1.staticflickr.com/1/792/27467164368_275f0a5d6e_z.jpg)](https://c1.staticflickr.com/1/792/27467164368_275f0a5d6e_z.jpg)
+![](images/portugal7e1.jpg)
 
 黐住條引水道見到呢座嘢  
 **Igreja de Santa Clara**  

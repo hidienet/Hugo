@@ -59,10 +59,10 @@ Pinhão → **Estação de São Bento**
   
   
 
-[![](https://c1.staticflickr.com/5/4295/35655447010_df5389e448_z.jpg)](https://c1.staticflickr.com/5/4295/35655447010_df5389e448_z.jpg)
+[![](/images/portugal8e.jpg)
 
 舟車勞頓完，又係食嘢嘅時間喇  
-dinner @**Restaurante Churrasqueira Brasil**  
+dinner @[Restaurante Churrasqueira Brasil](https://hidie.net/portugal8e/)  
   
   
 咦？有一日喇...  

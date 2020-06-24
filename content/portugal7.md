@@ -9,32 +9,32 @@ tags : [travel - Portugal]
 是日天陰，晏啲仲大風雨中怒海狂奔  
 但係無阻成個似大晴天咁嘅興奮心情！  
 
-[![](https://c1.staticflickr.com/5/4322/35191017453_c7b9edc4bb_z.jpg)](https://c1.staticflickr.com/5/4322/35191017453_c7b9edc4bb_z.jpg)
+![](/images/portugal7a.jpg)
 
 嗱～ 美好嘅早晨梗係飲杯正嘢  
 Special Moka @**Jeronymo**  
 
-[![](https://c1.staticflickr.com/5/4304/35163060434_8ef1cff25a_z.jpg)](https://c1.staticflickr.com/5/4304/35163060434_8ef1cff25a_z.jpg)
+![](/images/portugal7b.jpg)
 
 （**Igreja Monumento de São Francisco**）  
 食飽飽就行去教堂參觀  
 閃閃閃，裡面好鬼閃  
 教會真係大把錢㗎！  
 
-[![](https://c1.staticflickr.com/5/4310/35163485804_44411d559b_z.jpg)](https://c1.staticflickr.com/5/4310/35163485804_44411d559b_z.jpg)
+![](/images/portugal7c.jpg)
 
 （Urban Market By Portugal Lovers）  
 參觀完教堂行去食lunch之際  
 見到有限時市集，去兜個圈先  
 
-[![](https://c1.staticflickr.com/5/4314/35192842573_4d376cd6d0_z.jpg)](https://c1.staticflickr.com/5/4314/35192842573_4d376cd6d0_z.jpg)
+![](/images/portugal7d.jpg)
 
 然後，當然係食嘢啦  
 終於响**Antunes**食到羊！  
 值得飲番杯慶祝吓啦係咪？  
 （係咪都有酒㗎啦係咪？）  
 
-[![](https://c1.staticflickr.com/5/4316/35615048640_d6b285d366_z.jpg)](https://c1.staticflickr.com/5/4316/35615048640_d6b285d366_z.jpg)
+![](/images/portugal7e.jpg)
 
 （**Igreja de Santa Clara**）  
 搭metro去差唔多Porto邊皮嘅Santa Clara  
@@ -43,33 +43,33 @@ metro：São Bento → **Santa Clara**
   
   
 
-[![](https://c1.staticflickr.com/5/4314/35962849656_11525174b8_z.jpg)](https://c1.staticflickr.com/5/4314/35962849656_11525174b8_z.jpg)
+![](/images/portugal7f.jpg)
 
 行吓呢個小鎮仔：**Vila do Conde**  
 
-[![](https://c1.staticflickr.com/5/4302/36004411935_a7276b5f88_z.jpg)](https://c1.staticflickr.com/5/4302/36004411935_a7276b5f88_z.jpg)
+![](/images/portugal7.jpg)
 
 之後就係嚟呢樹嘅重頭戲...  
 **大！西！洋！**  
 
-[![](https://c1.staticflickr.com/5/4309/35615495600_2ff6bb410b_z.jpg)](https://c1.staticflickr.com/5/4309/35615495600_2ff6bb410b_z.jpg)
+![](/images/portugal7g2.jpg)
 
 啲風呀浪呀雨呀加加埋埋  
 就係冇可能行到出去篤篤位嘅燈塔  
 （嚟旅個行啫唔駛搵命博嘅）  
 
-[![](https://c1.staticflickr.com/5/4304/35615596880_96d06bb82b_z.jpg)](https://c1.staticflickr.com/5/4304/35615596880_96d06bb82b_z.jpg)
+![](/images/portugal7g.jpg)
 
 吼吼吼！！！  
 冇～ 帶～ 遮～ 呀～～～  
 要搵地方避雨（等停雨）  
 
-[![](https://c1.staticflickr.com/5/4306/35165051714_6e07c8472d_z.jpg)](https://c1.staticflickr.com/5/4306/35165051714_6e07c8472d_z.jpg)
+![](/images/portugal7g4.jpg)
 
 同啲海鷗一齊見證停雨喇  
 （排排企好整齊，仲成地雀屎）  
 
-[![](https://c1.staticflickr.com/5/4300/36004960355_436020ea6a_z.jpg)](https://c1.staticflickr.com/5/4300/36004960355_436020ea6a_z.jpg)
+![](/images/portugal7h.jpg)
 
 ( ﾟдﾟ)   
 入咗呢間個外表好似好驚訝咁嘅  
@@ -81,14 +81,14 @@ metro：Santa Clara → **São Bento**
   
   
 
-[![](https://c1.staticflickr.com/5/4317/36005268525_d6d1727981_z.jpg)](https://c1.staticflickr.com/5/4317/36005268525_d6d1727981_z.jpg)
+![](/images/portugal7i.jpg)
 
 返到嚟São Bento唔早唔晏  
 食吓雪糕都好吖～  
 去呢間叫**Ice Lover**食gelados  
 右下泥黃色嘅係flower salt味，好特別呢～  
 
-[![](https://c1.staticflickr.com/5/4309/35963958076_45648ff1ed_z.jpg)](https://c1.staticflickr.com/5/4309/35963958076_45648ff1ed_z.jpg)
+![](/images/portugal7j.jpg)
 
 又又又唔係太肚餓喇  
 夜啲啲宵夜時間先去食 @**All in Porto**  

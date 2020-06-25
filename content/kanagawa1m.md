@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day1：二代目ぐるめ亭 - 湘南丼'
 date: 2020-06-27T12:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa1m.jpg"]
-tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor-行膳積腹, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
 敵唔過新鮮魚生嘅誘惑...

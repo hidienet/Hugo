@@ -203,27 +203,27 @@ but今日嘛... 都叫見到啲黑影嘅...
 
 不過唔識打機又唔肚餓，行吓影吓相就走喇  
 
-![](https://bf2f5g.ch.files.1drv.com/y4mEdWFepoVcLkQ8YAqoh-Rxq0URszYM0KXpPU98zwd2GaJ8_0Pq9xBQtjEjaUjaXfkImPFwbCSu0crJKMtSPd8ds86jIBbz_iAYnqHn-88pOchxHPwlVY11yMYUmtO1hqWiQi-JpQRAU4dWA5JVS4Mn2lfzE6me0NpvwHvZMRYfIvBqx9kK5uM1WI9ydXsoIdQah6k07q4eLpwl5QI6r54QA?width=371&height=660&cropmode=none)
+![](/images/kanagawa1o1.jpg)
 
-宵夜，先食甜品  
+宵夜，先[食甜品](https://hidie.net/kanagawa1o/)  
 **Futaba チョコバナナ**  
 朱古力脆皮 x 香甜香蕉味雪條  
 
-![](https://bf2i5g.ch.files.1drv.com/y4mbtg_ZW497PeW06XRUlXMRqUlii_Pmx-3h-3J9g5Cm9qITNsHKoO-moBz9gP-7CPJ2ZMloVLWdpTVXEPfMVPExrzzYVD_8aJZLZgfaz-0nL0jR9oSfqkKRn9JBFr4Ob4ZgU-Yo5JVMocfxZtFyU0el76rBowr2HPRhDi-eILTsREGz-CHLkLuzcasqyHmY-BMOp9eWXmdXUe44ZKgrBrNjQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa1o.jpg)
 
 非常好味嘅**morinaga ピノ ストロベリームーン**  
 pino嘅質素一向都好高  
 再加埋莓 & 荔枝嘅味咁鬼香甜  
 日日食都OK啊啊啊～  
 
-![](https://bf2m5g.ch.files.1drv.com/y4m3bG-ybfU0CFJYLTe6wk0ryMy-2AuHHvIOpRto5y0ayOuc6EfJq9C8-ESa6XbBJV-mSAYF_4HEkGQSmMtchGsw8I9JcN97mk5XigO9SCoDNisMGmTalY35ik5Y2hr-CmCgkBdEOxxEyKMZ2VWWJ42Yc0_oEhvUXyFCQiUYeG9V2IjrCIcdSq4Hcr_deTgvY9EzvrFqE66SGSAp8Ar5YlYcw?width=371&height=660&cropmode=none)
+![](/images/kanagawa1p1.jpg)
 
 然而今日嘅酒精含量有啲低  
-因此臨瞓前都係要隊返杯  
+因此臨瞓前都係要[隊返杯](https://hidie.net/kanagawa1p/)  
 **Suntory The Premium Malt's Deep Aroma (心和む熟成香)**  
 好夠氣，相比麥味其實焦糖味同果味芳郁啲  
 
-![](https://bf2l5g.ch.files.1drv.com/y4moDexWq98UU8vuHD7Od3RKLcRavm5F9QQHxdH9ung4p6ChVeB5GT4KbkzCMIgdKuogsHQr-MVob4pX8mntuNdVnr2mjKbFtk7lY-H-TG4LFf4XpjGyBrhRbZ5hD0FbE2tVh121b163fPV5Wh_XLDlokYEWpQdU8yY42ZqhSTpbDdmoeeVhz0_ba0dRon9NlMKFr_b0XKCt7KAWVFT7gDHyw?width=371&height=660&cropmode=none)
+![](/images/kanagawa1p1.jpg)
 
 另一隻都係**Suntory**嘅，係**七仔Premium Gold**版本  
 **Suntory 金のビール**  

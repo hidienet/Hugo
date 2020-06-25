@@ -2,7 +2,7 @@
 title: '[神奈川衝撞旅] Day1：Futaba チョコバナナ & morinaga ピノ ストロベリームーン'
 date: 2020-06-30T07:30:00.000+08:00
 draft: false
-images: ["/images/kanagawa1m.jpg"]
+images: ["/images/kanagawa1.jpg"]
 tags : [flavor-螞蟻族, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 

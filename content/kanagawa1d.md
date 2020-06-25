@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day1：まぐろ工房 清月 - マグレーヌ'
 date: 2020-06-18T05:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa1d.jpg"]
-tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor-螞蟻族, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
 食完少少吞拿魚就周圍兜吓

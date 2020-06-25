@@ -15,7 +15,7 @@ tags : [flavor-螞蟻族, travel-日本関東東海道-相模神奈川三浦川�
 好夠氣，相比麥味其實焦糖味同果味芳郁啲  
 甜甜嘅味道真係唔會輸比一般嘅甜品  
 
-![](/images/kanagawa1p1.jpg)
+![](/images/kanagawa1p.jpg)
 
 另一隻都係**Suntory**嘅，係**七仔Premium Gold**版本  
 **Suntory 金のビール**  

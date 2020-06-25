@@ -78,7 +78,7 @@ Mmm... 今日個天氣嘛...
 
 ![](/images/kanagawa1g2.jpg)
 
-照行山囉（嘻）  
+照行山囉 @[城ヶ島ハイキングコース](https://hidie.net/kanagawa1g/)  
 
 ![](/images/kanagawa1g4.jpg)
 

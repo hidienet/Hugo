@@ -1,5 +1,5 @@
 ---
-title: '[神奈川衝撞旅] Day1：Suntory - Deep Aroma & 金のビール'
+title: '[神奈川衝撞旅] Day1：Suntory - The Premium Malt’s Deep Aroma & 金のビール'
 date: 2020-06-30T12:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa1p.jpg"]

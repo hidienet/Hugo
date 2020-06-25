@@ -16,7 +16,7 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ![](/images/kanagawa1n2.jpg)
 
 當响九龍城遇見金田一  
-鋪真係唔知邊個死得
+今鋪真係唔知邊個死得
 
 ![](/images/kanagawa1n3.jpg)
 

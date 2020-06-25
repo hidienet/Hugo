@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day1：山田屋酒店 - 「寶CRAFT」＜小田原
 date: 2020-06-25T11:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa1i.jpg"]
-tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor-飲, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
 冇咩興趣睇拍賣 & 條魚都食咗啦  

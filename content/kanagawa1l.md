@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day1：米沢 琥珀堂 - ローストビーフ丼'
 date: 2020-06-27T07:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa1l.jpg"]
-tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor-行膳積腹, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
 既然行緊商場  

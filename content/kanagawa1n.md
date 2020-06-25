@@ -32,20 +32,19 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa1n6.jpg)
 
-喪搣又順貼嘅街招們
+喪搣又喪貼嘅街招們
 
 ![](/images/kanagawa1.jpg)
 
-要衝出香港先搵得返舊香港  
-因為呢度將成個以前嘅九龍城寨搬過嚟啊！
+要衝出香港先搵得返舊香港
 
 ![](/images/kanagawa1n7.jpg)
 
-忍唔住周圍行吓影吓
+因為呢度將成個以前嘅九龍城寨搬過嚟啊！
 
 ![](/images/kanagawa1n8.jpg)
 
-僭建同啲衫周圍晾
+周圍行吓影吓先
 
 ![](/images/kanagawa1n9.jpg)
 

@@ -1,5 +1,5 @@
 ---
-title: '[神奈川衝撞旅] Day1：'
+title: '[神奈川衝撞旅] Day1：三浦海岸 → 三崎口 → 川崎'
 date: 2020-06-26T10:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa1k.jpg"]
@@ -14,7 +14,7 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa1k.jpg)
 
-三浦海岸駅 → **三崎口駅**（拎返行李） → 川崎
+三浦海岸駅 → **三崎口駅**（拎返行李） → 川崎駅
 
 ![](/images/kanagawa1k2.jpg)
 

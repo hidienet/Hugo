@@ -9,17 +9,17 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 食完tea，再行吓行吓shopping吓  
 咁又到食晚飯嘅時候喇  
 
-[![](https://c1.staticflickr.com/5/4595/25581134298_77c11c0653_z.jpg)](https://c1.staticflickr.com/5/4595/25581134298_77c11c0653_z.jpg)
+![](/images/portugal4l1.jpg)
 
 先嚟一客熱辣辣香脆脆嘅蒜蓉包  
 鹹香嘅牛油蒜蓉味，又夠脆口  
 完全欲罷不能呢  
 
-[![](https://c1.staticflickr.com/5/4254/35817617216_4535653413_z.jpg)](https://c1.staticflickr.com/5/4254/35817617216_4535653413_z.jpg)
+![](/images/portugal4l2.jpg)
 
 今晚飲乾身嘅白酒  
 
-[![](https://c1.staticflickr.com/5/4736/39451303251_0ed5035157_z.jpg)](https://c1.staticflickr.com/5/4736/39451303251_0ed5035157_z.jpg)
+![](/images/portugal4l3.jpg)
 
 小食方面有葡式炸物  
 係馬介休球 x 牛肉角嘅組合  
@@ -27,13 +27,13 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 令到個鹹魚（馬介休）鮮香得嚟唔會死鹹  
 牛肉肉味香絕對唔會被馬介休比下去  
 
-[![](https://c1.staticflickr.com/5/4601/39451281641_114422b937_z.jpg)](https://c1.staticflickr.com/5/4601/39451281641_114422b937_z.jpg)
+![](/images/portugal4l.jpg)
 
 主菜：焗豬踭（解剖中 by好好笑容嘅叔叔）  
 原本係慕呢度嘅羊肉名而嚟  
 點知今晚冇整，冇得食然後就推薦呢款  
 
-[![](https://c1.staticflickr.com/5/4635/39420166002_3744358d6a_z.jpg)](https://c1.staticflickr.com/5/4635/39420166002_3744358d6a_z.jpg)
+![](/images/portugal4l4.jpg)
 
 哇哇哇！真係冇介紹錯  
 啲肉又腍又滑  

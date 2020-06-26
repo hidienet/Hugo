@@ -8,35 +8,35 @@ tags : [travel - Portugal]
 
 由Livraria Lello行去Casa da Música  
 
-[![](https://c1.staticflickr.com/5/4646/27324536869_affcb26645_z.jpg)](https://c1.staticflickr.com/5/4646/27324536869_affcb26645_z.jpg)
+![](/images/portugal4f1.jpg)
 
 一出就係教堂**Igreja do Carmo**  
 
-[![](https://c1.staticflickr.com/5/4589/39101744341_ec98881810_z.jpg)](https://c1.staticflickr.com/5/4589/39101744341_ec98881810_z.jpg)
+![](/images/portugal4f2.jpg)
 
 佢嘅隔離係**Fonte dos Leões**  
 
-[![](https://c1.staticflickr.com/5/4635/27324537629_6cbe8b8463_z.jpg)](https://c1.staticflickr.com/5/4635/27324537629_6cbe8b8463_z.jpg)
+![](/images/portugal4f3.jpg)
 
 轉入R. Prof. Vicente José de Carvalho後  
 就見到**Museu do Centro Hospitalar do Porto**  
 擺醫學嘢嘅博物館  
 
-[![](https://c1.staticflickr.com/5/4738/27324537939_9bf70bf79d_z.jpg)](https://c1.staticflickr.com/5/4738/27324537939_9bf70bf79d_z.jpg)
+![](/images/portugal4f4.jpg)
 
 黐住間博物館係醫院  
 **Hospital Santo António - edifício neoclássico**  
 
-[![](https://c1.staticflickr.com/5/4642/27324537399_71f18de2ef_z.jpg)](https://c1.staticflickr.com/5/4642/27324537399_71f18de2ef_z.jpg)
+![](/images/portugal4f5.jpg)
 
 仲有葡萄牙中最熟悉不過嘅磚牆  
 
-[![](https://c1.staticflickr.com/5/4208/35816676336_2646ce0594_z.jpg)](https://c1.staticflickr.com/5/4208/35816676336_2646ce0594_z.jpg)
+![](/images/portugal4f6.jpg)
 
 再行經闊闊地又斜斜地嘅大街Rua de Júlio Dinis  
 就到**Praça Mouzinho de Albuquerque**公園  
 
-[![](https://c1.staticflickr.com/5/4216/35857176165_f5c9d3ae03_z.jpg)](https://c1.staticflickr.com/5/4216/35857176165_f5c9d3ae03_z.jpg)
+![](/images/portugal4f.jpg)
 
 佢嘅對面就係**Casa da Música**喇！  
   

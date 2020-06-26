@@ -11,44 +11,44 @@ tags : [travel - Portugal]
   
 途步踏上離地85米嘅Ponte Luís I上層...  
 
-[![](https://c1.staticflickr.com/5/4579/24761279458_b75086dd0d_z.jpg)](https://c1.staticflickr.com/5/4579/24761279458_b75086dd0d_z.jpg)
+![](/images/portugal3b1.jpg)
 
 痴線㗎駛唔駛咁大霧呀呀呀？  
 唔好話對面岸吖  
 就連條橋斷咗都睇唔到囉！  
 
-[![](https://c1.staticflickr.com/5/4265/35837159435_2500b94626_z.jpg)](https://c1.staticflickr.com/5/4265/35837159435_2500b94626_z.jpg)
+![](/images/portugal3b2.jpg)
 
 咁都要行㗎，行啦...  
 
-[![](https://c1.staticflickr.com/5/4537/38601443352_06e1cde7cf_z.jpg)](https://c1.staticflickr.com/5/4537/38601443352_06e1cde7cf_z.jpg)
+![](/images/portugal3b3.jpg)
 
 對面岸Vila Nova de Gaia山頂嘅朋友你哋好  
 雖然完全睇你哋唔到！  
 
-[![](https://c1.staticflickr.com/5/4584/38633919471_b6ba7818d4_z.jpg)](https://c1.staticflickr.com/5/4584/38633919471_b6ba7818d4_z.jpg)
+![](/images/portugal3b.jpg)
 
 橋嘅上層就係可以與metro同行  
 覺唔覺得架車仔好可愛？  
 
-[![](https://c1.staticflickr.com/5/4526/38577664016_f4f63b3eb0_z.jpg)](https://c1.staticflickr.com/5/4526/38577664016_f4f63b3eb0_z.jpg)
+![](/images/portugal3b4.jpg)
 
 Gaia呢邊嘅纜車**Teleférico de Gaia**  
 就咁剷落山，感覺好呃錢囉  
 
-[![](https://c1.staticflickr.com/5/4550/37916355854_18b680aef3_z.jpg)](https://c1.staticflickr.com/5/4550/37916355854_18b680aef3_z.jpg)
+![](/images/portugal3b5.jpg)
 
 差唔多過完橋向後望返Porto嗰邊...  
 都係好大霧囉！  
 
-[![](https://c1.staticflickr.com/5/4258/35705097101_66a823c32c_z.jpg)](https://c1.staticflickr.com/5/4258/35705097101_66a823c32c_z.jpg)
+![](/images/portugal3b6.jpg)
 
 終於過完橋喇（thanks god）  
 條橋鬼死咁高又鬼死咁大霧  
 行緊嘅時候真係驚驚地  
 （隻衰tak仲要突然响後面搖我，媽呀真係嚇L死）  
 
-[![](https://c1.staticflickr.com/5/4545/38577762296_80836edf2b_z.jpg)](https://c1.staticflickr.com/5/4545/38577762296_80836edf2b_z.jpg)
+![](/images/portugal3b7.jpg)
 
 是但啦，過咗河就係神仙  
   

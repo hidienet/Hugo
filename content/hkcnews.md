@@ -10,13 +10,13 @@ tags : [amusement-exhibition]
 
 ![](/images/hkcnews.jpg)
 
-**亼亼亼「衝匆」新聞攝影展亼亼亼** 
+**亼亼亼「衝匆」新聞攝影展亼亼亼**   
 由眾新聞工會同眾新聞主辦  
 記錄上年六月至七月一嘅香港歷史
 
 ![](/images/hkcnews1.jpg)
 
-攝影展裡面將三十九嘅相
+攝影展裡面將三十九嘅相...
 
 ![](/images/hkcnews4.jpg)
 
@@ -28,11 +28,11 @@ tags : [amusement-exhibition]
 
 ![](/images/hkcnews2.jpg)
 
-對立
+**對立**
 
 ![](/images/hkcnews3.jpg)
 
-人民
+**人民**
 
 ![](/images/hkcnews5.jpg)
 
@@ -48,25 +48,25 @@ tags : [amusement-exhibition]
 
 ![](/images/hkcnews7.jpg)
 
-心聲 & 議會
+**心聲** & **議會**
 
 ![](/images/hkcnews8.jpg)
 
-前路
+**前路**
 
 ![](/images/hkcnews9.jpg)
 
 咁啱係前實習記者黃思銘嘅分享時間  
 佢由上年6月4日返半年實習  
 從64三十年、6月9至7月1到理大都實地採訪  
-深刻嘅經歷，逼使要急速長大  
+深刻嘅經歷，逼使佢要急速長大  
 幸而佢畢業後都仲想投身記者行列成為歷史記錄者
 
 
-個展覽仲未完㗎！  
+個展覽仲未完㗎！！！  
 雖然啲相都已經經由手機電腦  
 甚至睇live嘅片都睇唔少  
-但實際去睇每張實體相嘅溫度又會有另一番體會呢...  
+但實際去睇每張實體相嘅溫度又會有另一番震撼力呢...  
 
 ↓↓↓
 

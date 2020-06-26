@@ -8,7 +8,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - Portugal]
 
 食個靚tea先！  
 
-[![](https://c1.staticflickr.com/5/4286/35817486656_03b28d8203_z.jpg)](https://c1.staticflickr.com/5/4286/35817486656_03b28d8203_z.jpg)
+![](/images/portugal4k.jpg)
 
 睇佢個門面就知道又係舊嘢啦  
 唔算非常耐嘅，1926年開業啫未夠一百年  
@@ -16,31 +16,31 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - Portugal]
 以前就係啲知識份子呀藝術家呀名媛鍾意嚟「蒲」  
 近代啲咪又係阿JK Rowling囉  
 
-[![](https://c1.staticflickr.com/5/4635/38721360944_644afea9ff_z.jpg)](https://c1.staticflickr.com/5/4635/38721360944_644afea9ff_z.jpg)
+![](/images/portugal4k1.jpg)
 
 長形嘅空間仲有大大塊長鏡  
 粉色牆身、木框加埋一舊二舊詭異嘅石膏雕像  
 
-[![](https://c1.staticflickr.com/5/4593/38721359854_333c9f91cc_z.jpg)](https://c1.staticflickr.com/5/4593/38721359854_333c9f91cc_z.jpg)
+![](/images/portugal4k2.jpg)
 
 望啲雕像個樣  
 真係笑得令人心寒  
 
-[![](https://c1.staticflickr.com/5/4679/27652047289_632afd1b25_z.jpg)](https://c1.staticflickr.com/5/4679/27652047289_632afd1b25_z.jpg)
+![](/images/portugal4k3.jpg)
 
 兩邊牆嘅雕像對望住  
 堅有少少「嚇死人咩！個心離一離！」嘅感覺  
 
-[![](https://c1.staticflickr.com/5/4643/38721358904_8333cc501b_z.jpg)](https://c1.staticflickr.com/5/4643/38721358904_8333cc501b_z.jpg)
+![](/images/portugal4k4.jpg)
 
 舉頭望雕像，低頭睇檯凳  
 大理石臺加埋雕刻皮革卡位  
 
-[![](https://c1.staticflickr.com/5/4594/38721361724_dde09e9a78_z.jpg)](https://c1.staticflickr.com/5/4594/38721361724_dde09e9a78_z.jpg)
+![](/images/portugal4k5.jpg)
 
 再有埋雕咗同系列圖案嘅木凳，都咪話唔grand  
 
-[![](https://c1.staticflickr.com/5/4290/35726230951_c1c399919c_z.jpg)](https://c1.staticflickr.com/5/4290/35726230951_c1c399919c_z.jpg)
+![](/images/portugal4k6.jpg)
 
 **Rabanadas Majestic Style** + **coffee**  
 葡式西多，煎麵包加果仁果乾再淋糖漿  

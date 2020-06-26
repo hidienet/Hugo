@@ -60,9 +60,9 @@ coffee time @**O Vício do Café**
 
 （**Sé do Porto**）  
 
-[![](https://c1.staticflickr.com/5/4286/35814108505_6e54494e75_z.jpg)](https://c1.staticflickr.com/5/4286/35814108505_6e54494e75_z.jpg)
+![](/images/portugal2j1.jpg)
 
-（view from **Fonte das Virtudes**）  
+（view from [Fonte das Virtudes](https://hidie.net/portugal2j/)）  
 行吓行吓黃昏喇  
 但係真係飽得滯就skip埋個晚餐  
   

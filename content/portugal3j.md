@@ -14,36 +14,36 @@ tags : [flavor - 飲！, travel - Portugal]
 分分鐘呢世人有可能唔飲返  
 跟啦跟住佢哋去...  
 
-[![](https://c1.staticflickr.com/5/4206/34998029254_edce59c4ce_z.jpg)](https://c1.staticflickr.com/5/4206/34998029254_edce59c4ce_z.jpg)
+![](/images/portugal3j.jpg)
 
 welcome drink係Red（Ruby）  
 唔係好甜嗰種  
 有啲介乎port同紅酒嘅味道  
 
-[![](https://c1.staticflickr.com/5/4210/35669217122_9a8d44f789_z.jpg)](https://c1.staticflickr.com/5/4210/35669217122_9a8d44f789_z.jpg)
+![](/images/portugal3j1.jpg)
 
 ～ 參觀時間 ～  
 呢度唔係地牢式  
 地方唔係好大就直接係地面嗰層  
 但都係石牆嘅，感覺無咁陰濕（嘻）  
 
-[![](https://c1.staticflickr.com/5/4524/38619962762_173af957ae_z.jpg)](https://c1.staticflickr.com/5/4524/38619962762_173af957ae_z.jpg)
+![](/images/portugal3j2.jpg)
 
 規模細還細  
 款式都好足㗎！  
 
-[![](https://c1.staticflickr.com/5/4561/38596226126_69b2252b2d_z.jpg)](https://c1.staticflickr.com/5/4561/38596226126_69b2252b2d_z.jpg)
+![](/images/portugal3j3.jpg)
 
 又到最興奮嘅tasting時間  
 Ruby同Tawny  
 
-[![](https://c1.staticflickr.com/5/4538/38652184761_d2a7204447_z.jpg)](https://c1.staticflickr.com/5/4538/38652184761_d2a7204447_z.jpg)
+![](/images/portugal3j4.jpg)
 
 再嚟多杯LBV嘅Ruby  
 嗱嗱嗱～ 呢杯嘢正呀  
 個色仲要鬼咁清  
 
-[![](https://c1.staticflickr.com/5/4261/35028657693_e73dec46ed_z.jpg)](https://c1.staticflickr.com/5/4261/35028657693_e73dec46ed_z.jpg)
+![](/images/portugal3j5.jpg)
 
 飲酒都真係可以飲到飽...  
   

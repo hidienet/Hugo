@@ -9,13 +9,13 @@ tags : [travel - Portugal]
 餐廳晌酒莊隔離  
 未到食晏時間咪响個花園行吓  
 
-![](https://c1.staticflickr.com/5/4580/38594340566_d3bc2ca8d5_z.jpg)
+![](/images/portugal3f.jpg)
 
 一牆檸檬樹  
 又黃又綠咁啲顏色幾靚  
 檸檬們飽飽滿滿脹卜卜好可愛  
 
-![](https://c1.staticflickr.com/5/4549/37763002525_d2bc7ee00c_z.jpg)
+![](/images/portugal3f1.jpg)
 
 不過當中有一個比我更乾更皺嘅  
 哈～  

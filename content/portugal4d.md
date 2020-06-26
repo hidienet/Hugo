@@ -9,22 +9,22 @@ tags : [travel - Portugal]
 打從1872年，Porto呢個城市就開始有電車  
 然後，就繼續都係有呢種電車遊走呢度  
 
-[![](https://c1.staticflickr.com/5/4568/38232608554_85362874b1_z.jpg)](https://c1.staticflickr.com/5/4568/38232608554_85362874b1_z.jpg)
+![](/images/portugal4d1.jpg)
 
 並唔係咩「復古」電車  
 因為佢根本就係舊嘢  
 
-[![](https://c1.staticflickr.com/5/4594/25077029968_790e2f32a0_z.jpg)](https://c1.staticflickr.com/5/4594/25077029968_790e2f32a0_z.jpg)
+![](/images/portugal4d2.jpg)
 
 同一般公共交通工具一樣有分唔同路線  
 呢架擦身而過嘅係去BATALHA嘅22號  
 主要行市中心睇街景嘅  
 
-[![](https://c1.staticflickr.com/5/4547/38948632921_3aa0b3b5a2_z.jpg)](https://c1.staticflickr.com/5/4547/38948632921_3aa0b3b5a2_z.jpg)
+![](/images/portugal4d.jpg)
 
 舊還舊，仲行得郁㗎  
 
-[![](https://c1.staticflickr.com/5/4577/38912294612_4b2754f95a_z.jpg)](https://c1.staticflickr.com/5/4577/38912294612_4b2754f95a_z.jpg)
+![](/images/portugal4d3.jpg)
 
 不過佢唔係呢度嘅主要日常交通工具  
 得遊客先會搭佢  

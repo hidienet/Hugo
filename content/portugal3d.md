@@ -10,27 +10,27 @@ tags : [flavor - 飲！, travel - Portugal]
 仲要嚟得Vila Nova de Gaia  
 梗係要參觀吓酒莊啦  
 
-[![](https://c1.staticflickr.com/5/4570/38616897552_76ae056bdd_z.jpg)](https://c1.staticflickr.com/5/4570/38616897552_76ae056bdd_z.jpg)
+![](/images/portugal3d1.jpg)
 
 打頭陣有香港都容易搵到嘅牌子：**TAYLOR'S**  
 （since 1692）  
 
-[![](https://c1.staticflickr.com/5/4528/26873250509_06530c0f4f_z.jpg)](https://c1.staticflickr.com/5/4528/26873250509_06530c0f4f_z.jpg)
+![](/images/portugal3d2.jpg)
 
 可以出口到地球嘅另一端  
 當然會係有返咁上下嘅規模  
 所以個酒莊嘅地方都幾大吓  
 
-[![](https://c1.staticflickr.com/5/4570/37931663294_5661a52336_z.jpg)](https://c1.staticflickr.com/5/4570/37931663294_5661a52336_z.jpg)
+![](/images/portugal3d3.jpg)
 
 先响counter登記參觀tour  
 然後响tasting room等夠鐘先行  
 
-[![](https://c1.staticflickr.com/5/4527/37931700184_3865a50a8b_z.jpg)](https://c1.staticflickr.com/5/4527/37931700184_3865a50a8b_z.jpg)
+![](/images/portugal3d4.jpg)
 
 好得意嘅酒桶仔凳  
 
-[![](https://c1.staticflickr.com/5/4525/37762006895_276281de2a_z.jpg)](https://c1.staticflickr.com/5/4525/37762006895_276281de2a_z.jpg)
+![](/images/portugal3d5.jpg)
 
 响酒莊等梗係有welcome drink啦  
 不過就係包含响個tasting menu度嘅  
@@ -38,11 +38,11 @@ tags : [flavor - 飲！, travel - Portugal]
 係Extra Dry White Port  
 一句講晒白酒Port啦  
 
-[![](https://c1.staticflickr.com/5/4569/38617199512_51fbd58899_z.jpg)](https://c1.staticflickr.com/5/4569/38617199512_51fbd58899_z.jpg)
+![](/images/portugal3d6.jpg)
 
 飲完就啱啱好時間，起行！  
 
-[![](https://c1.staticflickr.com/5/4571/37931816644_a2d74896fa_z.jpg)](https://c1.staticflickr.com/5/4571/37931816644_a2d74896fa_z.jpg)
+![](/images/portugal3d7.jpg)
 
 响地窖存酒庫，陰陰濕濕咁  
 一入去就係大大陣酒味（香！）  
@@ -51,42 +51,42 @@ tags : [flavor - 飲！, travel - Portugal]
 至少聽得明種提子同釀酒係响另一個地方  
 （遲幾日會去... 係另一個牌子）  
 
-[![](https://c1.staticflickr.com/5/4284/35796975426_a0a7c330c7_z.jpg)](https://c1.staticflickr.com/5/4284/35796975426_a0a7c330c7_z.jpg)
+![](/images/portugal3d8.jpg)
 
 一望無際嘅酒桶呀～～～  
 
-[![](https://c1.staticflickr.com/5/4547/24777336948_a987aabd1c_z.jpg)](https://c1.staticflickr.com/5/4547/24777336948_a987aabd1c_z.jpg)
+![](/images/portugal3d9.jpg)
 
 個tour大概十幾分鐘  
 然後，就去到最重要嘅tasting time（撒花）  
 頭先welcome drink有乾身嘅white port  
 第二杯酒係**Late Bottled Vintage 2010**  
 
-[![](https://c1.staticflickr.com/5/4290/35837396835_b355631218_z.jpg)](https://c1.staticflickr.com/5/4290/35837396835_b355631218_z.jpg)
+![](/images/portugal3d.jpg)
 
 深紅色澤，聞落一陣車厘子味  
 入口果味濃甜豐富  
 如果手上有羊奶芝士配埋就更完美  
 
-[![](https://c1.staticflickr.com/5/4535/37932083404_512a4f397b_z.jpg)](https://c1.staticflickr.com/5/4535/37932083404_512a4f397b_z.jpg)
+![](/images/portugal3d10.jpg)
 
 已經好正？未算！  
 呢枝**10 Year Old Tawny Port**更更更美味  
 
-[![](https://c1.staticflickr.com/5/4551/37932141914_139bf3d574_z.jpg)](https://c1.staticflickr.com/5/4551/37932141914_139bf3d574_z.jpg)
+![](/images/portugal3.jpg)
 
 琥珀色，帶有10年成熟嘅橡木味  
 酒本身唔會好似紅酒port咁濃甜  
 隻酒又香又滑，堅好味  
 人嚟呀俾塊dark chocolate我！（杏仁都好）  
 
-[![](https://c1.staticflickr.com/5/4519/37762474565_1823ec020f_z.jpg)](https://c1.staticflickr.com/5/4519/37762474565_1823ec020f_z.jpg)
+![](/images/portugal3d11.jpg)
 
 頭先枝10年入樽已經係响嗰個系列裡面最年輕  
 而見到櫃裡面有啲可能唔係响酒桶非常耐  
 之但係更有年紀嘅  
 
-[![](https://c1.staticflickr.com/5/4580/38649812421_29721f85dd_z.jpg)](https://c1.staticflickr.com/5/4580/38649812421_29721f85dd_z.jpg)
+![](/images/portugal3d12.jpg)
 
 1842年？即係幾多個世代呀？  
 裡面仲係有酒㗎...  

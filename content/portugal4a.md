@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 今朝會先响山頂間教堂參觀  
 上開嚟嘛埋食返呢間好好食嘅café囉  
 
-![](https://c1.staticflickr.com/5/4215/35816158506_ec31237fa7_z.jpg)
+![](/images/portugal4a.jpg)
 
 右上件包包樣有啲似乳豬  
 不過佢個味其實係pizza咁  

@@ -25,7 +25,7 @@ tags : [travel - Portugal]
 
 食完行出嚟就已經係[Torre dos Clérigos](https://hidie.net/portugal4b/)喇  
 
-![](/aimges/portugal4b5.jpg)
+![](/images/portugal4b5.jpg)
 
 爬呀爬，爬完條長長樓梯  
 由塔頂展望台望出嚟個景好靚㗎  
@@ -46,11 +46,11 @@ JK Rowling都鍾意嚟呢度蒲㗎
 
 ![](/images/portugal4f6.jpg)
 
-然後行吓行吓就去到**Praça Mouzinho de Albuquerque**  
+然後行吓行吓就去到[Praça Mouzinho de Albuquerque](https://hidie.net/portugal4f/)  
 
 ![](/images/portugal4f.jpg)
 
-入埋去[Casa da Música](https://hidie.net/portugal4f/)兜個round  
+入埋去[Casa da Música](https://hidie.net/portugal4g/)兜個round  
 歌就聽唔到，只係聽到個肚嘅鼓聲飛揚  
 
 ![](/images/portugal4h3.jpg)

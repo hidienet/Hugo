@@ -8,43 +8,43 @@ tags : [travel - Portugal]
 
 今日嘅行程係：PORT！PORT！！PORT！！！（一齊大叫）  
 
-[![](https://c1.staticflickr.com/5/4242/35704783731_43e8f39f16_z.jpg)](https://c1.staticflickr.com/5/4242/35704783731_43e8f39f16_z.jpg)
+![](/images/portugal3a.jpg)
 
-breakfast @**Arcos dos Lóios**  
+breakfast @[Arcos dos Lóios](https://hidie.net/portugal3a/)  
 而美好嘅早晨由一份早餐再配杯咖啡開始  
 
-[![](https://c1.staticflickr.com/5/4265/35837159435_2500b94626_z.jpg)](https://c1.staticflickr.com/5/4265/35837159435_2500b94626_z.jpg)
+![](/images/portugal3b2.jpg)
 
-再踏上**Ponte Luís I，**  
-感受住「撥著大霧默默地在覓我的去路」咁去**Vila Nova de Gaia**  
+再踏上**Ponte Luís I**  
+感受住「撥著大霧默默地在覓我的去路」咁去[Vila Nova de Gaia](https://hidie.net/portugal3b/)  
 
-[![](https://c1.staticflickr.com/5/4258/35705097101_66a823c32c_z.jpg)](https://c1.staticflickr.com/5/4258/35705097101_66a823c32c_z.jpg)
+![](/images/portugal3b6.jpg)
 
 （終於過完橋...）  
 好L高又乜都睇唔到真係嚇鬼死  
 
-[![](https://c1.staticflickr.com/5/4284/35796975426_a0a7c330c7_z.jpg)](https://c1.staticflickr.com/5/4284/35796975426_a0a7c330c7_z.jpg)
+![](/images/portugal3d8.jpg)
 
-首先就去平日响香港都見到嘅牌子：**TAYLOR'S**  
+首先就去平日响香港都見到嘅牌子：[TAYLOR'S](https://hidie.net/portugal3d/)  
 個tour係先飲少少  
 然後行一round  
 最後又有得飲  
 
-[![](https://c1.staticflickr.com/5/4290/35837396835_b355631218_z.jpg)](https://c1.staticflickr.com/5/4290/35837396835_b355631218_z.jpg)
+![](/images/portugal3d.jpg)
 
 （慢慢飲）  
 
-[![](https://c1.staticflickr.com/5/4236/34997256864_43e6f1d99b_z.jpg)](https://c1.staticflickr.com/5/4236/34997256864_43e6f1d99b_z.jpg)
+![](/images/portugal3e.jpg)
 
 日上三竿煙消雲散  
 哇！個景靚到～～～  
 
-[![](https://c1.staticflickr.com/5/4218/35449369210_9d7dc9b698_z.jpg)](https://c1.staticflickr.com/5/4218/35449369210_9d7dc9b698_z.jpg)
+![](/images/portugal3g7.jpg)
 
-lunch @**Barão Fladgate**  
+lunch @[Barão Fladgate](https://hidie.net/portugal3g/)  
 咁靚嘅天，就係要提醒而家係時候食個靚午餐！  
 
-[![](https://c1.staticflickr.com/5/4231/34997557214_59fb8e817c_z.jpg)](https://c1.staticflickr.com/5/4231/34997557214_59fb8e817c_z.jpg)
+![](/images/portugal3g3.jpg)
 
 食嘢配酒for sure（呵呵）  
   
@@ -52,45 +52,45 @@ lunch @**Barão Fladgate**
   
   
 
-[![](https://c1.staticflickr.com/5/4214/34997662964_359b8b7a4d_z.jpg)](https://c1.staticflickr.com/5/4214/34997662964_359b8b7a4d_z.jpg)
+![](/images/portugal3i.jpg)
 
-**Quevedo**  
+[Quevedo](https://hidie.net/portugal3i/)  
 
-[![](https://c1.staticflickr.com/5/4236/35797501186_9b3c2124e6_z.jpg)](https://c1.staticflickr.com/5/4236/35797501186_9b3c2124e6_z.jpg)
+![](/images/portugal3i1.jpg)
 
 乜都試吓咁囉  
   
 跟住，出去行一陣之後  
 又去另一間... 喇... ...  
   
-**Augusto's**  
+[Augusto's](https://hidie.net/portugal3j/)  
 相比起頭先嘅規模細啲  
 所以冇咁易再搵得返嚟飲  
 
-[![](https://c1.staticflickr.com/5/4206/34998029254_edce59c4ce_z.jpg)](https://c1.staticflickr.com/5/4206/34998029254_edce59c4ce_z.jpg)
+![](/images/portugal3j.jpg)
 
 呢度都係：① 飲  
 
-[![](https://c1.staticflickr.com/5/4210/35669217122_9a8d44f789_z.jpg)](https://c1.staticflickr.com/5/4210/35669217122_9a8d44f789_z.jpg)
+![](/images/portugal3j1.jpg)
 
 ② 參觀tour  
 
-[![](https://c1.staticflickr.com/5/4261/35028657693_e73dec46ed_z.jpg)](https://c1.staticflickr.com/5/4261/35028657693_e73dec46ed_z.jpg)
+![](/images/portugal3j5.jpg)
 
 ③ drink drink drink～～～  
 
-[![](https://c1.staticflickr.com/5/4285/35669360632_246449ce2b_z.jpg)](https://c1.staticflickr.com/5/4285/35669360632_246449ce2b_z.jpg)
+![](/images/portugal3k2.jpg)
 
-飲飽，由**Ponte Luís I**下層行返**Porto**  
+飲飽，由[Ponte Luís I下層](https://hidie.net/portugal3k/)行返**Porto**  
 
-[![](https://c1.staticflickr.com/5/4286/35028867283_bac9c07b23_z.jpg)](https://c1.staticflickr.com/5/4286/35028867283_bac9c07b23_z.jpg)
+![](/images/portugal3k8.jpg)
 
 又到日落嘅時間  
 即係要去搵晚飯食嘅時間，啦啦啦  
 
-[![](https://c1.staticflickr.com/5/4205/35670101732_8b67a36bd8_z.jpg)](https://c1.staticflickr.com/5/4205/35670101732_8b67a36bd8_z.jpg)
+![](/images/portugal3l1.jpg)
 
-dinner @**Taberna d'Avó**  
+dinner @[Taberna d'Avó](https://hidie.net/portugal3l/)  
 今日飲咗好多port，所以今晚飲青酒  
   
 拎住幾支酒，返民宿早抖。  

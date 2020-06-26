@@ -223,7 +223,7 @@ pino嘅質素一向都好高
 **Suntory The Premium Malt's Deep Aroma (心和む熟成香)**  
 好夠氣，相比麥味其實焦糖味同果味芳郁啲  
 
-![](/images/kanagawa1p1.jpg)
+![](/images/kanagawa1p.jpg)
 
 另一隻都係**Suntory**嘅，係**七仔Premium Gold**版本  
 **Suntory 金のビール**  

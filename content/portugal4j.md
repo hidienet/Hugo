@@ -8,22 +8,22 @@ tags : [travel - Portugal]
 
 行呀行又返返嚟Porto市中心  
 
-[![](https://c1.staticflickr.com/5/4279/35017682294_bdf79284a9_z.jpg)](https://c1.staticflickr.com/5/4279/35017682294_bdf79284a9_z.jpg)
+![](/images/portugal4j.jpg)
 
 **Praça da Liberdade**  
 唔知係咪見識少成日晌香港  
 見到條路咁闊真係身心都舒暢啲  
 
-[![](https://c1.staticflickr.com/5/4633/25461906458_ba63863e09_z.jpg)](https://c1.staticflickr.com/5/4633/25461906458_ba63863e09_z.jpg)
+![](/images/portugal4j1.jpg)
 
 廣場嘅左手邊  
-就係今朝去過嘅[Igreja dos Clérigos](https://www.hidie.net/2017/12/day4igreja-dos-clerigos.html) & [Torre dos Clérigos](http://www.hidie.net/2017/12/day4torre-dos-clerigos.html)  
+就係今朝去過嘅[Igreja dos Clérigos](https://hidie.net/portugal4c/) & [Torre dos Clérigos](https://hidie.net/portugal4b/)  
 
-[![](https://c1.staticflickr.com/5/4681/24466665637_5deeb6499d_z.jpg)](https://c1.staticflickr.com/5/4681/24466665637_5deeb6499d_z.jpg)
+![](/images/portugal4.jpg)
 
 18世紀興建，1801年再將其二合一嘅教堂**Capela Das Almas**  
 
-[![](https://c1.staticflickr.com/5/4240/35817207446_dc4176e445_z.jpg)](https://c1.staticflickr.com/5/4240/35817207446_dc4176e445_z.jpg)
+![](/images/portugal4j2.jpg)
 
 又靚又耐歷史嘅雜貨舖**Pérola Do Bolhão**  
   

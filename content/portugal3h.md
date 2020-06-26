@@ -8,14 +8,14 @@ tags : [travel - Portugal]
 
 除咗TAYLOR'S，香港常見嘅port仲有Cálem & Offley  
 
-[![](https://c1.staticflickr.com/5/4529/37764102355_ffbc559839_z.jpg)](https://c1.staticflickr.com/5/4529/37764102355_ffbc559839_z.jpg)
+![](/images/portugal3h.jpg)
 
 **Cálem**就算係最最最知名嘅品牌  
 而响裡面嘅參觀tour仲會有fado聽  
 但係今次唔入去呀  
 純粹係見個天色幾靚順手影吓  
 
-[![](https://c1.staticflickr.com/5/4535/24779168698_95dc16f240_z.jpg)](https://c1.staticflickr.com/5/4535/24779168698_95dc16f240_z.jpg)
+![](/images/portugal3h1.jpg)
 
 影開咪影埋另一大牌子**Offley**囉  
   

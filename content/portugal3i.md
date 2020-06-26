@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - Portugal]
 因為已經參觀過酒窖  
 所以唔需要又睇差唔多嘅嘢  
 
-[![](https://c1.staticflickr.com/5/4236/35797501186_9b3c2124e6_z.jpg)](https://c1.staticflickr.com/5/4236/35797501186_9b3c2124e6_z.jpg)
+![](/images/portugal3i.jpg)
 
 咁齋坐低飲啦 @**Quevedo**  
   
@@ -24,7 +24,7 @@ white port x tonic嘅組合
 超清爽，好入口喎  
 返香港都可以自己試吓調返杯  
 
-[![](https://c1.staticflickr.com/5/4214/34997662964_359b8b7a4d_z.jpg)](https://c1.staticflickr.com/5/4214/34997662964_359b8b7a4d_z.jpg)
+![](/images/portugal3i1.jpg)
 
 間嘢空間好大闊闊落落咁  
 （相比頭先昏暗嘅tasting room）  

@@ -9,7 +9,7 @@ tags : [travel - Portugal]
 一路行呀行上吓斜路落吓斜路咁  
 沿路見到呢間Michelin 2星嘅餐廳The Yeatman  
 
-![](https://c1.staticflickr.com/5/4543/38602514372_71dc875192_z.jpg)
+![](/images/portugal3c.jpg)
 
 check過喇冇位呀  
 得個睇字默默咁兜過啦...  

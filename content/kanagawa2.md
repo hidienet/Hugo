@@ -20,8 +20,8 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 ![](/images/kanagawa2a.jpg)
 
-**川崎大師平間寺 不動門**  
-行一陣就到入口  
+**川崎大師平間寺**  
+行一陣就到入口**大山門**  
 
 ![](https://bv0uuq.ch.files.1drv.com/y4m50kZ8GklWFN8ilqV_adscGdO_0kNihtHAIZnpXj_G5ZXvO9PJPUpSxwJuxV-aCDYL02G6i0-IULXwSUgB81VvunXQuw41xEB-GSjfvZNWHnzPFxOmK6Z-Nd4tmYDAp9Phg84LrDcFRF3QcELcmU7B72J2WTbLEJ3tBo8sWCD6LDgV7Sqv-ZYjlF7oyV4Jr3XYhfC06Q62ZrviebuEjLMQA?width=660&height=371&cropmode=none)
 

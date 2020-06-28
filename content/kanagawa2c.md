@@ -40,6 +40,6 @@ tags : [flavor-行膳積腹, travel-日本関東東海道-相模神奈川三浦�
 
 ![](/images/kanagawa2c6.jpg)
 
-
+KIRIN, I'm coming...
 
 {{<kanagawa>}}

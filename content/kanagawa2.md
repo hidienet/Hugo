@@ -38,24 +38,24 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 另一邊有印度風寺廟**藥師殿**，咁佛係印度嘢嘛...  
 
-![](https://av2o5g.ch.files.1drv.com/y4mJyYQDLFmC0HGZJGpS06ATHoUAdtm7Pj9zEZEYZbE9dhKT_sOIFhMzTT6doEMWTOK7vzBygNNZH6amBzdq22qB4i9bp1n47FKB52F91xPFyGJiNWWHvWpgxVl64KqoX_6vgRAiJWm23ERfu33Q-OkzeqRj5QLGI3rYRCEVNi5kw-Z2miqzu1eHEsNDFnIzSL7hg2HunV1pc9E6nteaXc0fA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2b3.jpg)
 
-話咁快兜完個平間寺就去神社：**金山神社**  
+話咁快兜完個平間寺就去神社：[金山神社](https://hidie.net/kanagawa2b/)  
 （其實係為咗呢個神社先嚟川崎大師）  
 
-![](https://al2f5g.ch.files.1drv.com/y4mk4Y8srzF8_JkIjDmDC8Is95h13S6sNeqYFxAOouhsYLU0T8qxrIfAQEovvaGeV6DXdTJ1_5NqHzCXQ3iWIetcY7BOjKu75FZMHdsHzKwR7ySQUtUaHspZstkeACAXV1HceW7757GBWpYEZgVp_AcbwJ5cS2DpQGw7zxq0TElAk3EbEV0WxLAeNTk2ra-wAjzMWAGaflDm_3eIM82uTJVyA?width=371&height=660&cropmode=none)
+![](/images/kanagawa2b5.jpg)
 
 拜乜撚要特登嚟？  
 
-![](https://al2h5g.ch.files.1drv.com/y4mwB_ppIBVrSO20R9m-4NfPfNy1BJapp92tuNnmD_Ld0aGgybPMrMfy_v_dF6ihaNphvizWcisBXtDIYtYdBN2tTWmWJ2a6ff3EDA5ej-EU72EgUDbXO4z6Xlxj5qR7YOQxG8psdRByZOgQ2XfIdVAZ6FyPRLSnQiYFSBXXy--B4l79VxjMOmxwiNR2Z-K7cEfFBMFdOPNfEwTWlrAzciJOw?width=371&height=660&cropmode=none)
+![](/images/kanagawa2b6.jpg)
 
 就真係拜撚囉！（超過一米好大碌）  
 
-![](https://p1yi5g.ch.files.1drv.com/y4m7QddpVt0J3v70QSTLLxHM-Tu6lvyET1KPJa_WYW398SZ8mmlXGvlof4PDtzWG-VfbOhh3MTh7Fo7hYdhxFEtCIxCT2oRGIm5tEtlKMG4wEQVy5omQCRbEZOO6uol5rf6fjTiyMpYiKnpMzq5OwYYUY-9WHAI5z2HueB8ylMF79SkGXkacl8nTvFT5CBeI7Kkw0q1QNccYjmj1GKz9__OYw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2b8.jpg)
 
 咁得意嘅神社無理由唔參觀吖～  
 
-![](https://p1yk5g.ch.files.1drv.com/y4mmttIE51oz161PzqDJ21EvMyGXd67v4R__AbzqW8S4Jwr-56heCPoeF8iOQG9UIK0pj1G-8kI4IjD9PM2ESSc6pdB41lLQuyxJNLkuYbnh0sbB0mWnfctnFyzLhnOF2w2pZBjwuSe4e0q9yzhnlYE_SbxMuUs7-jxoiBVg7TnZUmlR61fohEx-uECUE-_GGQlP3YTEof2q5NNR6hCInPi-w?width=660&height=371&cropmode=none)
+![](/images/kanagawa2b14.jpg)
 
 賣嘢嘅未開呀，冇得買撚樣絵馬  
 算啦影咗當買咗（哈）  

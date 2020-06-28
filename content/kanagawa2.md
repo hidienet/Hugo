@@ -60,18 +60,18 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 賣嘢嘅未開呀，冇得買撚樣絵馬  
 算啦影咗當買咗（哈）  
 
-![](https://qfym5g.ch.files.1drv.com/y4mGSqB1w1j7c5fOyVxnmBiyM9ntALt89pTgE2c-3mCnyZ0YgEQOdJxt7tg9t8wAHPhrvqSyck3AR6fxCVvIcfCWKahJ68RPSC8Jc_bhtj4VvKa0SCprH2E_hwwhRHMxzP_aKzYu8LAzBprqMRm_HXUNE3MnJC8r-E6U3zgHzZjfn79UbGc0Rtlmvd50E1u1AHGA12Zi5MIiZZSxkLKaeWQNQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa2c.jpg)
 
 去完啲咁靈氣嘅地方  
 又係時間祭五臟廟  
-極！級！好！食！嘅**焼きたてのタマゴサンド**（厚玉子三文治）@**城亜**  
-家庭式餐廳，個setting同响[宮崎嗰間](https://www.hidie.net/2017/02/happy-days-day-4_6.html)一樣咁「昭和」  
+極！級！好！食！嘅**焼きたてのタマゴサンド**（厚玉子三文治）@[城亜](https://hidie.net/kanagawa2c/)  
+個setting同响[宮崎嗰間](https://hidie.net/kojkmi4b/)一樣咁「昭和」嘅喫茶店  
 
-![](https://qfyl5g.ch.files.1drv.com/y4myx_P123fs62yHuu0ZBT18MsAF3awOPWk_TP9JuK6nJMm1IZlhXZBWd3Jmrpg_FuVk5dmJTNdLfCGnDyrwzpG-legWcjMHn5i206iiiFoLgrqnE3X3JZBopr42YLVW_EbGQxx-u7H-Pu7gThNCfKzv12gz_8CZQyAU6zP5x36TSaeA3qdvdA_30BNzScLWvjUhJj6ew_4TXlux7dMojLmMw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2c2.jpg)
 
 早餐有好好咁飲咖啡  
 
-![](https://qfyj5g.ch.files.1drv.com/y4mcUbrW2O8YNZvQOb4C_DVL8uSYXpXhbh_4q_pfrKzMKQX3kzaSiC82pVy3fNUBTiwxdVDg_Ye2t-xXGQ0WRQ6jfLa20H0UHFjaIh2oUC9gkDv_GKwfIawxYoqM1WeLKrkMDihMj2sWgMab4FaMVCEdsZwrHaaRI5PUr7G0YTRF8YsVImEx_gdLFaDPlVEpo1vK7tNIdlinTXuWpkGAHX3vw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2c4.jpg)
 
 食到好飽飽飽就出發去下一站：**生麦**  
 

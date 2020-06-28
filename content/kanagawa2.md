@@ -23,11 +23,11 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 **川崎大師平間寺**  
 行一陣就到入口**大山門**  
 
-![](https://bv0uuq.ch.files.1drv.com/y4m50kZ8GklWFN8ilqV_adscGdO_0kNihtHAIZnpXj_G5ZXvO9PJPUpSxwJuxV-aCDYL02G6i0-IULXwSUgB81VvunXQuw41xEB-GSjfvZNWHnzPFxOmK6Z-Nd4tmYDAp9Phg84LrDcFRF3QcELcmU7B72J2WTbLEJ3tBo8sWCD6LDgV7Sqv-ZYjlF7oyV4Jr3XYhfC06Q62ZrviebuEjLMQA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2a5.jpg)
 
 **大本堂**  
 
-![](https://q1yo5g.ch.files.1drv.com/y4msM2oEmRITVCv03QC7NLKg6giJNoz3baA4c6vjawp_L7toWrEnTkPP43HYY0tFQvwVk3uSsN4Ptdi32wgSqX7WdAbVN4z8XMgUJs5xlKiJgiqzO_NrPS5HghZqC56_x6Yer_KhbMyJpxNuRUBqt7PJ89V1b1_Z6C5OR-FkxxJcvBgE4XAo6fmBrZ_bzGCtT7UcDtGEWpgYq-uCd30Zy5vRA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2a8.jpg)
 
 襯冇人走入嚟行吓  
 
@@ -35,9 +35,9 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 **八角五重塔**  
 
-![](https://af2o5g.ch.files.1drv.com/y4mtVW5wNy_9M8vriyS5zl4srMP1x9tDh1LapB0g5b94uca1ZGzF5foIKR1anDlnaQgYu3pzrb-mW_UWCOBmcsSjk8Tv4v92didRv2DST8UcR5QTul63nfc13C1jJdFHXFE_NeTf0KQ53YER4lJh96gtc7LhqibMiZTvsHQ_uKC5CRVIUzVNhMKdNaI0nkCRiGiNnSyBqaEucVULYgomT8kIw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2a17.jpg)
 
-另一邊有泰式寺廟**藥師殿**，咁佛係泰國嘢嘛...  
+另一邊有印度風寺廟**藥師殿**，咁佛係印度嘢嘛...  
 
 ![](https://av2o5g.ch.files.1drv.com/y4mJyYQDLFmC0HGZJGpS06ATHoUAdtm7Pj9zEZEYZbE9dhKT_sOIFhMzTT6doEMWTOK7vzBygNNZH6amBzdq22qB4i9bp1n47FKB52F91xPFyGJiNWWHvWpgxVl64KqoX_6vgRAiJWm23ERfu33Q-OkzeqRj5QLGI3rYRCEVNi5kw-Z2miqzu1eHEsNDFnIzSL7hg2HunV1pc9E6nteaXc0fA?width=660&height=371&cropmode=none)
 

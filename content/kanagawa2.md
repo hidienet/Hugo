@@ -20,8 +20,7 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 ![](/images/kanagawa2a.jpg)
 
-**川崎大師平間寺**  
-行一陣就到入口**大山門**  
+行一陣就到[川崎大師平間寺](https://hidie.net/kanagawa2a/)嘅入口**大山門**  
 
 ![](/images/kanagawa2a5.jpg)
 
@@ -31,7 +30,7 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 襯冇人走入嚟行吓  
 
-![](https://av2k5g.ch.files.1drv.com/y4mNKusI_-fxDofHVdTQVoR8mLRCKdiLZzwQRujJM28DU7YtzblEi7yszDHFmX3R8ork_3ybreSGKBI7y5_kfnkbfgn49mOJQlppHw4tmqnDaOLuTrX2PJkSLlf7Y_oOSOHzEOGIBI3zzX1dQrGxI688-HcCc_QxVaOJO0v7FGXJlOKavrQwL8iEs9b-C_FSUWm3H85RvCdAyMUzIlFb3P58g?width=371&height=660&cropmode=none)
+![](/images/kanagawa2a24.jpg)
 
 **八角五重塔**  
 

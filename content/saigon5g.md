@@ -8,12 +8,12 @@ tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
 
 大型連鎖店不一定不好吃就是  
 
-![](/imgaes/saigon5g.jpg)
+![](/images/saigon5g.jpg)
 
 越南的粉卷外皮煙韌煙韌的  
 裡面的餡料豐富卻不油膩很清新  
 
-![](/imgaes/saigon5g1.jpg)
+![](/images/saigon5g1.jpg)
 
 炸春卷，香脆的外皮  
 脆得像炸腐皮響鈴般一咬就要爆開  
@@ -21,14 +21,14 @@ tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
 配上粉絲跟香菜一齊食  
 這就完全地中和了油膩感  
 
-![](/imgaes/saigon5g2.jpg)
+![](/images/saigon5g2.jpg)
 
 蒸蝦餃，這不是粵式的樣子  
 不過也是澄麵粉吧  
 晶瑩剔透又滑滑韌韌  
 蝦子味道也算鮮甜肥美  
 
-![](/imgaes/saigon5g3.jpg)
+![](/images/saigon5g3.jpg)
 
 還點了壺茶，當然是要加冰（笑）  
   

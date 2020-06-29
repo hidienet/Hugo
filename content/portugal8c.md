@@ -44,7 +44,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 熱辣辣食落帶鹹香嘅味道  
 係有啲漏嘅...  
 
-![](/images/portugal8c4.jpg)
+![](/images/portugal8c5.jpg)
 
 唔緊要吖！有**蔬菜salad**！  
   

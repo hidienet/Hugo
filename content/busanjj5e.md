@@ -11,7 +11,7 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
 故又稱為31雪糕  
 而在logo上的BR會寫了“31”  
 
-[![](https://3.bp.blogspot.com/-9trXcuQR_vM/XCydIXme-7I/AAAAAAAADow/kB4_wgMGRrwPOBqKmWlmTH2hEBD4dIEKgCLcBGAs/s640/29.jpg)](https://3.bp.blogspot.com/-9trXcuQR_vM/XCydIXme-7I/AAAAAAAADow/kB4_wgMGRrwPOBqKmWlmTH2hEBD4dIEKgCLcBGAs/s1600/29.jpg)
+![](/images/busanjj5e.jpg)
 
 在雪糕櫃裡看得賞心悅目  
 幸好我的選擇恐懼症不太嚴重  
@@ -36,4 +36,4 @@ soda icecream x strawberry swirls
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

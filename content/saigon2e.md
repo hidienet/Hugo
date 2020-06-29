@@ -23,6 +23,8 @@ Bánh hỏi heo quay cuốn bánh tráng
 confuse中的時候  
 侍應姐姐就走過來教我怎樣放  
 
+{{<youtube Q6iT4Ufs-OQ>}}
+
 去片 XD  
 （那隻急不及待拿來吃的超失禮肥手...）  
 好貼心呢～ 原來是超多綠 x 少少肉  

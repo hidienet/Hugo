@@ -63,7 +63,7 @@ tags : [amusement-exhibition]
 幸而佢畢業後都仲想投身記者行列成為歷史記錄者
 
 
-個展覽仲未完㗎！！！  
+~個展覽仲未完㗎！！！~  
 雖然啲相都已經經由手機電腦  
 甚至睇live嘅片都睇唔少  
 但實際去睇每張實體相嘅溫度又會有另一番震撼力呢...  
@@ -75,8 +75,8 @@ tags : [amusement-exhibition]
 日期：25-28.06.2020  
 時間：11:00-21:00（最後一日提早至19:00結束）  
 地點：觀塘鴻圖道76號聯運工業大廈14樓C室  
-詳情：<a href="https://bit.ly/2Z3H8og"  target="_blank">https://bit.ly/2Z3H8og</a>  
-策展人語：<a href="https://bit.ly/37LGNKN" target="_blank">https://bit.ly/37LGNKN</a>  
+詳情：https://bit.ly/2Z3H8og  
+策展人語：https://bit.ly/37LGNKN  
 
 亼亼亼攝影展 x 記者駐場分享亼亼亼    
 25/6　16:00　轉型與初心　眾新聞總編輯李月華  

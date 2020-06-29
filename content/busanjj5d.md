@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 已超過半個世紀的歷史  
 愛蔘雞湯的我沒有不試的道理  
 
-[![](https://4.bp.blogspot.com/-xmiI7rXzkAg/XCydTEbLyfI/AAAAAAAADo0/BorJYHbDcLMFpo3UOsLuumbgQBPoHxD2ACLcBGAs/s640/30.jpg)](https://4.bp.blogspot.com/-xmiI7rXzkAg/XCydTEbLyfI/AAAAAAAADo0/BorJYHbDcLMFpo3UOsLuumbgQBPoHxD2ACLcBGAs/s1600/30.jpg)
+![](/images/busanjj5d.jpg)
 
 熱騰騰的雞湯  
 樣子不錯  
@@ -19,7 +19,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 不過還是沒有啥味道  
 糯米也不是全部軟軟的  
   
-別說跟之前在慶州的[가시오가피삼계탕](http://www.hidie.net/2014/01/day2.html)相比  
+別說跟之前在慶州的[가시오가피삼계탕](https://hidie.net/busanjj2a/)相比  
 就連平常在香港的普通韓國餐廳的蔘雞湯也不如  
 整煲就是看出沒有誠意的東西  
 不！好！吃！  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

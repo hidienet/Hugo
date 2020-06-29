@@ -11,7 +11,7 @@ tags : [travel - Việt Nam・Sài Gòn (saigon), flavor - 螞蟻族]
 加上天氣真的非常地熱  
 真的要去食又甜又涼快的cheer up一下  
 
-[![](https://4.bp.blogspot.com/-r8KwEmx_Eb0/XDB2-EDJzyI/AAAAAAAAEJM/v-7u3LuI_1YorXNGBUlaVN3u5kntWOcGQCLcBGAs/s640/08.jpg)](https://4.bp.blogspot.com/-r8KwEmx_Eb0/XDB2-EDJzyI/AAAAAAAAEJM/v-7u3LuI_1YorXNGBUlaVN3u5kntWOcGQCLcBGAs/s1600/08.jpg)
+![](/images/saigon2h.jpg)
 
 椰青殼內有雪糕同新鮮水果  
 好多好多東西  
@@ -20,10 +20,10 @@ tags : [travel - Việt Nam・Sài Gòn (saigon), flavor - 螞蟻族]
 雪糕其實也沒有甚麼驚豔  
 不過用這繽紛的食物來轉換心情食必須的！  
 
-[![](https://3.bp.blogspot.com/-_SJNKJS_3zA/XDB3EZov4xI/AAAAAAAAEJU/2nIqEaZJdtkUJz67vPkpjIItVJ7zDOdBgCLcBGAs/s640/09.jpg)](https://3.bp.blogspot.com/-_SJNKJS_3zA/XDB3EZov4xI/AAAAAAAAEJU/2nIqEaZJdtkUJz67vPkpjIItVJ7zDOdBgCLcBGAs/s1600/09.jpg)
+![](/images/saigon2h1.jpg)
 
 招牌是個大紅蘋果，不難找  
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

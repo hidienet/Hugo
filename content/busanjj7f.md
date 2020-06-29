@@ -18,7 +18,7 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 不加甚麼泡麵年糕  
 最重要「少辣唔該，最好唔辣，拜託了」  
 
-[![](https://2.bp.blogspot.com/-3aBkgf92boE/XCjSPBN5I7I/AAAAAAAADjQ/TwYmTW0HRaM9TxPYwA5ODzTZdF2kZ4BhgCLcBGAs/s640/20.jpg)](https://2.bp.blogspot.com/-3aBkgf92boE/XCjSPBN5I7I/AAAAAAAADjQ/TwYmTW0HRaM9TxPYwA5ODzTZdF2kZ4BhgCLcBGAs/s1600/20.jpg)
+![](/images/busanjj7f.jpg)
 
 這就是那兜東西  
 店員在你面前把生料煮熟  
@@ -34,7 +34,7 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 辣到叫另一道菜  
 
-[![](https://2.bp.blogspot.com/-U1Be9TgXsck/XCjSYaO3_fI/AAAAAAAADjU/0q2Wf1UHc0YgqCoqGNjrldXmPV0Fupx7gCLcBGAs/s640/21.jpg)](https://2.bp.blogspot.com/-U1Be9TgXsck/XCjSYaO3_fI/AAAAAAAADjU/0q2Wf1UHc0YgqCoqGNjrldXmPV0Fupx7gCLcBGAs/s1600/21.jpg)
+![](/images/busanjj7f1.jpg)
 
 爆爆蛋的樣子好可愛  
 像蛋soufflé呢～  
@@ -43,8 +43,9 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 為甚麼那麼多年輕人食？  
 完全不明白，真的很難吃耶  
-難食度比[南浦蔘雞湯（남포삼계탕）](http://www.hidie.net/2014/01/day5_490.html)更甚  
+難食度比[南浦蔘雞湯（남포삼계탕）](https://hidie.net/busanjj5d/)更甚  
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](![](/images/busanjj7f.jpg)
+)

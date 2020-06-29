@@ -10,7 +10,7 @@ maeil是我很喜歡的豆漿品牌
 因為豆味重質地濃郁又不會太甜  
 平常只喝原味，不過在超市有set裝就買來試試  
 
-[![](https://4.bp.blogspot.com/-W1-mFSNzPfY/XCjTSzu-eeI/AAAAAAAADjg/fDtIilrI5_IY_a06k8B-EkXAztkRDNnZwCLcBGAs/s640/22.jpg)](https://4.bp.blogspot.com/-W1-mFSNzPfY/XCjTSzu-eeI/AAAAAAAADjg/fDtIilrI5_IY_a06k8B-EkXAztkRDNnZwCLcBGAs/s1600/22.jpg)
+![](/images/busanjj7e.jpg)
 
 플레인－最原味，就是好味  
 호두&땅콩－nuts味令豆漿味道更豐富濃郁  
@@ -18,7 +18,7 @@ maeil是我很喜歡的豆漿品牌
   
 還是最愛原味～  
 
-[![](https://4.bp.blogspot.com/-NDbSkPUOfY4/XCjUWYGQz1I/AAAAAAAADjo/VGfQQB1Lr9Q8mZ1pFOmzF-O644ZpzPd0ACLcBGAs/s640/23.jpg)](https://4.bp.blogspot.com/-NDbSkPUOfY4/XCjUWYGQz1I/AAAAAAAADjo/VGfQQB1Lr9Q8mZ1pFOmzF-O644ZpzPd0ACLcBGAs/s1600/23.jpg)
+![](/images/busanjj7e1.jpg)
 
 平時在香港也會買的  
 不過只在韓式超市才有  
@@ -27,4 +27,4 @@ maeil是我很喜歡的豆漿品牌
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

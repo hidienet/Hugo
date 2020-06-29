@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 故湯頭呈現濃郁的奶白色  
 今天晚餐品嘗「天安（천안）」這家老店（since 1951）  
 
-[![](https://1.bp.blogspot.com/-gqUSLmqTbEw/XCyjoGmaq9I/AAAAAAAADso/rL0OyLd6O20sWfZk5vwVqNPa3SMi4T0kQCLcBGAs/s640/62.jpg)](https://1.bp.blogspot.com/-gqUSLmqTbEw/XCyjoGmaq9I/AAAAAAAADso/rL0OyLd6O20sWfZk5vwVqNPa3SMi4T0kQCLcBGAs/s1600/62.jpg)
+![](/images/busanjj3e.jpg)
 
 配以牛筋的雪濃湯  
 （對面是配牛尾）  
@@ -19,7 +19,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 牛筋既漿且滑，感覺吃下一大堆骨膠原  
 （吃晚後摸摸面好像滑了嘻嘻）  
 
-[![](https://4.bp.blogspot.com/-HOtO-M0O8fg/XCyjtxY-WmI/AAAAAAAADss/XfkGbnir-9sAEf5oiOg0noxgeLqZ2MIJwCLcBGAs/s640/63.jpg)](https://4.bp.blogspot.com/-HOtO-M0O8fg/XCyjtxY-WmI/AAAAAAAADss/XfkGbnir-9sAEf5oiOg0noxgeLqZ2MIJwCLcBGAs/s1600/63.jpg)
+![](/images/busanjj3e1.jpg)
 
 鹽是店家自己炒，反覆超三次這樣  
 所以樣子是灰灰黑黑的  
@@ -32,4 +32,4 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

@@ -8,7 +8,7 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 
 好大好大粒的士多啤梨  
 
-[![](https://3.bp.blogspot.com/-d1a8vXXkiNQ/XCygnfFL-6I/AAAAAAAADqo/mvnqna40sekK-OQDw7eWdtfhepK_RVl0ACLcBGAs/s640/45.jpg)](https://3.bp.blogspot.com/-d1a8vXXkiNQ/XCygnfFL-6I/AAAAAAAADqo/mvnqna40sekK-OQDw7eWdtfhepK_RVl0ACLcBGAs/s1600/45.jpg)
+![](/images/busanjj4h.jpg)
 
 差不多有我掌心那麼大啊  
 而且超甜的！  
@@ -16,4 +16,4 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

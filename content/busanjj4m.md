@@ -13,7 +13,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 也是啦～ 在海灘吹了海風吹到又凍又餓  
 Lotteria就在身後，快快進去暖一下  
 
-[![](https://1.bp.blogspot.com/-P80cT0oQ0uQ/XCyexQ1aEgI/AAAAAAAADqA/F8MCdG40V2Yuo88TiHB9hL--DwZEzZF4QCLcBGAs/s640/40.jpg)](https://1.bp.blogspot.com/-P80cT0oQ0uQ/XCyexQ1aEgI/AAAAAAAADqA/F8MCdG40V2Yuo88TiHB9hL--DwZEzZF4QCLcBGAs/s1600/40.jpg)
+![](/images/busanjj4m.jpg)
 
 套餐的薯條，坦白說麥記好吃點  
 （茶餐廳波浪厚切薯條才是王道！）  
@@ -33,4 +33,4 @@ Lot Burger，一個515 Kcal
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

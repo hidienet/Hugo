@@ -20,7 +20,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
 放入傳統陶壺度先  
 嗱凍㗎凍㗎摸吓會手印㗎  
 
-![](/images/portugal3l13.jpg)
+![](/images/portugal3l3.jpg)
 
 啲小食好吸引就嗌幾碟  
 有**八爪魚**啦**青椒仔**啦同**腎**  

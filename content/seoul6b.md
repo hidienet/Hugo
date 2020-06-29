@@ -50,4 +50,4 @@ cream質地較像mousse
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

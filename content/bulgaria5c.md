@@ -7,7 +7,6 @@ tags : [travel - България (Bulgaria)]
 ---
 
 來到Balkan Peninsula中最大的修道院  
-
 海拔一千二百米的Rilski Manastir
 
 [![](https://4.bp.blogspot.com/-snCDbPQXgVM/XDNQZwt7VAI/AAAAAAAAE6o/IlhTnHqObC45W_GEoW2pULngMPWBrhtJACLcBGAs/s640/44.jpg)](https://4.bp.blogspot.com/-snCDbPQXgVM/XDNQZwt7VAI/AAAAAAAAE6o/IlhTnHqObC45W_GEoW2pULngMPWBrhtJACLcBGAs/s1600/44.jpg)

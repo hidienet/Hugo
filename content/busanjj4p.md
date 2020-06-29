@@ -8,11 +8,11 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 
 街道上的裝飾花  
 
-[![](https://1.bp.blogspot.com/-MvN-1LNK2xY/XCyjSjPoHEI/AAAAAAAADsY/REgmC_7v3KAjj5jeqqIFC5ZhiOgl7rBiACLcBGAs/s640/60.jpg)](https://1.bp.blogspot.com/-MvN-1LNK2xY/XCyjSjPoHEI/AAAAAAAADsY/REgmC_7v3KAjj5jeqqIFC5ZhiOgl7rBiACLcBGAs/s1600/60.jpg)
+![](/images/busanjj4p.jpg)
 
 看起來好像椰菜花啊～  
 
-[![](https://1.bp.blogspot.com/-fK59g43tX1g/XCyjaKSG7dI/AAAAAAAADsg/-82XR2R0sMABupjnly7qFo05qNzJ--z3ACLcBGAs/s640/61.jpg)](https://1.bp.blogspot.com/-fK59g43tX1g/XCyjaKSG7dI/AAAAAAAADsg/-82XR2R0sMABupjnly7qFo05qNzJ--z3ACLcBGAs/s1600/61.jpg)
+![](/images/busanjj4p1.jpg)
 
 好搞笑耶（大鄉里）  
 能吃的嗎？ 哈 XD  
@@ -22,4 +22,4 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

@@ -7,9 +7,7 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
 ---
 
 完全「蜂」「馬」牛不相及嗎？  
-
-day tour的行程豐富嗎？還好吧～
-
+day tour的行程豐富嗎？還好吧～  
 至少天氣好又能吃得飽
 
 ![](/images/saigon4e.jpg)

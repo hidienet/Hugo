@@ -10,14 +10,14 @@ tags : [travel - Portugal]
 搭晨早六點開出嘅火車都OK嘅  
 五點起身，由apartment行去五分鐘都唔駛嘅路程好完美  
 
-[![](https://c1.staticflickr.com/5/4556/38355345942_6809fa230e_z.jpg)](https://c1.staticflickr.com/5/4556/38355345942_6809fa230e_z.jpg)
+![](/images/portugal2a.jpg)
 
 **@Santa Apolónia**  
 好早呢當然仲係天黑黑  
 硬係覺得會突然唔知邊度去飆一堆喪屍嘅感覺  
 （其實我未睇《부산행》嘅...）  
 
-[![](https://c1.staticflickr.com/5/4518/24514819688_81b02ddfdd_z.jpg)](https://c1.staticflickr.com/5/4518/24514819688_81b02ddfdd_z.jpg)
+![](/images/portugal2a1.jpg)
 
 搭嘅係CP，即係Comboios de Portugal  
 啲位都唔錯吖，同坐廉航差唔多  

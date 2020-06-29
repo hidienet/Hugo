@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 在虛心廳附近找吃的  
 身體熱，想食冷麵 XD  
 
-[![](https://4.bp.blogspot.com/-K1TCZeTlyDE/XCyWkFri8sI/AAAAAAAADm8/p_mNArskdF0lsbmKUJM2WBc8mdbAFXQvgCLcBGAs/s640/15.jpg)](https://4.bp.blogspot.com/-K1TCZeTlyDE/XCyWkFri8sI/AAAAAAAADm8/p_mNArskdF0lsbmKUJM2WBc8mdbAFXQvgCLcBGAs/s1600/15.jpg)
+![](/images/busanjj7b.jpg)
 
 超有嚼勁的麵條  
 雪梨很爽甜啊  
@@ -21,4 +21,4 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

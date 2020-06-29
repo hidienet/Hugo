@@ -8,7 +8,7 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 
 「最開心 浸溫泉 浸溫泉⋯⋯」  
 
-[![](https://1.bp.blogspot.com/-tj6MEgB7_dU/XCyWuTxHjdI/AAAAAAAADnE/LgS6tpfUvkgap1Fcghvl7YaKxExPKKP5ACLcBGAs/s640/16.jpg)](https://1.bp.blogspot.com/-tj6MEgB7_dU/XCyWuTxHjdI/AAAAAAAADnE/LgS6tpfUvkgap1Fcghvl7YaKxExPKKP5ACLcBGAs/s1600/16.jpg)
+![](/images/busanjj7a1.jpg)
 
 同日本的溫泉一樣全裸（男女分開的啦）  
 洗乾淨身體才浸，有不同的水溫  
@@ -38,11 +38,11 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 這裡的汗蒸幕看起來都幾過癮  
 
-[![](https://4.bp.blogspot.com/-R2Mjb4b6npE/XCyWz6cPnTI/AAAAAAAADnM/G9HWAjRp3i0L6VrnJW1LpYwUiozz6vaKwCLcBGAs/s640/17.jpg)](https://4.bp.blogspot.com/-R2Mjb4b6npE/XCyWz6cPnTI/AAAAAAAADnM/G9HWAjRp3i0L6VrnJW1LpYwUiozz6vaKwCLcBGAs/s1600/17.jpg)
+![](/images/busanjj7a2.jpg)
 
 有傳統的泥蒸  
 
-[![](https://4.bp.blogspot.com/-qv8jDPjbG_A/XCyW5sdv91I/AAAAAAAADnQ/I-htHFZ6Faca6eDUsjwLrJS1TtK-2AfkwCLcBGAs/s640/18.jpg)](https://4.bp.blogspot.com/-qv8jDPjbG_A/XCyW5sdv91I/AAAAAAAADnQ/I-htHFZ6Faca6eDUsjwLrJS1TtK-2AfkwCLcBGAs/s1600/18.jpg)
+![](/images/busanjj7a.jpg)
 
 也有寶石蒸，蒸完皮膚會閃令令的嗎？  
 哈哈  
@@ -52,4 +52,4 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

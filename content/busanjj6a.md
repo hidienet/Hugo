@@ -18,7 +18,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 吃粥，應該比較好消化  
 餐牌上有就點了，只不過......  
 
-[![](https://3.bp.blogspot.com/-E_P_LYoM3zE/XCyZJzuZ_4I/AAAAAAAADoc/Is2wzwWFHxwzwSJt4SchTMHUnlPdwHiDQCLcBGAs/s640/27.jpg)](https://3.bp.blogspot.com/-E_P_LYoM3zE/XCyZJzuZ_4I/AAAAAAAADoc/Is2wzwWFHxwzwSJt4SchTMHUnlPdwHiDQCLcBGAs/s1600/27.jpg)
+![](/images/busanjj6a.jpg)
 
 鮑魚粥（전복죽）  
 釜山臨海所以有很多海鮮  
@@ -29,7 +29,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 米都像廣東粥般綿綿的  
 可惜有點太鹹  
 
-[![](https://3.bp.blogspot.com/-0XllOwAyWO0/XCyZQHn826I/AAAAAAAADog/FhQwATVASrMVwjb7H1JSB3dm3643nj33QCLcBGAs/s640/28.jpg)](https://3.bp.blogspot.com/-0XllOwAyWO0/XCyZQHn826I/AAAAAAAADog/FhQwATVASrMVwjb7H1JSB3dm3643nj33QCLcBGAs/s1600/28.jpg)
+![](/images/busanjj6a1.jpg)
 
 同桌人的石鍋拌飯（돌솥비빔밥）  
 我不知道味道好不好  
@@ -40,4 +40,4 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

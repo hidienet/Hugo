@@ -7,7 +7,6 @@ tags : [travel - Portugal]
 ---
 
 晨七咁早落樓去「把撚」  
-
 但係一啲都唔把撚㗎！
 
 [![](https://c1.staticflickr.com/5/4316/35784934930_8f89ccd0a0_z.jpg)](https://c1.staticflickr.com/5/4316/35784934930_8f89ccd0a0_z.jpg)
@@ -39,7 +38,7 @@ Praça da Figueira → **Belém**
 咁泰式嘅建築當然係同泰國有關嘅嘢  
 呢個就係紀念泰國皇室嘅公主到訪  
 
-[![](https://c1.staticflickr.com/5/4309/35790729820_17af626593_z.jpg)](https://c1.staticflickr.com/5/4309/35790729820_17af626593_z.jpg)
+![](/images/portugal12.jpg)
 
 然後等到把撚塔**Torre de Belém**開門  
 可以入去參觀喇跳起yeah  

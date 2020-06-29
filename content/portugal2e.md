@@ -7,9 +7,9 @@ tags : [travel - Portugal]
 ---
 
 繼續Porto周圍兜...  
-除咗嗰粿曝錯光嘅A Magnólia do Ardina之外  
+除咗嗰粿曝錯光嘅[A Magnólia do Ardina](https://hidie.net/portugal2d/)之外  
 
-![](https://c1.staticflickr.com/5/4555/38356240612_690dfdcab8_z.jpg)
+![](/images/portugal2e.jpg)
 
 仲有呢間唔食都嚟睇下嘅個名好霸氣嘅McDonald’s Imperial  
 （認住呢隻鷹...）  

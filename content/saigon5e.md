@@ -11,11 +11,11 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
 走到這間在華人圈裡較有名氣的  
 吃一個海鮮午餐  
 
-[![](https://4.bp.blogspot.com/-QgOjtndt6BU/XDC6YDDecjI/AAAAAAAAEWk/ecm49VImM0AiXGOJLc-wfFO5vLyNtlEHgCLcBGAs/s640/q11.jpg)](https://4.bp.blogspot.com/-QgOjtndt6BU/XDC6YDDecjI/AAAAAAAAEWk/ecm49VImM0AiXGOJLc-wfFO5vLyNtlEHgCLcBGAs/s1600/q11.jpg)
+![](/images/saigon5e.jpg)
 
 先來一份螺  
 
-[![](https://3.bp.blogspot.com/-wMO9BdUZNFA/XDC6c4w-E7I/AAAAAAAAEWo/XZgFrP8aZkgrzJvWABlR-BNNWKlZaqJMwCLcBGAs/s640/q21.jpg)](https://3.bp.blogspot.com/-wMO9BdUZNFA/XDC6c4w-E7I/AAAAAAAAEWo/XZgFrP8aZkgrzJvWABlR-BNNWKlZaqJMwCLcBGAs/s1600/q21.jpg)
+![](/images/saigon5e1.jpg)
 
 再來一份蜆  
 沒甚麼評語對吧  
@@ -28,4 +28,4 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

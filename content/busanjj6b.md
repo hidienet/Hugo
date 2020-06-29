@@ -10,16 +10,16 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 這些公園高塔不是我杯茶  
 不過就在motel後面，太近卻不出好像有點浪費  
 
-[![](https://2.bp.blogspot.com/-hZSHIwfFHt0/XCyX5o9YS7I/AAAAAAAADoE/HHJqqQpJthkgwth0qUTQi1Bebz5aLfZQACLcBGAs/s640/24.jpg)](https://2.bp.blogspot.com/-hZSHIwfFHt0/XCyX5o9YS7I/AAAAAAAADoE/HHJqqQpJthkgwth0qUTQi1Bebz5aLfZQACLcBGAs/s1600/24.jpg)
+![](/images/busanjj6b.jpg)
 
 拍了石碑，沒有去錯地方  
 
-[![](https://2.bp.blogspot.com/-LVinMBTGbmQ/XCyYAklySdI/AAAAAAAADoI/_1BWVl_KlioIVVnGKfSSLBZ0jRJ80BK0ACLcBGAs/s640/25.jpg)](https://2.bp.blogspot.com/-LVinMBTGbmQ/XCyYAklySdI/AAAAAAAADoI/_1BWVl_KlioIVVnGKfSSLBZ0jRJ80BK0ACLcBGAs/s1600/25.jpg)
+![](/images/busanjj6b1.jpg)
 
 鐘閣，每年都會敲鐘  
 噢～ 建築風格跟慶州大陵苑那裡的一樣  
 
-[![](https://4.bp.blogspot.com/-ih55wT37LCg/XCyYKbg7oUI/AAAAAAAADoQ/eczGeqNJqYUWnM5nZJMqe1jEwCZSjvxwQCLcBGAs/s640/26.jpg)](https://4.bp.blogspot.com/-ih55wT37LCg/XCyYKbg7oUI/AAAAAAAADoQ/eczGeqNJqYUWnM5nZJMqe1jEwCZSjvxwQCLcBGAs/s1600/26.jpg)
+![](/images/busanjj6b2.jpg)
 
 釜山塔（부산타워）  
 上塔當然要收費  
@@ -32,4 +32,4 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

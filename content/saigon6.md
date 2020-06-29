@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - Việt Nam・Sài Gòn (saigon)]
 飛機又會有飛機餐  
 加上想洗埋沒有用的散子  
 
-[![](https://4.bp.blogspot.com/-HfBoQdWxZBg/XDC8oMJnzlI/AAAAAAAAEY0/eM1ffP-qJcQS_Annhqyz0lilEaOL_Wn7gCLcBGAs/s640/a111.jpg)](https://4.bp.blogspot.com/-HfBoQdWxZBg/XDC8oMJnzlI/AAAAAAAAEY0/eM1ffP-qJcQS_Annhqyz0lilEaOL_Wn7gCLcBGAs/s1600/a111.jpg)
+![](/images/saigon6.jpg)
 
 淡口的穀類營養早餐  
 偏點點苦，不像歐洲啤那麼香  
@@ -20,4 +20,4 @@ tags : [flavor - 飲！, travel - Việt Nam・Sài Gòn (saigon)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

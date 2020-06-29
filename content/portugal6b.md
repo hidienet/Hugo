@@ -10,8 +10,7 @@ tags : [travel - Portugal]
 
 ![](/images/portugal6b.jpg)
 
-**Aqui Nasceu Portugal**
-
+**Aqui Nasceu Portugal**  
 （Portugal Was Born Here）  
 所以要嚟一嚟**Guimarães**呢度睇吓
 

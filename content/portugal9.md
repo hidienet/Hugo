@@ -11,7 +11,9 @@ tags : [travel - Portugal]
 ![](/images/portugal9a2.jpg)
 
 都係嚟杯咖啡食個早餐先... @[Bufete Marina](https://hidie.net/portugal9a/)  
-  
+
+![](/images/portugal9b1.jpg)
+
 搭巴士（[Line 500](https://hidie.net/portugal9b/)）由São Bento去**Matosinhos - Mercado**  
 車程半粒鐘有找  
 

@@ -29,37 +29,37 @@ day 2
 [fanny icecream](http://www.hidie.net/2014/04/day2fanny-icecream.html)  
   
 day 3  
-[古芝地道 local tour](http://www.hidie.net/2014/04/day3-local-tour.html)  
-[Chả cá Lã Vọng](http://www.hidie.net/2014/04/day3cha-ca-la-vong.html)  
-[La Fenêtre Soleil](http://www.hidie.net/2014/04/day3la-fenetre-soleil.html)  
-[Au Manoir De Khai](http://www.hidie.net/2014/04/day3au-manoir-de-khai.html)  
+[古芝地道 local tour](https://hidie.net/saigon3a/)  
+[Chả cá Lã Vọng](https://hidie.net/saigon3b/)  
+[La Fenêtre Soleil](https://hidie.net/saigon3c/)  
+[Au Manoir De Khai](https://hidie.net/saigon3d/)  
   
 day 4  
-[PHO 24](http://www.hidie.net/2014/04/day4pho-24.html)  
-[day tour - 米紙製造](http://www.hidie.net/2014/04/day4day-tour.html)  
-[day tour - 午飯怪怪魚](http://www.hidie.net/2014/04/day4day-tour_7.html)  
-[day tour - 湄公河](http://www.hidie.net/2014/04/day4day-tour_1540.html)  
-[day tour - 馬車與蜜糖](http://www.hidie.net/2014/04/day4day-tour_8.html)  
-[day tour - 現製椰子糖](http://www.hidie.net/2014/04/day4day-tour_2217.html)  
-[Nhà hàng Blue Ginger](http://www.hidie.net/2014/04/day4nha-hang-blue-ginger.html)  
-[Bánh xèo](http://www.hidie.net/2014/04/day4banh-xeo.html)  
+[PHO 24](https://hidie.net/saigon4a/)  
+[day tour - 米紙製造](https://hidie.net/saigon4b/)  
+[day tour - 午飯怪怪魚](https://hidie.net/saigon4c/)  
+[day tour - 湄公河](https://hidie.net/saigon4d/)  
+[day tour - 馬車與蜜糖](https://hidie.net/saigon4e/)  
+[day tour - 現製椰子糖](https://hidie.net/saigon4f/)  
+[Nhà hàng Blue Ginger](https://hidie.net/saigon4g/)  
+[Bánh xèo](https://hidie.net/saigon4h/)  
   
 day 5  
-[Bánh Mì Anh Phán](http://www.hidie.net/2014/04/day5banh-mi-anh-phan.html)  
-[Bánh Mì Như Lan](http://www.hidie.net/2014/04/day5banh-mi-nhu-lan.html)  
-[安東廣場、安東市場](http://www.hidie.net/2014/04/day5.html)  
-[Phở Lệ](http://www.hidie.net/2014/04/day5pho-le.html)  
-[157海鮮](http://www.hidie.net/2014/04/day5157.html)  
-[Trung Nguyên](http://www.hidie.net/2014/04/day5trung-nguyen.html)  
-[wrap & roll](http://www.hidie.net/2014/04/day5wrap-roll.html)  
-[Le Bordeaux](http://www.hidie.net/2014/04/day5le-bordeaux.html)  
+[Bánh Mì Anh Phán](https://hidie.net/saigon5a/)  
+[Bánh Mì Như Lan](https://hidie.net/saigon5b/)  
+[安東廣場、安東市場](https://hidie.net/saigon5c/)  
+[Phở Lệ](https://hidie.net/saigon5d/)  
+[157海鮮](https://hidie.net/saigon5e/)  
+[Trung Nguyên](https://hidie.net/saigon5f/)  
+[wrap & roll](https://hidie.net/saigon5g/)  
+[Le Bordeaux](https://hidie.net/saigon5h/)  
   
 day 6  
-[sabeco 333 beer](http://www.hidie.net/2014/04/day6sabeco-333-beer.html)  
+[sabeco 333 beer](https://hidie.net/saigon6/)  
   
   
   
 
-[![](https://3.bp.blogspot.com/--IKKhgxrqCY/XDC80NmkQbI/AAAAAAAAEY8/X-7a3OnlPDE_8TB_u70aN_2aqKfSswAiwCLcBGAs/s640/q22.jpg)](https://3.bp.blogspot.com/--IKKhgxrqCY/XDC80NmkQbI/AAAAAAAAEY8/X-7a3OnlPDE_8TB_u70aN_2aqKfSswAiwCLcBGAs/s1600/q22.jpg)
+![](/images/saigon6d5n.jpg)
 
 回程時「被upgrade」到business class，lucky（笑）

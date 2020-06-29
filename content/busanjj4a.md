@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
 
 吃的東西未到，先喝酒  
 
-[![](https://2.bp.blogspot.com/-RUJZAOpqys4/XCyjFdO5uHI/AAAAAAAADsU/FMnNOJ5UXyQBkG5sd29yceI8AKoSxXYmACLcBGAs/s640/59.jpg)](https://2.bp.blogspot.com/-RUJZAOpqys4/XCyjFdO5uHI/AAAAAAAADsU/FMnNOJ5UXyQBkG5sd29yceI8AKoSxXYmACLcBGAs/s1600/59.jpg)
+![](/images/busanjj4a.jpg)
 
 雖然梅酒不是韓國的名物  
 不過一大清早不想喝太烈的酒  
@@ -22,4 +22,4 @@ tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

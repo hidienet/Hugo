@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
 
 有啤酒就會有炸雞  
 
-[![](https://3.bp.blogspot.com/-GUScxygYFjQ/XE2fLshwfKI/AAAAAAAAHmU/MnNRqhfF-twJ4A33smmKruIdc91-YQM0gCLcBGAs/s640/15060239963_428d433324_z.jpg)](https://3.bp.blogspot.com/-GUScxygYFjQ/XE2fLshwfKI/AAAAAAAAHmU/MnNRqhfF-twJ4A33smmKruIdc91-YQM0gCLcBGAs/s1600/15060239963_428d433324_z.jpg)
+![](/images/seoul6g.jpg)
 
 但齋食雞好悶  
 一個拼盤就甚麼都有  
@@ -32,20 +32,20 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
 還有最後面的零食  
 啤酒同零食世界通行就是  
 
-[![](https://3.bp.blogspot.com/-owbaFIfz-C4/XE2fQHo6hzI/AAAAAAAAHmY/CDRUJ3PrUtcbMIv62SkSJutXmWCqQf_tgCLcBGAs/s640/15494800950_2e0f1b1f7d_z.jpg)](https://3.bp.blogspot.com/-owbaFIfz-C4/XE2fQHo6hzI/AAAAAAAAHmY/CDRUJ3PrUtcbMIv62SkSJutXmWCqQf_tgCLcBGAs/s1600/15494800950_2e0f1b1f7d_z.jpg)
+![](/images/seoul6g1.jpg)
 
 為甚麼要食綠色炸雞？  
 當然因為這位女神太吸引  
 
-[![](https://2.bp.blogspot.com/-YGIxeDdgTYU/XE2fUtrxbJI/AAAAAAAAHmc/zZBuVbS8wFE7fwNTca7d_thn1X0rksquwCLcBGAs/s640/15677674121_2d67db2de3_z.jpg)](https://2.bp.blogspot.com/-YGIxeDdgTYU/XE2fUtrxbJI/AAAAAAAAHmc/zZBuVbS8wFE7fwNTca7d_thn1X0rksquwCLcBGAs/s1600/15677674121_2d67db2de3_z.jpg)
+![](/images/seoul6g2.jpg)
 
 門口的人形紙牌  
 （旁邊是玄彬我知道了）  
 
-[![](https://2.bp.blogspot.com/-kUanUXbKUqo/XE2fZhXnCsI/AAAAAAAAHmg/Mc0CRVN3P-YqKhdyyapxw-cJPL3cyW5TwCLcBGAs/s640/15494801220_20ef470c50_z.jpg)](https://2.bp.blogspot.com/-kUanUXbKUqo/XE2fZhXnCsI/AAAAAAAAHmg/Mc0CRVN3P-YqKhdyyapxw-cJPL3cyW5TwCLcBGAs/s1600/15494801220_20ef470c50_z.jpg)
+![](/images/seoul6g3.jpg)
 
 樓高三層，不難找到喔～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

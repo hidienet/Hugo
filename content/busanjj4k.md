@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
 
 這隻乳酪飲品好好味啊～ （啦啦啦）  
 
-[![](https://1.bp.blogspot.com/-3Ttn7sgQ-2M/XCyfFLDDzsI/AAAAAAAADqM/FR8vGFbgsO0gCU0ybWbK38Mh-WexzzTzgCLcBGAs/s640/42.jpg)](https://1.bp.blogspot.com/-3Ttn7sgQ-2M/XCyfFLDDzsI/AAAAAAAADqM/FR8vGFbgsO0gCU0ybWbK38Mh-WexzzTzgCLcBGAs/s1600/42.jpg)
+![](/images/busanjj4k.jpg)
 
 橙色那隻椪柑味的還有果肉的  
 乳酪跟蜜糖都好香甜  
@@ -19,4 +19,4 @@ tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

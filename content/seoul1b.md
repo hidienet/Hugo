@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
 
 肚餓了，開飯！  
 
-[![](https://1.bp.blogspot.com/-9X2U5PgBXFw/XE1jMHjncnI/AAAAAAAAHIc/RV4hjjfl5SAFmqKk-pYXTB7SFLUc8sI7wCLcBGAs/s640/15377002059_9b4e5e63e9_z.jpg)](https://1.bp.blogspot.com/-9X2U5PgBXFw/XE1jMHjncnI/AAAAAAAAHIc/RV4hjjfl5SAFmqKk-pYXTB7SFLUc8sI7wCLcBGAs/s1600/15377002059_9b4e5e63e9_z.jpg)
+![](/images/seoul1b.jpg)
 
 左上是煨雞湯**닭곰탕**  
 看顏色就知道是不辣的  
@@ -30,4 +30,4 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

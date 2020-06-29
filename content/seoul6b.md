@@ -6,10 +6,10 @@ aliases: [ "/2014/10/seoul-time-day6osulloc-tea-house.html" ]
 tags : [travel - 남한・서울 (首爾), flavor - 飲！, flavor - 螞蟻族]
 ---
 
-很喜歡o’sulloc的[濟州綠茶](http://www.hidie.net/2014/09/tea-osulloc.html)  
-（也很愛water+的[red cafe](http://www.hidie.net/2014/10/osulloc-water-red-cafe.html)）  
+很喜歡o’sulloc的[濟州綠茶](https://hidie.net/osullocpowder/)  
+（也很愛water+的[red cafe](https://hidie.net/osullocredcafe/)）  
 
-[![](https://3.bp.blogspot.com/-i7v3_iM00NU/XE2U1hRHytI/AAAAAAAAHgY/zP2-dbPvrLQTPKzN5iA8ZdrZEgQVZbs6QCLcBGAs/s640/15021351613_0544ba545d_z.jpg)](https://3.bp.blogspot.com/-i7v3_iM00NU/XE2U1hRHytI/AAAAAAAAHgY/zP2-dbPvrLQTPKzN5iA8ZdrZEgQVZbs6QCLcBGAs/s1600/15021351613_0544ba545d_z.jpg)
+![](/images/seoul6b.jpg)
 
 so green～  
 latte容易認，就由latte開始順時針說起  

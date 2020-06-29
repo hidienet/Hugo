@@ -75,35 +75,35 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 食到好飽飽飽就出發去下一站：**生麦**  
 
-![](https://af0tuq.ch.files.1drv.com/y4mCNSJGF-L9fHGq8DGOSH_ddyj_0lBIhYRfowbYVLPl2fMyVqgJY9uc1a-ojvEog0nWLcUS3WBNUwfGnbeGGmbb5fUjP6gJu4G-ZXWZXTVrRy27BQm7o2qg1NUecYV49iXydYQmATiuJhmH8uzLwRufkxK3Vio5123ZRhxlmf2jUjUmLcc9LHgxMAJDpcFiPCNKbd5TymBI2ViNvrsP87LEQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa2d1.jpg)
 
-參觀工場乖乖學習 @**キリンビール 横浜工場**  
+參觀工場乖乖學習 @[キリンビール 横浜工場](https://hidie.net/kanagawa2d/)  
 
-![](https://a10qww.ch.files.1drv.com/y4moX292rlFt1vVgf4FOudyrdsYLkSdPTsahBgEde34_a7M4xvmoRq4zMRrNySbPkdD0rFtSAgLZI_fvgXIbIZ_9pMMDYrkBxOilO5lS0fzwGANhkj-4Y95RUb5EMHfD6VJ_2ZrKBrnlx_fusIKayFykvrO51EzOi9d2R9drkynYouyZpLaYOXuhesq5P-YrT-xYYYqiBbrWfn93wdcvpP7Fw?width=371&height=660&cropmode=none)
+![](/images/kanagawa2d3.jpg)
 
 着住cup noodle去kirin  
 唔同性質唔算踩場啊！  
 
-![](https://bl1cww.ch.files.1drv.com/y4mDDFluljbmOeI1sTG2txbcHHz4OBxiB_FnKO1MOnr4WtT5q1qh7aPWFfacq4m8rKEdkO-abrG985NwIfuaNj5Wl46qXmGkbLZNwAuf3UWN7WHk10svGaAh8gFSr9kMYTGjg4Wn5GKe7rq1pRX0LVv15WsLNz8HA3yAixwa7JF7WFphxb8dhqTypuhV5ek7jDBnmFaqVoetywnz32b4OJ9BA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2d7.jpg)
 
 開始前可以响等候區玩呢樣試嗰樣  
 除咗有影自己樣印做啤酒盒錢罌紀念品  
 仲可以測試自己喜好而推介啤酒  
 
-![](https://af0ruq.ch.files.1drv.com/y4mLmo_q5wq1ESzXoUNiW7GSEVDL1u8ZL0u7afGvYf31SLEOwJiNrCcE5181Q73Bcv9mXjWPYFGEQZTLx0rtWYgEpP-xyBqqcIsf7aYTmDGGuNpMy7leezAfhsz8A9AnCgkIrek3HJmgfy2GZthWtbkBEj-XEy7BP7WqE7cXcNxdC76s4ege3jfGjL3fcNVZ04dgJ5Lly1xgIK8rTX0tbpusg?width=660&height=371&cropmode=none)
+![](/images/kanagawa2d10.jpg)
 
 開始上堂：梗係要同其他牌子比較吓  
 
-![](https://av0nuq.ch.files.1drv.com/y4mg47WlJMHD653cj2l3VW45Rv7tu5MxV-VpbV0pMVUtEXsb-hPAOmPUKNyqUU3ZrE2aZQVfXmS1108NdFbrZLJscIWpn1P3_FaUdp-3JuxmIMmz9FHtM9_DX6rHsiOItR_K9UEocoB25ogn0nxpZUHRj0m30VJdcFBdDWtvsPqGRUtm3ylC1TwXQy_6gMJFPgF2Rdd2etf7UhIPeQB53Ka-w?width=660&height=371&cropmode=none)
+![](/images/kanagawa2d11.jpg)
 
 個工場好乾淨！  
 
-![](https://bv06ww.ch.files.1drv.com/y4m1mpanFMW2-Mzoe1p9EjOPXF8nJaYKTI2b2VM2yFV2qypSZ-KEW-hM5S_JoaUI9Fg1w2IX2Sok9qm_gLPJqkVraQAzr_RkNY3H5o_bX8V4uKCKSAVfH6Z5h38nFrs_R0PDs--RrHpGtESr4XnoXovIFbVrvSjm8Dq18BcLQ8yuQwidl9qwUfZqUX8KEN0AEgpCCmDJlcekGW2n5imVSngCw?width=371&height=660&cropmode=none)
+![](/images/kanagawa2d17.jpg)
 
 參觀無料之外仲有三杯飲（yeah～）  
 有三隻tap梗係會試晒佢！！！  
 
-![](https://bv07ww.ch.files.1drv.com/y4mios3WlyMEGqW_OoyOc9Pxd0_6ql5Ci0X6F4p92qMuc1gux4ppvWUGgvMiDhgltYRMA0KCUf3q3h6oOfmxQsz2UmRRXkm-3yrUHNTB86P4y0s4kFqDA6T2a1b0eKZmvHrQPWavV4S3PNOFQR4LgZzNqqzuNEkE8PJabprg8_kZ5OXNP5X2WFvom9jbtp6KA9jrMaX-FAtCs8_EMewGj51zw?width=371&height=660&cropmode=none)
+![](/images/kanagawa2d18.jpg)
 
 第一杯係最平常見到嘅**一番搾り生ビール**  
 工場內飲，突然好飲咗 XD  
@@ -112,30 +112,30 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 呢隻有kirin酒酵母嘅芝士外層同脆卜卜花生  
 好好食㗎！  
 
-![](https://bf1cww.ch.files.1drv.com/y4moCF9Y6DUzEwB4tL2IYRHcsF3JNyFvLbz20n2aMFxe8L0WC2YThRZMHRUmJAcDfFAA1h0imq6j5kELmUzEpo957pwH82YPtTsLh8CncSmc0aIcZ44bxV7m4sOfrvr5xOWAqp9gOGj3ku17YM9WUkOBe58tPB-Pb5RimJlnnlWgW58mJEskM8yw2I8x0IwlOIHbwrbXeCfLq232ITN-EfKcQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa2d20.jpg)
 
 第二杯**一番搾り〈黒生〉**  
 焙煎咗嘅穀皮而釀到黑黑的  
 呢隻苦味嘛... 唔啱我...  
 
-![](https://bv09ww.ch.files.1drv.com/y4m5YpdUUlc5TCWK7kuqBTUHlzA6ikCi_GhPUrEI-YZJ4XXlsx5yXSZDd8Jv0ZtqXjqO1PHEtlbxYekzHAf-crHCVIpkFsIv_5iPS8rwcA77eaZAx7XQQ1B8AZQkqoYmYL1HFsOQ0mm_PzknUIHPusNUxJCqDD-i3AL4uXwsdocsLIrkD3zsFJ2qDsBFFQtTK8NXAgVF_vqcRDWa7NWVXcxNw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2d21.jpg)
 
 最後係呢到先飲到嘅**一番搾りプレミアム**  
 premium啤係用聚泡聚香氣嘅杯裝住  
 因為隻麥芽味... 好飲過前兩杯好多好多好多呢！  
 
-![](https://bv08ww.ch.files.1drv.com/y4mG8fCwA_2hMoaquAE2TvF9GczqdKgfpAMl117yhNhw3HjszsjlsmBViGbXwoKzn5J9hK3i74tf0cbu0UKNbagTPEXP6JukmMthgiKSPXnMEqIygP403r7W_C0Ftp7-V1uqOL-vXtYBFdTUqjor8uStIk4LxXBLW96wTu5gekagS-HKBsOr5hfrUR8SPl9R2w0WBGQIcr7d1o1zBgsfdcC8g?width=660&height=371&cropmode=none)
+![](/images/kanagawa2d22.jpg)
 
 不過免費啤嘅代價係：20分鐘內要飲晒三杯！  
 
-![](https://bl09ww.ch.files.1drv.com/y4mJf6njUeHk1mgRQbMZdh6YLSMeMPtwU4dH2sfaZNSSgj2o523prRXMRD2Zyku-0J78FWOCltIYW8TQtb8oEAv1K4P3OZFJkrRYv_DW4X5LRSF4SAt7gU7ZGHMp6a2uB1ZF-GYMZ4TbdFyN01hEOxGk1cMn3b9ObL_iQCEAa1-yz39sNb1iD3OkefQhIF-9_c67GONqTXdTlV524MsDjm-5w?width=371&height=660&cropmode=none)
+![](/images/kanagawa2d24.jpg)
 
 唔駛入場費又有得飲唔代表唔會消費啊  
-（誰叫那些「工場限定品」那麼吸引）  
+（鬼叫啲「工場限定品」咁L吸引咩） 
 
-![](https://bl1dww.ch.files.1drv.com/y4mEq1sEe5_QjNqMdgQRhJx1OFMWHZIG_C3Tz6gq2IENpGh8Rs9ecl5oLTcOIwNaYPq11zHzKvJvAA6w7i3dgX7pfc15r38OoXNA-cLxO2NLGKy8OamtiIrWHQO6x5ZAwACcm3-pqx5E7RoNuoa1Wzv8mnj-Itoobco0Ark_q-Yrm6t_cynByvSprPN7Kx18dq6xsltajNk3Q7WIyaTxfirfg?width=660&height=371&cropmode=none)
+![](/images/kanagawa2e.jpg)
 
-**Spring Valley Brewery Yokohama | スプリングバレーブルワリー横浜**  
+[Spring Valley Brewery Yokohama | スプリングバレーブルワリー横浜](https://hidie.net/kanagawa2e/)  
 飲完又飲？係呀！  
 工場隔離有佢哋嘅手工啤餐廳  
 呢度有**定番6種 x food pairing set**  

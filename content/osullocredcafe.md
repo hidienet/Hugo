@@ -8,7 +8,7 @@ tags : [glamorous - 美 ‧ 食]
 
 吃東西很油膩的話，餐後就喝杯red cafe吧！  
 
-[![](https://3.bp.blogspot.com/-QL8zja7uZfY/XE1Qle1EkFI/AAAAAAAAHE0/qCBYXsUpRKQ_i3YCdRme7e94Gb6swpD0gCLcBGAs/s640/15407558381_7c35f67482_z.jpg)](https://3.bp.blogspot.com/-QL8zja7uZfY/XE1Qle1EkFI/AAAAAAAAHE0/qCBYXsUpRKQ_i3YCdRme7e94Gb6swpD0gCLcBGAs/s1600/15407558381_7c35f67482_z.jpg)
+![](/images/osullocredcafe.jpg)
 
 咖啡的氣味，喝下卻沒有咖啡的味道  
 以發酵綠茶提取物來block油脂並排除體外  

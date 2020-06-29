@@ -19,7 +19,7 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 這些預計也不會在釜山指定要吃  
 但又是傳統的韓式料理  
 
-[![](https://3.bp.blogspot.com/-yD474UR-J48/XCyfRfVaETI/AAAAAAAADqQ/s4jtLCatyMwM3YVNoHGOqjQM8tfgXEXugCLcBGAs/s640/43.jpg)](https://3.bp.blogspot.com/-yD474UR-J48/XCyfRfVaETI/AAAAAAAADqQ/s4jtLCatyMwM3YVNoHGOqjQM8tfgXEXugCLcBGAs/s1600/43.jpg)
+![](/images/busanjj4j.jpg)
 
 辣湯麵（짬뽕）跟炸醬麵（자장면）  
   
@@ -38,4 +38,4 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

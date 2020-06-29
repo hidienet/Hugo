@@ -8,40 +8,40 @@ tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
 
 再殺多一餐美味的高級法國菜（！）  
 
-[![](https://4.bp.blogspot.com/-CcfUVgjcwYw/XDC7ToddSUI/AAAAAAAAEXc/wJf9fQgD3wwAq0LTCEmtBKYLhRD7eIB2ACLcBGAs/s640/a1.jpg)](https://4.bp.blogspot.com/-CcfUVgjcwYw/XDC7ToddSUI/AAAAAAAAEXc/wJf9fQgD3wwAq0LTCEmtBKYLhRD7eIB2ACLcBGAs/s1600/a1.jpg)
+![](/images/saigon5h1.jpg)
 
 先來不能吃的美麗法式建築物  
 
-[![](https://4.bp.blogspot.com/-uAryFHdrljQ/XDC7Xxr6lhI/AAAAAAAAEXk/DP9TdrMwjEIUi9utLK1aLu0eqfca138jgCLcBGAs/s640/a2.jpg)](https://4.bp.blogspot.com/-uAryFHdrljQ/XDC7Xxr6lhI/AAAAAAAAEXk/DP9TdrMwjEIUi9utLK1aLu0eqfca138jgCLcBGAs/s1600/a2.jpg)
+![](/images/saigon5h2.jpg)
 
 welcome多士，一點都不小氣的份量  
 多士脆脆的醃肉片也不會太鹹  
 
-[![](https://1.bp.blogspot.com/-97jtQ0uh8D8/XDC7cKSl0iI/AAAAAAAAEXs/mVoqa2wQvy08iDeo3ehfXmgF2z73cNmWACLcBGAs/s640/a3.jpg)](https://1.bp.blogspot.com/-97jtQ0uh8D8/XDC7cKSl0iI/AAAAAAAAEXs/mVoqa2wQvy08iDeo3ehfXmgF2z73cNmWACLcBGAs/s1600/a3.jpg)
+![](/images/saigon5h3.jpg)
 
 再一份welcome菜  
 
-[![](https://2.bp.blogspot.com/-bS_oFEv45Bg/XDC7hTYYNdI/AAAAAAAAEXw/MbcfrhTEdlsYxiITIoPVordZlLxL-Ug4gCLcBGAs/s640/a4.jpg)](https://2.bp.blogspot.com/-bS_oFEv45Bg/XDC7hTYYNdI/AAAAAAAAEXw/MbcfrhTEdlsYxiITIoPVordZlLxL-Ug4gCLcBGAs/s1600/a4.jpg)
+![](/images/saigon5h4.jpg)
 
 熱騰騰小包子  
 
-[![](https://2.bp.blogspot.com/-e8YSPKzScr0/XDC7lZcQDCI/AAAAAAAAEX0/DXTn-Lz3SHYbvaR2lMdoeBz-NK9qCIGawCLcBGAs/s640/a5.jpg)](https://2.bp.blogspot.com/-e8YSPKzScr0/XDC7lZcQDCI/AAAAAAAAEX0/DXTn-Lz3SHYbvaR2lMdoeBz-NK9qCIGawCLcBGAs/s1600/a5.jpg)
+![](/images/saigon5h5.jpg)
 
 把罌粟子彈到成個area  
 吃得有點狼狽呢（尷尬）  
 
-[![](https://1.bp.blogspot.com/-Em9gQKfLt0w/XDC7qqj6z2I/AAAAAAAAEX8/fLwaaVDUGKgUqF0vTOmnOIhqxWqTJs01gCLcBGAs/s640/a6.jpg)](https://1.bp.blogspot.com/-Em9gQKfLt0w/XDC7qqj6z2I/AAAAAAAAEX8/fLwaaVDUGKgUqF0vTOmnOIhqxWqTJs01gCLcBGAs/s1600/a6.jpg)
+![](/images/saigon5h6.jpg)
 
 前菜又要吃鵝肝  
 不要比較不要比較  
 也算好吃就是  
 
-[![](https://1.bp.blogspot.com/-rFNBMdPN-aY/XDC7vZye2bI/AAAAAAAAEYE/f_UMyDGKsOohe05oU17_cXfmzMskzoqrACLcBGAs/s640/a11.jpg)](https://1.bp.blogspot.com/-rFNBMdPN-aY/XDC7vZye2bI/AAAAAAAAEYE/f_UMyDGKsOohe05oU17_cXfmzMskzoqrACLcBGAs/s1600/a11.jpg)
+![](/images/saigon5h7.jpg)
 
 友人的吞拿魚tartar  
 好吸引的樣子呢  
 
-[![](https://4.bp.blogspot.com/-J3JFpTdgHME/XDC70xBDUxI/AAAAAAAAEYI/9YApnWUi7XQmslCeIVrv484yNy40cZE7gCLcBGAs/s640/a12.jpg)](https://4.bp.blogspot.com/-J3JFpTdgHME/XDC70xBDUxI/AAAAAAAAEYI/9YApnWUi7XQmslCeIVrv484yNy40cZE7gCLcBGAs/s1600/a12.jpg)
+![](/images/saigon5h.jpg)
 
 主菜是鴨胸  
 軟滑的鴨肉煙薰味不會過重  
@@ -49,7 +49,7 @@ welcome多士，一點都不小氣的份量
 沒有令人覺得漏的感覺  
 可以要多一份嗎？好好吃啊  
 
-[![](https://4.bp.blogspot.com/-V58H3hhky4w/XDC75SbvU1I/AAAAAAAAEYM/TW_q61OxkFoHT6cacq4BtqXzI2MqfOGiwCLcBGAs/s640/a32.jpg)](https://4.bp.blogspot.com/-V58H3hhky4w/XDC75SbvU1I/AAAAAAAAEYM/TW_q61OxkFoHT6cacq4BtqXzI2MqfOGiwCLcBGAs/s1600/a32.jpg)
+![](/images/saigon5h8.jpg)
 
 友人的牛扒（again?）  
 我卻興趣缺缺的啦啦啦  
@@ -90,7 +90,7 @@ welcome多士，一點都不小氣的份量
 會比較靜，也坐得舒服一點  
 所以就移了玉步（笑）  
 
-[![](https://3.bp.blogspot.com/-J1w9LtF81zg/XDC8PjaO6kI/AAAAAAAAEYg/sRtiXWaruYMdFafEqHZlo6QZNJ0qiRqsgCLcBGAs/s640/a33.jpg)](https://3.bp.blogspot.com/-J1w9LtF81zg/XDC8PjaO6kI/AAAAAAAAEYg/sRtiXWaruYMdFafEqHZlo6QZNJ0qiRqsgCLcBGAs/s1600/a33.jpg)
+![](/images/saigon5h9.jpg)
 
 法式甜品豈能沒有了soufflé  
 火候剛剛好，升得高高的  
@@ -98,7 +98,7 @@ welcome多士，一點都不小氣的份量
 也似吃下甜甜的雲朵  
 夢幻的甜品耶  
 
-[![](https://3.bp.blogspot.com/-Tm1jMlDQwdM/XDC8W-ex-hI/AAAAAAAAEYk/Zofww66W-1UpTkrMwYgIwKA2ZX1ahzmQwCLcBGAs/s640/a24.jpg)](https://3.bp.blogspot.com/-Tm1jMlDQwdM/XDC8W-ex-hI/AAAAAAAAEYk/Zofww66W-1UpTkrMwYgIwKA2ZX1ahzmQwCLcBGAs/s1600/a24.jpg)
+![](/images/saigon5h10.jpg)
 
 再來這道美味的honey mousse  
 甜蜜的味道鬆泡泡的感覺  
@@ -108,7 +108,7 @@ welcome多士，一點都不小氣的份量
 很好吃，而且比soufflé更有特色  
 非常推薦絕對不能錯過！  
 
-[![](https://1.bp.blogspot.com/-xSRoMslAlTQ/XDC8cR75QQI/AAAAAAAAEYo/hC9AZtWfRSs_n6Ya1quuXavQAWHc3UTTwCLcBGAs/s640/a43.jpg)](https://1.bp.blogspot.com/-xSRoMslAlTQ/XDC8cR75QQI/AAAAAAAAEYo/hC9AZtWfRSs_n6Ya1quuXavQAWHc3UTTwCLcBGAs/s1600/a43.jpg)
+![](/images/saigon5h11.jpg)
 
 最後以精緻的petit four結尾  
   
@@ -119,4 +119,4 @@ welcome多士，一點都不小氣的份量
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

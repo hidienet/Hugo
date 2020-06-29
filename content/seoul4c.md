@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
 
 辣到喊的美味（噴火）  
 
-[![](https://1.bp.blogspot.com/-ZA5x_T2BeTY/XE2J27shPPI/AAAAAAAAHbE/WsUkXdvVDYE4oqtmAI38xmSKgxDQSs6lQCLcBGAs/s640/15442763519_2bf1275b58_z.jpg)](https://1.bp.blogspot.com/-ZA5x_T2BeTY/XE2J27shPPI/AAAAAAAAHbE/WsUkXdvVDYE4oqtmAI38xmSKgxDQSs6lQCLcBGAs/s1600/15442763519_2bf1275b58_z.jpg)
+![](/images/seoul4c.jpg)
 
 雖然在網上面看到的都是紅卜卜一堆  
 卻是有三種東西喔～  
@@ -33,11 +33,11 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
 就算一塊皮連同菜類  
 再喝上一杯啤酒也是值得吃的  
 
-[![](https://2.bp.blogspot.com/-RhOrGOv2f_8/XE2J8g2HefI/AAAAAAAAHbI/b1X66ihMKP4RdXcrbRHdUfSBxmGK4aAVwCLcBGAs/s640/15443282418_24e9b93ed3_z.jpg)](https://2.bp.blogspot.com/-RhOrGOv2f_8/XE2J8g2HefI/AAAAAAAAHbI/b1X66ihMKP4RdXcrbRHdUfSBxmGK4aAVwCLcBGAs/s1600/15443282418_24e9b93ed3_z.jpg)
+![](/images/seoul4c1.jpg)
 
 現火碳烤，很適合一班朋友聚餐呢  
 
-[![](https://3.bp.blogspot.com/-PlGb0kq_LOg/XE2KCWMVgFI/AAAAAAAAHbM/bnp2HkJaGzAJfyDZcHmnBl7d7OBcAUrJQCLcBGAs/s640/15443814570_3306475ae7_z.jpg)](https://3.bp.blogspot.com/-PlGb0kq_LOg/XE2KCWMVgFI/AAAAAAAAHbM/bnp2HkJaGzAJfyDZcHmnBl7d7OBcAUrJQCLcBGAs/s1600/15443814570_3306475ae7_z.jpg)
+![](/images/seoul4c2.jpg)
 
 kimchi同湯  
 基本上不辣的菜同kimchi  
@@ -58,4 +58,4 @@ kimchi同湯
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

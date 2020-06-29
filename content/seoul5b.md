@@ -8,7 +8,7 @@ tags : [travel - 남한・서울 (首爾), flavor - 飲！]
 
 「食海鮮一定要配酒，才能好好殺菌」（H氏定理）  
 
-[![](https://1.bp.blogspot.com/-Uiqofi06jhE/XE2Owy_zSxI/AAAAAAAAHdA/QndYyk8ks-QQpWVaGrt3s7wifkFC9FpHgCLcBGAs/s640/15443409879_eb6dda88dd_z.jpg)](https://1.bp.blogspot.com/-Uiqofi06jhE/XE2Owy_zSxI/AAAAAAAAHdA/QndYyk8ks-QQpWVaGrt3s7wifkFC9FpHgCLcBGAs/s1600/15443409879_eb6dda88dd_z.jpg)
+![](/images/seoul5b.jpg)
 
 甜美的米酒  
 濃郁得像奶一樣  
@@ -17,4 +17,4 @@ tags : [travel - 남한・서울 (首爾), flavor - 飲！]
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

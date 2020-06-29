@@ -12,21 +12,21 @@ tags : [lifestyle - 逃離852, travel - Việt Nam・Sài Gòn (saigon)]
 「我不是入西貢，是去西貢」（吐舌）  
   
 day 1  
-[pearl garden - 啤酒雞翼加薯條](http://www.hidie.net/2014/04/day1pearl-garden.html)  
+[pearl garden - 啤酒雞翼加薯條](https://hidie.net/saigon1/)  
   
 day 2  
-[閒逛－濱城市場、市政宮](http://www.hidie.net/2014/04/day2.html)  
-[胡志明市博物館](http://www.hidie.net/2014/04/day2_2.html)  
-[highlands coffee](http://www.hidie.net/2014/04/day2highlands-coffee.html)  
-[統一宮](http://www.hidie.net/2014/04/day2_3.html)  
-[Quán Ăn Ngon](http://www.hidie.net/2014/04/day2quan-ngon.html)  
-[閒逛－紅教堂、郵政局](http://www.hidie.net/2014/04/day2_8284.html)  
-[戰爭遺跡博物館](http://www.hidie.net/2014/04/day2_4.html)  
-[Kem Bạch Đằng](http://www.hidie.net/2014/04/day2kem-bach-ang.html)  
-[Temple Club](http://www.hidie.net/2014/04/day2temple-club.html)  
-[夜逛－市政宮、大劇院](http://www.hidie.net/2014/04/day2_5.html)  
-[Pat‘ à Chou](http://www.hidie.net/2014/04/day2pat-chou.html)  
-[fanny icecream](http://www.hidie.net/2014/04/day2fanny-icecream.html)  
+[閒逛－濱城市場、市政宮](https://hidie.net/saigon2a/)  
+[胡志明市博物館](https://hidie.net/saigon2b/)  
+[highlands coffee](https://hidie.net/saigon2c/)  
+[統一宮](https://hidie.net/saigon2d/)  
+[Quán Ăn Ngon](https://hidie.net/saigon2e/)  
+[閒逛－紅教堂、郵政局](https://hidie.net/saigon2f/)  
+[戰爭遺跡博物館](https://hidie.net/saigon2g/)  
+[Kem Bạch Đằng](https://hidie.net/saigon2h/)  
+[Temple Club](https://hidie.net/saigon2i/)  
+[夜逛－市政宮、大劇院](https://hidie.net/saigon2j/)  
+[Pat‘ à Chou](https://hidie.net/saigon2k/)  
+[fanny icecream](https://hidie.net/saigon2l/)  
   
 day 3  
 [古芝地道 local tour](https://hidie.net/saigon3a/)  

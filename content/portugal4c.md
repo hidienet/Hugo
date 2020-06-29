@@ -15,11 +15,11 @@ tags : [travel - Portugal]
 1732年起到1750年左右啦  
 意大利 x 17世紀 = Barocco式建築風格  
 
-![](images/portugal4c1.jpg)
+![](/images/portugal4c1.jpg)
 
 好闊嘅空間好高嘅樓底  
 
-![](images/portugal4c2.jpg)
+![](/images/portugal4c2.jpg)
 
 大理石啦雕像啦畫啦  
 
@@ -27,11 +27,11 @@ tags : [travel - Portugal]
 
 金光閃閃～  
 
-![](/aimges/portugal4c4.jpg)
+![](/images/portugal4c4.jpg)
 
 拱形頂，兩條橫樑燈顯得好礙眼  
 
-![](/aimges/portugal4c5.jpg)
+![](/images/portugal4c5.jpg)
 
 咁樣好睇啲...  
 

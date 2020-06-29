@@ -15,17 +15,17 @@ tags : [travel - Portugal]
 建喺大西洋側跟嘅河邊  
 係間海軍建築博物館  
 
-![](/images/portugal7h.jpg)
+![](/images/portugal7h1.jpg)
 
 裡面個setting同香港歷史博物館差唔多（嘻）  
 
-![](/images/portugal7h.jpg)
+![](/images/portugal7h2.jpg)
 
 **Nau Quinhentista**  
 博物館隔離隻帆船  
 咪帆船咁樣囉，唔特登上去睇喇  
 
-![](/images/portugal7h.jpg)
+![](/images/portugal7h3.jpg)
 
 無咩好行喇，搭metro返Porto先  
   

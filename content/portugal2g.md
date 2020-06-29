@@ -9,7 +9,7 @@ tags : [travel - Portugal]
 飽到上腦 + jet lag後開始眼瞓嘅時間  
 去飲杯咖啡順便坐吓都唔錯吖  
 
-[![](https://c1.staticflickr.com/5/4282/35644402092_598b7bd3c3_z.jpg)](https://c1.staticflickr.com/5/4282/35644402092_598b7bd3c3_z.jpg)
+![](/images/portugal2g.jpg)
 
 呢杯係iced coffee  
 但係一啲都唔凍㗎  
@@ -22,7 +22,7 @@ tags : [travel - Portugal]
 唔cool down亦唔解渴  
 ...咖啡，都係熱飲好  
 
-[![](https://c1.staticflickr.com/5/4582/24518653248_2864063054_z.jpg)](https://c1.staticflickr.com/5/4582/24518653248_2864063054_z.jpg)
+![](/images/portugal2g1.jpg)
 
 不過應該唔關間café事嘅  
 至少張咖啡豆豆枱幾靚吖～  

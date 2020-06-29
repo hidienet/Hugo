@@ -9,7 +9,7 @@ tags : [lifestyle - 逃離852, travel - ประเทศไทย・กรุ�
 唔知由幾時開始  
 成日都見到司機們嘅後尾枕嘅？  
 
-![](https://c1.staticflickr.com/5/4368/36482897042_6133bd23ea_z.jpg)
+![](/images/bangkok1.jpg)
 
 無計啦搭夜機凌晨先到機場  
 晌機場唔搭的士搭咩喎  

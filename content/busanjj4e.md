@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 
 眼光光飲碗豬肉湯～  
 
-[![](https://4.bp.blogspot.com/-O_J31CJP-j0/XCyhKuTDFkI/AAAAAAAADq8/f5YSoORa6Zg2qMam1JVnx3vhe_wjI3dDwCLcBGAs/s640/48.jpg)](https://4.bp.blogspot.com/-O_J31CJP-j0/XCyhKuTDFkI/AAAAAAAADq8/f5YSoORa6Zg2qMam1JVnx3vhe_wjI3dDwCLcBGAs/s1600/48.jpg)
+![](/images/busanjj4e.jpg)
 
 其實是湯飯⋯⋯  
 是把飯都倒進去才吃  
@@ -23,7 +23,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 然後把早上的魚刺身（회）也放進去吃  
 （一來懶得拿著走二來怕魚生會壞掉）  
 
-[![](https://3.bp.blogspot.com/-2Xzh015Ccro/XCyhRWo1mrI/AAAAAAAADrE/VuX6ubbl-bswLZ4bgETsoYTVN0IMUg-owCLcBGAs/s640/49.jpg)](https://3.bp.blogspot.com/-2Xzh015Ccro/XCyhRWo1mrI/AAAAAAAADrE/VuX6ubbl-bswLZ4bgETsoYTVN0IMUg-owCLcBGAs/s1600/49.jpg)
+![](/images/busanjj4e1.jpg)
 
 店面有大大的豬頭，易認易找  
 店員一直在切切切切切，量很大  
@@ -31,4 +31,4 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

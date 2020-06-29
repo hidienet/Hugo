@@ -9,13 +9,13 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
 夜機到達，下飛機搭的士到了酒店已經凌晨  
 好在附近還有很多酒吧未關門  
 
-[![](https://3.bp.blogspot.com/-mQ63C6sEksc/XDCEj0D8SZI/AAAAAAAAEOA/Xh274FFTZWQSg3hVtzHFinyu-0xIoYpfACLcBGAs/s640/50.jpg)](https://3.bp.blogspot.com/-mQ63C6sEksc/XDCEj0D8SZI/AAAAAAAAEOA/Xh274FFTZWQSg3hVtzHFinyu-0xIoYpfACLcBGAs/s1600/50.jpg)
+![](/images/saigon1a.jpg)
 
 喝一杯再講～  
 啤酒不太香，比水好喝一點就是  
 想食炸物就點了下午茶餐型的薯條雞翼  
 
-[![](https://4.bp.blogspot.com/-JaxKNi94978/XDCEpBMCN5I/AAAAAAAAEOE/sGb5uxnmUQM70vQKuMLQA4lCyK74v0rUACLcBGAs/s640/51.jpg)](https://4.bp.blogspot.com/-JaxKNi94978/XDCEpBMCN5I/AAAAAAAAEOE/sGb5uxnmUQM70vQKuMLQA4lCyK74v0rUACLcBGAs/s1600/51.jpg)
+![](/images/saigon1.jpg)
 
 如圖，樣子一點都不吸引  
 不過肚子餓還是把它們清光光  
@@ -25,4 +25,4 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

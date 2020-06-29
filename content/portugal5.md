@@ -54,7 +54,7 @@ yeah！葡撻！
 仲好好太陽㖭  
 可以繼續逛吓喇  
 
-![](images/portugal5g.jpg)
+![](/images/portugal5g.jpg)
 
 [Paço dos Condes de Barcelos](https://hidie.net/portugal5g/)  
 

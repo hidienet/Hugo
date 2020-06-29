@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 連街道也稱為「解酒湯一條街」  
 在大陵苑附近，走路就到超方便  
 
-[![](https://1.bp.blogspot.com/-X-F34IewjJc/XCymBBkMU1I/AAAAAAAADt0/dJ91I9TFQwkRSlvp8JM0lHQcgX4iSWstQCLcBGAs/s640/73.jpg)](https://1.bp.blogspot.com/-X-F34IewjJc/XCymBBkMU1I/AAAAAAAADt0/dJ91I9TFQwkRSlvp8JM0lHQcgX4iSWstQCLcBGAs/s1600/73.jpg)
+![](/images/busanjj3b.jpg)
 
 其實解酒湯是豆芽湯  
 因為據說豆芽菜裏含有消化酶  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

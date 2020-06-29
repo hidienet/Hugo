@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - Portugal]
 同民宿嘅屋主拎完鎖匙就一齊再向上行  
 去咗一間叫**Muralhas do Olival**嘅cafe食早餐  
 
-[![](https://c1.staticflickr.com/5/4236/35772640676_ab034470b3_z.jpg)](https://c1.staticflickr.com/5/4236/35772640676_ab034470b3_z.jpg)
+![](/images/portugal2c.jpg)
 
 有鹹嘅甜嘅包包餡餅同埋咖啡仔咁啦  
 屋主話當地人都係咁樣食㗎咋  

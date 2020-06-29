@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
 
 車站裡面買的  
 
-[![](https://2.bp.blogspot.com/-J3Gc8lPU2oQ/XCygxuRbxfI/AAAAAAAADqs/z-VPClM_RFYa3FpN92TfsWuALFJvXB7SwCLcBGAs/s640/46.jpg)](https://2.bp.blogspot.com/-J3Gc8lPU2oQ/XCygxuRbxfI/AAAAAAAADqs/z-VPClM_RFYa3FpN92TfsWuALFJvXB7SwCLcBGAs/s1600/46.jpg)
+![](/images/busanjj4g.jpg)
 
 不是什麼神奇新穎的東西  
 只是很香忍不住買而已  
@@ -19,4 +19,4 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

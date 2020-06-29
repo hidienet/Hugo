@@ -8,7 +8,7 @@ tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
 
 又試試年輕人的玩意  
 
-[![](https://2.bp.blogspot.com/-CI2nyaa_s1w/XE1xlqRV-jI/AAAAAAAAHOI/yDHo8ZICSCgEOgXNee_zTdseDIMcsdpMgCLcBGAs/s640/15384649329_db73452730_z.jpg)](https://2.bp.blogspot.com/-CI2nyaa_s1w/XE1xlqRV-jI/AAAAAAAAHOI/yDHo8ZICSCgEOgXNee_zTdseDIMcsdpMgCLcBGAs/s1600/15384649329_db73452730_z.jpg)
+![](/images/seoul2d.jpg)
 
 粟米筒雪糕（咬J 哈哈哈）  
 朱古力味是65%意大利朱古力  
@@ -27,4 +27,4 @@ vanilla就一般般
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

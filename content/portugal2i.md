@@ -10,26 +10,26 @@ tags : [travel - Portugal]
 全長897公里，從西班牙到葡萄牙  
 一路向西咁流入大西洋嘅河  
 
-[![](https://c1.staticflickr.com/5/4544/26739688489_efb72e477f_z.jpg)](https://c1.staticflickr.com/5/4544/26739688489_efb72e477f_z.jpg)
+![](/images/portugal2i1.jpg)
 
 响河邊欣賞日落  
 面對住對岸嘅**Vila Nova de Gaia**  
 真係件賞心樂事呢  
 
-[![](https://c1.staticflickr.com/5/4534/38459587396_0288723803_z.jpg)](https://c1.staticflickr.com/5/4534/38459587396_0288723803_z.jpg)
+![](/images/portugal2i2.jpg)
 
 背向 (Porto呢邊岸)係**Barrio La Ribeira**  
 
-[![](https://c1.staticflickr.com/5/4575/37628840115_d6996aa589_z.jpg)](https://c1.staticflickr.com/5/4575/37628840115_d6996aa589_z.jpg)
+![](/images/portugal2i3.jpg)
 
 沿住條路行向左望見到個窿  
 
-[![](https://c1.staticflickr.com/5/4527/38483884832_1dfe96a993_z.jpg)](https://c1.staticflickr.com/5/4527/38483884832_1dfe96a993_z.jpg)
+![](/images/portugal2i4.jpg)
 
 有名㗎佢，叫**Postigo do Carvão**  
 可以穿返入R. da Fonte Taurina嘅  
 
-[![](https://c1.staticflickr.com/5/4285/35003885773_173c72c443_z.jpg)](https://c1.staticflickr.com/5/4285/35003885773_173c72c443_z.jpg)
+![](/images/portugal2i5.jpg)
 
 抬頭一望，就係鋼鐵拱橋**Ponte D. Luís I**  
 响1881年建造，1886年完工  
@@ -42,21 +42,21 @@ tags : [travel - Portugal]
 呢條橋比La Tour Eiffel仲早三年面世  
 睇落個樣都同個塔嘅設計差唔多  
 
-[![](https://c1.staticflickr.com/5/4579/24643807348_df0020a3e4_z.jpg)](https://c1.staticflickr.com/5/4579/24643807348_df0020a3e4_z.jpg)
+![](/images/portugal2i.jpg)
 
 上下層兩側都係可以行人  
 上層仲係行輕鐵嘅  
 今朝都係搭佢嚟Porto㗎  
 
-[![](https://c1.staticflickr.com/5/4571/26740416259_6ecfc88297_z.jpg)](https://c1.staticflickr.com/5/4571/26740416259_6ecfc88297_z.jpg)
+![](/images/portugal2i6.jpg)
 
 越行近就越感受到個宏偉  
 
-[![](https://c1.staticflickr.com/5/4563/37629418675_d409ecf094_z.jpg)](https://c1.staticflickr.com/5/4563/37629418675_d409ecf094_z.jpg)
+![](/images/portugal2i7.jpg)
 
 下層除咗人仲係行車嘅  
 
-[![](https://c1.staticflickr.com/5/4543/26740795769_6e3a6eba54_z.jpg)](https://c1.staticflickr.com/5/4543/26740795769_6e3a6eba54_z.jpg)
+![](/images/portugal2i8.jpg)
 
 穿過Ponte D. Luís I  
 就有前面嘅**Ponte. do Infante**  
@@ -76,7 +76,7 @@ by the way，全歐洲唯二嘅有六條橋嘅城市Porto
 佢嘅對面岸Vila Nova de Gaia  
 就係全歐洲另一個擁有六條橋嘅城市喇 XDDD  
 
-[![](https://c1.staticflickr.com/5/4582/38517071231_44edc7bd15_z.jpg)](https://c1.staticflickr.com/5/4582/38517071231_44edc7bd15_z.jpg)
+![](/images/portugal2i9.jpg)
 
 望多陣條河先再行...  
   

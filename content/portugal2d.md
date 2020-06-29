@@ -7,18 +7,16 @@ tags : [travel - Portugal]
 ---
 
 食完早餐就响Porto周圍行吓  
-
 先行呢條Praça da Liberdade（自由廣場）
 
-![](https://c1.staticflickr.com/5/4209/35681439531_66d7d999e5_z.jpg)
+![](/images/portugal2d.jpg)
 
 條街好多禿枝所以顯得呢兩棵木蘭好突出
 
   
 
-點知較錯咗個曝光
-
-影出來好似落暴雪咁，哈哈哈
+點知較錯咗個曝光  
+影出來好似[落暴雪](https://hidie.net/bulgaria5c/)咁，哈哈哈
 
   
 

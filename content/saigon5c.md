@@ -20,7 +20,7 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
 就是到五區的安東  
 前幾天去了濱城，沒甚麼好買  
 
-[![](https://1.bp.blogspot.com/-5_cRDJzesLo/XDBPAiItweI/AAAAAAAAD-U/tjA7Gl7IGVUrPssAlaSo6MWYM_CT61bTwCLcBGAs/s640/06.jpg)](https://1.bp.blogspot.com/-5_cRDJzesLo/XDBPAiItweI/AAAAAAAAD-U/tjA7Gl7IGVUrPssAlaSo6MWYM_CT61bTwCLcBGAs/s1600/06.jpg)
+![](/images/saigon5c.jpg)
 
 今天去的安東廣場  
 感覺就是走進羅湖城一樣  
@@ -32,7 +32,7 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
 要我把這些東西買來送出去  
 簡直是侮辱自己的眼光（哼）  
 
-[![](https://4.bp.blogspot.com/-GRokj8XGIHg/XDBPFnNQaNI/AAAAAAAAD-Y/03cOLmCZ640etd323HMgiGG7yc_ZdUQZwCLcBGAs/s640/07.jpg)](https://4.bp.blogspot.com/-GRokj8XGIHg/XDBPFnNQaNI/AAAAAAAAD-Y/03cOLmCZ640etd323HMgiGG7yc_ZdUQZwCLcBGAs/s1600/07.jpg)
+![](/images/saigon5c1.jpg)
 
 走前一點，是安東廣場的前身安東市場  
 樣子跟濱城市場一樣，感覺地道一些  
@@ -43,4 +43,4 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

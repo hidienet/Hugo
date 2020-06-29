@@ -8,82 +8,53 @@ tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
 
 超超超好吃的越南蛋餅在此！  
 
-[![](https://1.bp.blogspot.com/-Ha0gHmeQWU8/XDC4wVGxImI/AAAAAAAAEVc/iWPzb6QPxKktl1qfgNP6lQUymPT8xB-PwCLcBGAs/s640/l.jpg)](https://1.bp.blogspot.com/-Ha0gHmeQWU8/XDC4wVGxImI/AAAAAAAAEVc/iWPzb6QPxKktl1qfgNP6lQUymPT8xB-PwCLcBGAs/s1600/l.jpg)
+![](/images/saigon4h.jpg)
 
-Bánh xèo（越南蛋餅）
-
-好啦，樣子好普通
-
-材料都是普普通通沒啥特別
-
-不過就是天剎媽的好吃絕無誇張
-
-雖然是蛋、小蝦子、芽菜等等
-
-但是真的簡單得來又好吃
-
-當然調味料是一大功勞
-
-所有東西都很新鮮
-
-超鮮味，蛋餅的邊焦脆焦脆
-
-蝦子鮮嫩彈牙；芽菜爆爽
-
-除了好吃都是好吃！
-
+**Bánh xèo（越南蛋餅）**  
+好啦，樣子好普通  
+材料都是普普通通沒啥特別  
+不過就是天剎媽的好吃絕無誇張  
+雖然是蛋、小蝦子、芽菜等等  
+但是真的簡單得來又好吃  
+當然調味料是一大功勞  
+所有東西都很新鮮  
+超鮮味，蛋餅的邊焦脆焦脆  
+蝦子鮮嫩彈牙；芽菜爆爽  
+除了好吃都是好吃！  
 加上調味魚露味道更豐富
 
-[![](https://1.bp.blogspot.com/-rQRFXohJglc/XDC41CvoDOI/AAAAAAAAEVg/tDN-FeKvFaEw_SVCj7Zj5NZ1McZos0SRwCLcBGAs/s640/k.jpg)](https://1.bp.blogspot.com/-rQRFXohJglc/XDC41CvoDOI/AAAAAAAAEVg/tDN-FeKvFaEw_SVCj7Zj5NZ1McZos0SRwCLcBGAs/s1600/k.jpg)
+![](/images/saigon4h1.jpg)
 
-配新鮮的菜跟香葉同吃
-
-又有另一番風味
-
+配新鮮的菜跟香葉同吃  
+又有另一番風味  
 感覺就是把油膩感再平衡一些
 
-[![](https://3.bp.blogspot.com/-grvLMt_KVQY/XDC46vPbApI/AAAAAAAAEVk/bqa9Jl0Kges7zZTUJHkiTL2tEdO4MgtjACLcBGAs/s640/j.jpg)](https://3.bp.blogspot.com/-grvLMt_KVQY/XDC46vPbApI/AAAAAAAAEVk/bqa9Jl0Kges7zZTUJHkiTL2tEdO4MgtjACLcBGAs/s1600/j.jpg)
+![](/images/saigon4h2.jpg)
 
 廚師們煮呀煮一直沒停過手
 
-[![](https://3.bp.blogspot.com/-HAUauGY_0UE/XDC4_OMpg4I/AAAAAAAAEVo/nV2BVU-dfDkGCGXU9LuDCSU34VyxVKWqQCLcBGAs/s640/h.jpg)](https://3.bp.blogspot.com/-HAUauGY_0UE/XDC4_OMpg4I/AAAAAAAAEVo/nV2BVU-dfDkGCGXU9LuDCSU34VyxVKWqQCLcBGAs/s1600/h.jpg)
+![](/images/saigon4h3.jpg)
 
 宵夜時段，超多人
 
   
 
-到這裡是搭的士
-
-一上車跟司機大概描述
-
-他已經知道是哪裡
-
-然後又興奮地說他也很喜歡到那裏吃
-
-聽當地人都喜歡的地方
-
-就覺得應該是真的好吃菜會這樣吧
-
-至少這不是騙遊客的食府
-
-到目的地的時候，看傻了眼
-
-因為真的超～ 多～ 人～
-
-地方又點像迷宮
-
-很大，不過周圍都是檯
-
-每檯都坐滿人，一家大小的三五知己
-
-當然少不了情侶們還有遊客們
-
-大家都同吃同一到菜
-
-（對，這裡是獨孤一味的）
-
-終於有點融入當地的感覺了
-
+到這裡是搭的士  
+一上車跟司機大概描述  
+他已經知道是哪裡  
+然後又興奮地說他也很喜歡到那裏吃  
+聽當地人都喜歡的地方  
+就覺得應該是真的好吃菜會這樣吧  
+至少這不是騙遊客的食府  
+到目的地的時候，看傻了眼  
+因為真的超～ 多～ 人～  
+地方又點像迷宮  
+很大，不過周圍都是檯  
+每檯都坐滿人，一家大小的三五知己  
+當然少不了情侶們還有遊客們  
+大家都同吃同一到菜  
+（對，這裡是獨孤一味的）  
+終於有點融入當地的感覺了  
 好開心呢～
 
   
@@ -92,4 +63,4 @@ Bánh xèo（越南蛋餅）
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
 
 全店就只有這炖雞一味  
 
-[![](https://3.bp.blogspot.com/-OBfp-dHy2Lg/XE173AUCOWI/AAAAAAAAHUY/oEz2hV3OXx8s31skCBzDBWwhnIvTqnAxQCLcBGAs/s640/14963534153_755b7b7785_z.jpg)](https://3.bp.blogspot.com/-OBfp-dHy2Lg/XE173AUCOWI/AAAAAAAAHUY/oEz2hV3OXx8s31skCBzDBWwhnIvTqnAxQCLcBGAs/s1600/14963534153_755b7b7785_z.jpg)
+![](/images/seoul3c.jpg)
 
 味道源自慶尚北道安東的傳統市場胡同  
 將雞與青瓜、紅蘿蔔、薯仔、洋蔥、辣椒、蔥  
@@ -22,4 +22,4 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

@@ -8,7 +8,7 @@ tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
 
 好大的一杯，忍不住拿來玩...  
 
-[![](https://2.bp.blogspot.com/-ntWM_H8sXv8/XE2Q2USnlrI/AAAAAAAAHd4/uSkCVZJT1lo-USQfBih0494gQOoPGoxIACLcBGAs/s640/15010771863_4c7bd3c279_z.jpg)](https://2.bp.blogspot.com/-ntWM_H8sXv8/XE2Q2USnlrI/AAAAAAAAHd4/uSkCVZJT1lo-USQfBih0494gQOoPGoxIACLcBGAs/s1600/15010771863_4c7bd3c279_z.jpg)
+![](/images/seoul5d.jpg)
 
 （這是要扮代言人的樣子同pose嗎白痴？）  
 **咖啡冰 커피빙수**  
@@ -31,4 +31,4 @@ tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

@@ -8,7 +8,7 @@ tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
 
 像真雪的粉粉感覺在口中融化 （陶醉）  
 
-[![](https://1.bp.blogspot.com/-xcXjtAGzC7o/XE1_Y-G0C0I/AAAAAAAAHWU/i1pjoxOZBu89u6K_wzgZ60GgAZOXX1BIgCLcBGAs/s640/15607451975_c517319873_z.jpg)](https://1.bp.blogspot.com/-xcXjtAGzC7o/XE1_Y-G0C0I/AAAAAAAAHWU/i1pjoxOZBu89u6K_wzgZ60GgAZOXX1BIgCLcBGAs/s1600/15607451975_c517319873_z.jpg)
+![](/images/seoul3e.jpg)
 
 餐盤紙印的那球블루베리치즈설빙（藍莓芝士雪冰）  
 超似鬼眼俠呀哈哈哈  
@@ -39,4 +39,4 @@ K了整碗都不會覺得很甜
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

@@ -10,7 +10,7 @@ Pat‘ à Chou是間法式cafe
 不過我只是對這蝴蝶酥有興趣  
 所以買走邊行邊食  
 
-[![](https://2.bp.blogspot.com/-om8TGk-MO44/XDBhsSeoHmI/AAAAAAAAEGw/J4MHRcvNAeEP7NMNhKBPvLc4WBVo8yPswCLcBGAs/s640/79.jpg)](https://2.bp.blogspot.com/-om8TGk-MO44/XDBhsSeoHmI/AAAAAAAAEGw/J4MHRcvNAeEP7NMNhKBPvLc4WBVo8yPswCLcBGAs/s1600/79.jpg)
+![](/images/saigon2k.jpg)
 
 一大塊蝴蝶酥（開心）  
 牛油味濃，不會太甜  
@@ -21,4 +21,4 @@ Pat‘ à Chou是間法式cafe
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

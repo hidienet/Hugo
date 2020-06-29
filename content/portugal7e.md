@@ -15,7 +15,7 @@ tags : [travel - Portugal]
 全場4公里一共有999個arch  
 係葡萄牙第二長  
 
-![](images/portugal7e1.jpg)
+![](/images/portugal7e1.jpg)
 
 黐住條引水道見到呢座嘢  
 **Igreja de Santa Clara**  

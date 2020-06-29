@@ -8,7 +8,7 @@ tags : [travel - 남한・서울 (首爾)]
 
 稱為平價置裝去處  
 
-[![](https://4.bp.blogspot.com/-fhhSDjYCJ8A/XE2CPIKDftI/AAAAAAAAHX4/UXLN5aWou4IUOZKIxfEQLjHRmyrbm67NQCLcBGAs/s640/15585085006_d7bec74866_z.jpg)](https://4.bp.blogspot.com/-fhhSDjYCJ8A/XE2CPIKDftI/AAAAAAAAHX4/UXLN5aWou4IUOZKIxfEQLjHRmyrbm67NQCLcBGAs/s1600/15585085006_d7bec74866_z.jpg)
+![](/images/seoul3g.jpg)
 
 hello apm、migliore好舊  
 就似廣州批發市場  
@@ -18,7 +18,7 @@ disigner’s club做批發的
 比這裡的更適合自己  
 但也有入手沒有放血就是  
 
-[![](https://2.bp.blogspot.com/-6LtFAwcYvJo/XE2CUTOWYnI/AAAAAAAAHX8/yshrbid0dtMgs7UDuoUSGuN4neIqaNK2gCLcBGAs/s640/14988617103_937c5483b2_z.jpg)](https://2.bp.blogspot.com/-6LtFAwcYvJo/XE2CUTOWYnI/AAAAAAAAHX8/yshrbid0dtMgs7UDuoUSGuN4neIqaNK2gCLcBGAs/s1600/14988617103_937c5483b2_z.jpg)
+![](/images/seoul3g1.jpg)
 
 今年三月開幕的新地標  
 東大門設計廣場Design Plaza  
@@ -32,4 +32,4 @@ disigner’s club做批發的
   
 \-----------------------------------------------  
   
-延伸閱讀：[seoul time（7D7N）](http://www.hidie.net/2014/11/seoul-time7d7n.html)
+延伸閱讀：[seoul time（7D7N）](https://hidie.net/seoul7d7n/)

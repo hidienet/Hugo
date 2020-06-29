@@ -11,7 +11,7 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
 又真的找不到不吃的理由啊  
 （「飽」也不是不吃的理由嗎？）  
 
-[![](https://2.bp.blogspot.com/-JXabGY2pH-U/XCydmBMAnpI/AAAAAAAADpE/71Rcfb1-wikE0Ui4aAMvLmLzKRnjUbCTACLcBGAs/s640/32.jpg)](https://2.bp.blogspot.com/-JXabGY2pH-U/XCydmBMAnpI/AAAAAAAADpE/71Rcfb1-wikE0Ui4aAMvLmLzKRnjUbCTACLcBGAs/s1600/32.jpg)
+![](/images/busanjj5b.jpg)
 
 紅砂糖跟黃豆粉年糕是自己加的  
 超濃郁的紅豆味，薄薄的豆皮一咬就爆沙  
@@ -24,4 +24,4 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

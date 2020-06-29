@@ -78,7 +78,7 @@ tags : [flavor - 行膳積腹, travel - Portugal]
 嗱～ post㗎喇  
   
 
-[![](https://c1.staticflickr.com/1/852/41608457952_0a3558a6ba_z.jpg)](https://c1.staticflickr.com/1/852/41608457952_0a3558a6ba_z.jpg)
+![](/images/portugal8e2.jpg)
 
 碗肉湯係咁樣樣嘅  
 係好濃好濃嘅湯  

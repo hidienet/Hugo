@@ -9,11 +9,11 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 在daiso裡面玩具部裡  
 發現可愛的膠膠動物們  
 
-[![](https://2.bp.blogspot.com/-nGgYSnwLtCU/XCydcz6N1KI/AAAAAAAADo8/xMkKgewpo_07KB3cSAr2pg9fnF0rTp3PQCLcBGAs/s640/31.jpg)](https://2.bp.blogspot.com/-nGgYSnwLtCU/XCydcz6N1KI/AAAAAAAADo8/xMkKgewpo_07KB3cSAr2pg9fnF0rTp3PQCLcBGAs/s1600/31.jpg)
+![](/images/busanjj5c.jpg)
 
 但怎麼看起來那麼18+？(羞）  
 哈哈～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

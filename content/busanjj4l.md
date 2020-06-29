@@ -10,7 +10,7 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 但天寒地凍的1月夜晚當然沒有下水的打算  
 只想看一下景點：晚上的廣安大橋（광안대교）  
 
-[![](https://3.bp.blogspot.com/-Iqm1HI2sNho/XCye6lzDuXI/AAAAAAAADqE/QcjOC1Hq4S46WzLq4OSmtW7TtjaEp3I1QCLcBGAs/s640/41.jpg)](https://3.bp.blogspot.com/-Iqm1HI2sNho/XCye6lzDuXI/AAAAAAAADqE/QcjOC1Hq4S46WzLq4OSmtW7TtjaEp3I1QCLcBGAs/s1600/41.jpg)
+![](/images/busanjj4l.jpg)
 
   
 「哇～ 好浪漫的樣子」  
@@ -26,4 +26,4 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

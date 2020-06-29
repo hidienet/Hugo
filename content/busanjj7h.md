@@ -16,7 +16,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 在街上走走逛逛後覺得肚餓  
 yeah～  
 
-[![](https://3.bp.blogspot.com/-OI4wrU9BlG0/XCjL-wZp4YI/AAAAAAAADi0/IHRL4F-7-W0GiI8hr4GHnwMiG4YuSGIIACLcBGAs/s640/18.jpg)](https://3.bp.blogspot.com/-OI4wrU9BlG0/XCjL-wZp4YI/AAAAAAAADi0/IHRL4F-7-W0GiI8hr4GHnwMiG4YuSGIIACLcBGAs/s1600/18.jpg)
+![](/images/busanjj7h.jpg)
 
 紅色的甜辣醬  
 不會很辣，卻味道濃郁  
@@ -33,4 +33,4 @@ yeah～
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

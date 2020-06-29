@@ -9,12 +9,12 @@ tags : [travel - Portugal]
 嚟Porto一定要食Francesinhas  
 要是Francesinhas就唔可以錯過元祖店Café Santiago  
 
-[![](https://c1.staticflickr.com/5/4261/35003586553_bd50b0a6a5_z.jpg)](https://c1.staticflickr.com/5/4261/35003586553_bd50b0a6a5_z.jpg)
+![](/images/portugal2f.jpg)
 
 成！舊！磚！頭！咁！大！  
 仲要有大堆炸薯條！  
 
-[![](https://c1.staticflickr.com/5/4525/38357907182_08082e6146_z.jpg)](https://c1.staticflickr.com/5/4525/38357907182_08082e6146_z.jpg)
+![](/images/portugal2f1.jpg)
 
 （剖面）  
 比公司三文治更更更豐盛  
@@ -30,9 +30,9 @@ tags : [travel - Portugal]
 是但啦，fushion完同港式法蘭西多士差唔多樣  
 一個鹹一個甜嘅分別... 啩......  
 
-[![](https://c1.staticflickr.com/5/4544/38357906712_19a827089b_z.jpg)](https://c1.staticflickr.com/5/4544/38357906712_19a827089b_z.jpg)
+![](/images/portugal2f2.jpg)
 
-（Garrafeira Paços）  
+**Garrafeira Paços**  
 嘢食唔係配咖啡就係配酒㗎啦  
 呢枝當然地係葡萄牙出產  
 酸酸地解吓膩都OK嘅...  

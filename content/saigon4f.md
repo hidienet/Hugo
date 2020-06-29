@@ -8,35 +8,35 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
 
 最後一個行程，都是吃的  
 
-[![](https://2.bp.blogspot.com/-E0dxlLwP0Js/XDBQ60wL6aI/AAAAAAAAEAM/oU8qn0XxifwtyveNFIwoI_rbOrTPYpS3wCLcBGAs/s640/23.jpg)](https://2.bp.blogspot.com/-E0dxlLwP0Js/XDBQ60wL6aI/AAAAAAAAEAM/oU8qn0XxifwtyveNFIwoI_rbOrTPYpS3wCLcBGAs/s1600/23.jpg)
+![](/images/saigon4f.jpg)
 
 細細粒的椰子糖  
 看製造工場其實挺悶  
 弄得一直在這裡拍照拍照  
 活像個飲食版記者般在拍製作過程  
 
-[![](https://1.bp.blogspot.com/-s-m-1L1DjXU/XDBRAFlLvPI/AAAAAAAAEAU/lk-gDThiFX8P8qhXz0Vmvq3ZOC4jLxlJACLcBGAs/s640/24.jpg)](https://1.bp.blogspot.com/-s-m-1L1DjXU/XDBRAFlLvPI/AAAAAAAAEAU/lk-gDThiFX8P8qhXz0Vmvq3ZOC4jLxlJACLcBGAs/s1600/24.jpg)
+![](/images/saigon4f1.jpg)
 
 先把椰子外面剖開  
 然後「汁」「肉」分離  
 
-[![](https://2.bp.blogspot.com/-C_euDCOSJLI/XDBRFqPOVlI/AAAAAAAAEAY/vxaHttiz5XwgqZcPqCo_9hpBDhSsWNd-gCLcBGAs/s640/25.jpg)](https://2.bp.blogspot.com/-C_euDCOSJLI/XDBRFqPOVlI/AAAAAAAAEAY/vxaHttiz5XwgqZcPqCo_9hpBDhSsWNd-gCLcBGAs/s1600/25.jpg)
+![](/images/saigon4f2.jpg)
 
 椰子皮拿來生火  
 
-[![](https://1.bp.blogspot.com/-FqCGc5fVJtc/XDBRLZfFlII/AAAAAAAAEAc/8kRFo3i_9eQX24rqyYBcI9w2qzpsQGtVACLcBGAs/s640/26.jpg)](https://1.bp.blogspot.com/-FqCGc5fVJtc/XDBRLZfFlII/AAAAAAAAEAc/8kRFo3i_9eQX24rqyYBcI9w2qzpsQGtVACLcBGAs/s1600/26.jpg)
+![](/images/saigon4f3.jpg)
 
 汁就在鍋內邊攪拌邊煮  
 
-[![](https://4.bp.blogspot.com/-wSqsbZ2KENg/XDBRQIFxERI/AAAAAAAAEAg/xGN3c_50IR4jkRrouPmpWb6h6uo8naoEQCLcBGAs/s640/27.jpg)](https://4.bp.blogspot.com/-wSqsbZ2KENg/XDBRQIFxERI/AAAAAAAAEAg/xGN3c_50IR4jkRrouPmpWb6h6uo8naoEQCLcBGAs/s1600/27.jpg)
+![](/images/saigon4f4.jpg)
 
 煮好就放涼  
 
-[![](https://2.bp.blogspot.com/-nO-Hoe_ppys/XDBRVYqHH2I/AAAAAAAAEAo/DLBTSciyznAxE8zNPfDn_Hzjkm4Rh-7-ACLcBGAs/s640/28.jpg)](https://2.bp.blogspot.com/-nO-Hoe_ppys/XDBRVYqHH2I/AAAAAAAAEAo/DLBTSciyznAxE8zNPfDn_Hzjkm4Rh-7-ACLcBGAs/s1600/28.jpg)
+![](/images/saigon4f5.jpg)
 
 攤涼後入mold拉成長條長條  
 
-[![](https://3.bp.blogspot.com/-Th1rzBSX0WQ/XDBRbWF6skI/AAAAAAAAEA0/SqHAfZikRjYdrZi8cUalH9L3kBvPmDsLQCLcBGAs/s640/29.jpg)](https://3.bp.blogspot.com/-Th1rzBSX0WQ/XDBRbWF6skI/AAAAAAAAEA0/SqHAfZikRjYdrZi8cUalH9L3kBvPmDsLQCLcBGAs/s1600/29.jpg)
+![](/images/saigon4f6.jpg)
 
 再切切切切切成粒粒即成  
   
@@ -48,10 +48,10 @@ tags : [travel - Việt Nam・Sài Gòn (saigon)]
 分不了分不了～  
   
 
-[![](https://4.bp.blogspot.com/-HjPLXCf8Ky8/XDBRikqT2pI/AAAAAAAAEA8/Eub2FtDBoLgMCSn1b88EV160cnzE8J7PQCLcBGAs/s640/30.jpg)](https://4.bp.blogspot.com/-HjPLXCf8Ky8/XDBRikqT2pI/AAAAAAAAEA8/Eub2FtDBoLgMCSn1b88EV160cnzE8J7PQCLcBGAs/s1600/30.jpg)
+![](/images/saigon4f7.jpg)
 
 （之後坐船回去，day tour行程完畢）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[西貢西貢食食貢（6D5N）](http://www.hidie.net/2014/04/6d5n.html)
+延伸閱讀：[西貢西貢食食貢（6D5N）](https://hidie.net/saigon6d5n/)

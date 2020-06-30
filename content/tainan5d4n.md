@@ -60,8 +60,7 @@ day 5
 美味延續：  
 
 [7-11 石安牧場溫泉蛋](http://www.hidie.net/2014/09/7-11.html)  
-[董師傅手工麻糬](http://www.hidie.net/2013/10/blog-post_23.html)
-
+[董師傅手工麻糬](http://www.hidie.net/2013/10/blog-post_23.html)  
 [先麥芋頭酥](http://www.hidie.net/2013/10/excited.html)  
 [連得堂煎餅](http://www.hidie.net/2013/10/blog-post_24.html)  
 [陳石城 原創肉角](http://www.hidie.net/2013/10/blog-post_25.html)  
@@ -71,7 +70,7 @@ day 5
   
   
 
-[![](https://1.bp.blogspot.com/-SO_vsuj8jug/XCRRj47razI/AAAAAAAACCU/uiQ2bT0Xy1AdALfKkzUEaUGufqF915cUgCLcBGAs/s640/76.jpg)](https://1.bp.blogspot.com/-SO_vsuj8jug/XCRRj47razI/AAAAAAAACCU/uiQ2bT0Xy1AdALfKkzUEaUGufqF915cUgCLcBGAs/s1600/76.jpg)
+![](/images/tainan5d4n.jpg)
 
   
 不吸煙的豬，哈哈～

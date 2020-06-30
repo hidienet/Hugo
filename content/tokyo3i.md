@@ -10,9 +10,9 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](https://2.bp.blogspot.com/-yee0KwTIJf8/XCS1kKRy85I/AAAAAAAACNg/b9Ua5Kzo9dYYO41EKeEsUrNQ2_DQzPzBgCLcBGAs/s640/41.jpg)](https://2.bp.blogspot.com/-yee0KwTIJf8/XCS1kKRy85I/AAAAAAAACNg/b9Ua5Kzo9dYYO41EKeEsUrNQ2_DQzPzBgCLcBGAs/s1600/41.jpg)
+![](/images/tokyo3i1.jpg)
 
-葛切  
+**葛切**  
 顏色透明粗粗闊闊像河粉的樣子  
 吃下有種爽滑透心涼的感覺  
 葛粉本身沒有味道，所以要沾上糖蜜  
@@ -22,9 +22,9 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](https://2.bp.blogspot.com/-f7l5M02aIak/XCS1q3lp0II/AAAAAAAACNk/2N6LDbXhfgg8_ZZIgQ88FF-MeswK9ucBgCLcBGAs/s640/42.jpg)](https://2.bp.blogspot.com/-f7l5M02aIak/XCS1q3lp0II/AAAAAAAACNk/2N6LDbXhfgg8_ZZIgQ88FF-MeswK9ucBgCLcBGAs/s1600/42.jpg)
+![](/images/tokyo3i.jpg)
 
-虎屋饅頭  
+**虎屋饅頭**  
 饅頭押下店鋪的名稱，不好吃便要「拆招牌」  
 以糯米與麴跟水發酵又加日本油釀造的酵母云云  
 太複雜～ 總之就是釀釀釀酵酵酵好了吧！  
@@ -37,9 +37,9 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](https://2.bp.blogspot.com/-qkhZJnmvfho/XCS1zydlP3I/AAAAAAAACNo/rZZV-dSVAeA5lvaMaYo6jKom16al3XM2QCLcBGAs/s640/43.jpg)](https://2.bp.blogspot.com/-qkhZJnmvfho/XCS1zydlP3I/AAAAAAAACNo/rZZV-dSVAeA5lvaMaYo6jKom16al3XM2QCLcBGAs/s1600/43.jpg)
+![](/images/tokyo3i2.jpg)
 
-白玉ぜんざい  
+**白玉ぜんざい**  
 想吃白小豆那款，不過店員說賣光了  
 所以要了紅豆這個  
 湯圓很有韌性QQ的，跟綿蜜的紅豆蓉一起  
@@ -49,10 +49,10 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](https://2.bp.blogspot.com/-3BqzhVA_QyQ/XCS17zu63JI/AAAAAAAACN0/RhR-jmScY0QedT1dD3YZ_5-yovB4NZ7BgCLcBGAs/s640/44.jpg)](https://2.bp.blogspot.com/-3BqzhVA_QyQ/XCS17zu63JI/AAAAAAAACN0/RhR-jmScY0QedT1dD3YZ_5-yovB4NZ7BgCLcBGAs/s1600/44.jpg)
+![](/images/tokyo3i3.jpg)
 
 與葛切一起的綠茶，甘甘的sweet ending～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

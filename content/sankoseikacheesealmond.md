@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 最高！最高！最高！（歡呼～）  
 
-[![](https://farm6.staticflickr.com/5705/20844552315_d6f7a19190_z.jpg)](https://farm6.staticflickr.com/5705/20844552315_d6f7a19190_z.jpg)
+![](/images/sankoseikacheesealmond.jpg)
 
 醬油米餅 x cheese cream x 杏仁！  
 又香又脆味道非常濃郁  

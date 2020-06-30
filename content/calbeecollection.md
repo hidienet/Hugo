@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 薯片很普通但味道超級棒！  
 
-[![](https://farm9.staticflickr.com/8611/16282631420_ee19f39dc4_z.jpg)](https://farm9.staticflickr.com/8611/16282631420_ee19f39dc4_z.jpg)
+![](/images/calbeecollection.jpg)
 
 一貫的calbee平常款脆脆的薯片  
 驚豔處在濃郁芝士中  

@@ -23,12 +23,10 @@ tags : [flavor - 小食部, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](https://1.bp.blogspot.com/-24IRcP6fnaw/XCRnGHPMJaI/AAAAAAAACKs/ibWRiStKJBk5z6tKqPwQUkJhJUYlzoQQwCLcBGAs/s640/11.jpg)](https://1.bp.blogspot.com/-24IRcP6fnaw/XCRnGHPMJaI/AAAAAAAACKs/ibWRiStKJBk5z6tKqPwQUkJhJUYlzoQQwCLcBGAs/s1600/11.jpg)
+![](/images/tokyo3b.jpg)
 
-松露 高級玉子焼
-
-蛋非常有彈性，還像海棉般的吸了滿滿的醬汁
-
+**松露 高級玉子焼**  
+蛋非常有彈性，還像海棉般的吸了滿滿的醬汁  
 充滿蛋香與淡淡的甜味在口中散開  
 甜而不膩，吃完還想再encore  
   
@@ -36,9 +34,9 @@ tags : [flavor - 小食部, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](https://3.bp.blogspot.com/-DxfqMTaC5yE/XCRnNvikrFI/AAAAAAAACKw/rbsEDN4tBIQm4NqBshzA8HdWdC1k-u-ZACLcBGAs/s640/12.jpg)](https://3.bp.blogspot.com/-DxfqMTaC5yE/XCRnNvikrFI/AAAAAAAACKw/rbsEDN4tBIQm4NqBshzA8HdWdC1k-u-ZACLcBGAs/s1600/12.jpg)
+![](/images/tokyo3b1.jpg)
 
-大定 江戶前玉子焼  
+**大定 江戶前玉子焼**  
 鬆軟的蛋，有著醇厚的醬汁甜味  
 偏甜味道雖令蛋味不太濃，卻感覺較純撲  
 若清淡為都市人所追求；  
@@ -55,4 +53,4 @@ tags : [flavor - 小食部, travel - 日本（関東東海道）・ 武藏東京
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

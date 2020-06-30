@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 醬油仙貝卷裡面係十勝產camembert餡  
 完全外脆內軟香濃鹹甜一次過大滿足  
 
-[![](https://c2.staticflickr.com/8/7538/28862756332_dda0391e01_z.jpg)](https://c2.staticflickr.com/8/7538/28862756332_dda0391e01_z.jpg)
+![](/images/kiraracheese.jpg)
 
 好邪惡好邪惡真係好\_\_邪惡  
 （一路嗌邪惡一邊食到見袋底）  

@@ -8,7 +8,7 @@ tags : [flavor - 小食部, travel - 日本（関東東海道）・ 武藏東京
 
 真的有點餓，要在便利店買這個普通温泉たまご  
 
-[![](https://3.bp.blogspot.com/-xafXc1aE40M/XCTVqELGHVI/AAAAAAAACRM/GksYSr3JXkspuDf2vSR4DFrX2l9t9H6ZwCLcBGAs/s640/16.jpg)](https://3.bp.blogspot.com/-xafXc1aE40M/XCTVqELGHVI/AAAAAAAACRM/GksYSr3JXkspuDf2vSR4DFrX2l9t9H6ZwCLcBGAs/s1600/16.jpg)
+![](/images/tokyo4e.jpg)
 
 為甚麼要強調「普通」？  
 因為明天要出發去箱根，吃箱根黒たまご  
@@ -17,4 +17,4 @@ tags : [flavor - 小食部, travel - 日本（関東東海道）・ 武藏東京
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

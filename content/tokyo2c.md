@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
 
 好可愛好可愛好可愛的波波～（大心）  
 
-[![](https://4.bp.blogspot.com/-RsDmqF-3Puk/XCRhpdVPZTI/AAAAAAAACHA/PE2Ha0stNTEqgycH2YJ2wDtSRJu82EZnQCLcBGAs/s640/36.jpg)](https://4.bp.blogspot.com/-RsDmqF-3Puk/XCRhpdVPZTI/AAAAAAAACHA/PE2Ha0stNTEqgycH2YJ2wDtSRJu82EZnQCLcBGAs/s1600/36.jpg)
+![](/images/tokyo2c.jpg)
 
 あんこ玉，以高濃度而薄薄的寒天衣包著飽飽滿滿的餡料  
 九粒裡面有齊六種味道  
@@ -27,11 +27,11 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](https://4.bp.blogspot.com/-8O2CY_O748E/XCRhwGK2sCI/AAAAAAAACHE/ds81gCiXBtsEk2iRaRj6pIa_MWqQpTXTACLcBGAs/s640/37.jpg)](https://4.bp.blogspot.com/-8O2CY_O748E/XCRhwGK2sCI/AAAAAAAACHE/ds81gCiXBtsEk2iRaRj6pIa_MWqQpTXTACLcBGAs/s1600/37.jpg)
+![](/images/tokyo2c1.jpg)
 
 原先也想嚐嚐芋ようかん（蕃薯羊羹）  
 但還是波波比較吸晴，然後便不想買四四方的它 :p  
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

@@ -6,9 +6,9 @@ aliases: [ "/2016/03/bike-de-koffie.html" ]
 tags : [flavor - 揀飲宅食]
 ---
 
-响[時令餐桌節](http://www.hidie.net/2016/02/day5_27.html)度買嘅  
+响[時令餐桌節](https://hidie.net/taitung5n/)度買嘅  
 
-[![](https://c1.staticflickr.com/1/702/31646791751_1f57fd52d7_z.jpg)](https://c1.staticflickr.com/1/702/31646791751_1f57fd52d7_z.jpg)
+![](/images/bikedekoffie.jpg)
 
 又甜又酸，味道極之清新  
 不過對比起較少食jam & bread嘅我  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
 
 韓國的街頭甜味小吃又豈能沒有호떡 (hoddeok)？  
 
-[![](https://1.bp.blogspot.com/-xvs8DfKiZmQ/XCywEaAd7OI/AAAAAAAADuY/99mCAHlx3aoqCK_IX-ryBjg2bKOi7xeMgCLcBGAs/s640/77.jpg)](https://1.bp.blogspot.com/-xvs8DfKiZmQ/XCywEaAd7OI/AAAAAAAADuY/99mCAHlx3aoqCK_IX-ryBjg2bKOi7xeMgCLcBGAs/s1600/77.jpg)
+![](/images/busanjj2c.jpg)
 
 即叫即做熱辣辣的餡餅  
 表層香脆，面層QQ的很煙韌  
@@ -21,4 +21,4 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

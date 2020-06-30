@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 平常香港所謂的「排骨」是指豬排骨  
 但韓國的卻是指牛的  
 
-[![](https://4.bp.blogspot.com/-LR9sDh_01IA/XCyv41Cps4I/AAAAAAAADuQ/pVy_igEoOL8F-jX2y_Gsd0QiikZzRvukgCLcBGAs/s640/76.jpg)](https://4.bp.blogspot.com/-LR9sDh_01IA/XCyv41Cps4I/AAAAAAAADuQ/pVy_igEoOL8F-jX2y_Gsd0QiikZzRvukgCLcBGAs/s1600/76.jpg)
+![](/images/busanjj2d.jpg)
 
 而這道燉排骨（갈비찜）當然食牛的  
 （雖然也有些地方是用豬，但一般都是牛）  
@@ -22,4 +22,4 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

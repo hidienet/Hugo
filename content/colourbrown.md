@@ -9,7 +9,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族, flavor - say cheese]
 上個禮拜食咗個一啲都唔芝士嘅芝士蛋糕  
 就完全激發起搵返件好食啲嘅意欲  
 
-[![](https://c1.staticflickr.com/1/897/41138934442_712ebf5389_z.jpg)](https://c1.staticflickr.com/1/897/41138934442_712ebf5389_z.jpg)
+![](/images/colourbrown.jpg)
 
 去誠品扮文青就免喇  
 食件蛋糕飲杯咖啡hea吓啦  

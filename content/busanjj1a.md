@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
 
 踏足韓國的第一餐（飛機餐不在韓國本土吃的）  
 
-[![](https://3.bp.blogspot.com/-3pxt63TyR9o/XCipF4uMRjI/AAAAAAAADZ8/oHtb1aWEDzIZgTr1Sb0eUrlIoBQijih1QCLcBGAs/s640/07.jpg)](https://3.bp.blogspot.com/-3pxt63TyR9o/XCipF4uMRjI/AAAAAAAADZ8/oHtb1aWEDzIZgTr1Sb0eUrlIoBQijih1QCLcBGAs/s1600/07.jpg)
+![](/images/busanjj1a.jpg)
 
 始創於1950年，美國的Dunkin' Donuts  
 原銷售冬甩等的烘培食物  
@@ -31,4 +31,4 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

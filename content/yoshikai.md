@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 薯仔 x 芝士，是永遠的絕配（撒花）  
 
-[![](https://farm8.staticflickr.com/7595/16855495856_5539379374_z.jpg)](https://farm8.staticflickr.com/7595/16855495856_5539379374_z.jpg)
+![](/images/yoshikai.jpg)
 
 「咔嚓～」一聲，味道鹹鹹脆脆  
 芝士味不算太濃郁  

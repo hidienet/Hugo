@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 輕鬆地補補身子（啦啦啦）  
 
-[![](https://c1.staticflickr.com/1/428/31793366381_c1b067aef3_z.jpg)](https://c1.staticflickr.com/1/428/31793366381_c1b067aef3_z.jpg)
+![](/images/littlehappinesstea.jpg)
 
 內含當歸、黃耆、熟地、黨篸、紅棗、茯苓、益母草、甜菊  
 齋睇都覺得補  

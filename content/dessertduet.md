@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 完全是邪惡之作！  
 
-[![](https://farm9.staticflickr.com/8803/18284472012_8dd8d19b02_z.jpg)](https://farm9.staticflickr.com/8803/18284472012_8dd8d19b02_z.jpg)
+![](/images/dessertduet.jpg)
 
 外面撒滿朱古力粉  
 包住cream cheese層  

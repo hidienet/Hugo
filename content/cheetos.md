@@ -8,10 +8,9 @@ tags : [flavor - say cheese]
 
 混合芝士的味道就是濃郁
 
-[![](https://farm9.staticflickr.com/8871/17131276027_fdf0438135_z.jpg)](https://farm9.staticflickr.com/8871/17131276027_fdf0438135_z.jpg)
+![](/images/cheetos.jpg)
 
-無論形狀跟鬆脆也跟粟一燒一樣
-
+無論形狀跟鬆脆也跟粟一燒一樣  
 不過就帶有超超濃的芝士味
 
   

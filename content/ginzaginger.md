@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 有點涼意的時候就會讓身體暖一點  
 下意識就想起了薑這東西  
 
-[![](https://4.bp.blogspot.com/-4eubVOwflso/XCd87h0KMKI/AAAAAAAACwQ/pN_HdGSs6ogtn1KKPgOMwreirNNpWnpcwCLcBGAs/s640/78.jpg)](https://4.bp.blogspot.com/-4eubVOwflso/XCd87h0KMKI/AAAAAAAACwQ/pN_HdGSs6ogtn1KKPgOMwreirNNpWnpcwCLcBGAs/s1600/78.jpg)
+![](/images/ginzaginger.jpg)
 
 這款特辣薑糖漿是店家名物，但卻是秋冬限定的  
 （平常是加了其他味道的薑糖漿，聽說也不錯啊）  

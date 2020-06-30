@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 直接食會太甜因為”朱古力“層太厚  
 熱食真的味道好很多  
 
-[![](https://farm9.staticflickr.com/8832/17338795595_ab5344af8d_z.jpg)](https://farm9.staticflickr.com/8832/17338795595_ab5344af8d_z.jpg)
+![]/images/kitkatbake.jpg)
 
 認真有baked cheesecake的味道  
 （化學調味真的很厲害呢）  

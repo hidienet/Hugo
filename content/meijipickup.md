@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 超脆的米果粒粒  
 一口接一口怎能不上癮？  
 
-[![](https://2.bp.blogspot.com/-3SyC9vVOwv0/XC4KKBN7YoI/AAAAAAAAD3U/5sysc5DcLKcHlCO-CAw-WwYh4Q9DvNt1gCLcBGAs/s640/70.jpg)](https://2.bp.blogspot.com/-3SyC9vVOwv0/XC4KKBN7YoI/AAAAAAAAD3U/5sysc5DcLKcHlCO-CAw-WwYh4Q9DvNt1gCLcBGAs/s1600/70.jpg)
+![](/images/meijipickup.jpg)
 
 像咬下空氣那般  
 脆脆的外層帶輕輕的芝士味  

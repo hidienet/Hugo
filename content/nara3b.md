@@ -7,7 +7,9 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - 日本（関西近畿�
 ---
 
 嚟返個輕食早餐先...  
-[![](https://c1.staticflickr.com/5/4406/36257651513_da96b65b5d_z.jpg)](https://c1.staticflickr.com/5/4406/36257651513_da96b65b5d_z.jpg)  
+
+![](/images/nara3b.jpg)
+
 响籮神買咗炸雞同啤酒啦  
 個啤係奈良別注麒麟啤  
 好啦麒麟啤本身個味麻麻地  
@@ -18,7 +20,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - 日本（関西近畿�
   
 呀！唔好漏咗成份早餐嘅主角  
 
-[![](https://c1.staticflickr.com/5/4415/36668766470_7496fdb70c_z.jpg)](https://c1.staticflickr.com/5/4415/36668766470_7496fdb70c_z.jpg)
+![](/images/nara3b1.jpg)
 
 **平宗 - 柿の葉ずし**  
 响幕末時代文久元年創業（1861年）  
@@ -29,11 +31,4 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel - 日本（関西近畿�
   
 拎去野餐係咪啱啱好呢？  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：志津香 | 興福寺五重塔 | 猿沢池 | なら泉勇斎 | 中谷堂 | 栗 ならまち店](https://www.hidie.net/2017/09/day-1.html)  
-[Day2：春日大社 | 奈良公園と鹿 | 玄 | 春鹿 | ならまち格子の家 | 樫舎 | 大仏プリン | 亜耶](https://www.hidie.net/2017/09/day-2.html)  
-[Day3：浮見堂 | 平宗柿の葉ずし | 奈良国立博物館 | 茶房暖暖 | 茶道体験 | 和やまむら](https://www.hidie.net/2017/09/day-3.html)  
-[Day4：吉城園 | 天極堂 | 東大寺 | 麺闘庵 | 江戸川 | あけび](https://www.hidie.net/2017/09/day-4.html)  
-[Day5：柿の葉すし たなか → 大阪](https://www.hidie.net/2017/09/day1.html)
+{{<nara>}}

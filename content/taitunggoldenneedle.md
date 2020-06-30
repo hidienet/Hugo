@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食]
 臺東嘛，山好水好風景好  
 農產品當然都非常好  
 
-[![](https://c1.staticflickr.com/1/422/31646406971_67110a90f7_z.jpg)](https://c1.staticflickr.com/1/422/31646406971_67110a90f7_z.jpg)
+![](/images/taitunggoldenneedle.jpg)
 
 金針係臺東特產之一  
 而且我本身都好鍾意食  

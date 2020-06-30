@@ -21,7 +21,7 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 就隨便跟店家說不吃那些那些  
 和份量不要那麼辣、不要那麼多等等  
 
-[![](https://4.bp.blogspot.com/-EToO1CMs-Ao/XCywqaK41yI/AAAAAAAADuk/uw-ygrlF4W0HQM-Ij8R_eSpDZ72cBBAKQCLcBGAs/s640/78.jpg)](https://4.bp.blogspot.com/-EToO1CMs-Ao/XCywqaK41yI/AAAAAAAADuk/uw-ygrlF4W0HQM-Ij8R_eSpDZ72cBBAKQCLcBGAs/s1600/78.jpg)
+![](/images/busanjj2b.jpg)
 
 豆醬湯（된장찌개）（左）  
 喝起來沙沙的感覺  
@@ -45,4 +45,4 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

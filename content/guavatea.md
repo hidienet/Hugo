@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 好芭樂味嘅芭樂茶，講完。  
 
-[![](https://c1.staticflickr.com/1/367/31793347861_84efac9795_z.jpg)](https://c1.staticflickr.com/1/367/31793347861_84efac9795_z.jpg)
+![](/images/guavatea.jpg)
 
 （呢個燈打得好詭異... ㅋㅋㅋ）  
   

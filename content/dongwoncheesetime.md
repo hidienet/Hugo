@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 小口小口的粒粒芝士  
 
-[![](https://farm9.staticflickr.com/8565/15449736753_20b7c3941f_z.jpg)](https://farm9.staticflickr.com/8565/15449736753_20b7c3941f_z.jpg)
+![](/images/dongwoncheesetime.jpg)
 
 上下層被薄薄鱈魚片夾住
 

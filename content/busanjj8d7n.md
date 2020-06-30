@@ -11,23 +11,23 @@ tags : [lifestyle - 逃離852, travel - 남한・부산、경주 (釜山、慶�
   
 day 1  
 ～慶州  
-[Dunkin' Donuts - cinnamon churros](http://www.hidie.net/2014/01/day1dunkin-donuts-cinnamon-churros.html)  
-[Saturday market (?)](http://www.hidie.net/2014/01/day1saturday-market.html)  
-[순대 x 내장（血腸 x 內臟）](http://www.hidie.net/2014/01/day1-x-x.html)  
-[어묵（炸魚條）](http://www.hidie.net/2014/01/day1.html)  
-[빙그레 바나나맛 우유（binggrae banana milk）](http://www.hidie.net/2014/01/day1-binggrae-banana-milk.html)  
-[柿](http://www.hidie.net/2014/01/day1_11.html)  
-[대릉원（大陵苑）](http://www.hidie.net/2014/01/day1_7058.html)  
-[쌈밥（菜包飯）](http://www.hidie.net/2014/01/day1_5610.html)  
-[황남빵（慶州 皇南餅）](http://www.hidie.net/2014/01/day1_12.html)  
-[경주법주 쌀막걸리](http://www.hidie.net/2014/01/day1_3554.html)  
+[Dunkin' Donuts - cinnamon churros](https://hidie.net/busanjj1a/)  
+[Saturday market (?)](https://hidie.net/busanjj1b/)  
+[순대 x 내장（血腸 x 內臟）](https://hidie.net/busanjj1c/)  
+[어묵（炸魚條）](https://hidie.net/busanjj1d/)  
+[빙그레 바나나맛 우유（binggrae banana milk）](https://hidie.net/busanjj1e/)  
+[柿](https://hidie.net/busanjj1f/)  
+[대릉원（大陵苑）](https://hidie.net/busanjj1g/)  
+[쌈밥（菜包飯）](https://hidie.net/busanjj1h/)  
+[황남빵（慶州 皇南餅）](https://hidie.net/busanjj1i/)  
+[경주법주 쌀막걸리](https://hidie.net/busanjj1j/)  
   
 day 2  
-[가시오가피 삼계탕（人參雞湯）](http://www.hidie.net/2014/01/day2.html)  
-[구찜（辣炒鮟鱇魚）& 된장찌개（豆醬湯）](http://www.hidie.net/2014/01/day2_13.html)  
-[호떡 （糖餅）](http://www.hidie.net/2014/01/day2_6071.html)  
-[갈비찜（燉排骨）](http://www.hidie.net/2014/01/day2_4673.html)  
-[경주햅쌀100% 천년 막걸리](http://www.hidie.net/2014/01/day2100.html)  
+[가시오가피 삼계탕（人參雞湯）](https://hidie.net/busanjj2a/)  
+[구찜（辣炒鮟鱇魚）& 된장찌개（豆醬湯）](https://hidie.net/busanjj2b/)  
+[호떡 （糖餅）](https://hidie.net/busanjj2c/)  
+[갈비찜（燉排骨）](https://hidie.net/busanjj2d/)  
+[경주햅쌀100% 천년 막걸리](https://hidie.net/busanjj2e/)  
   
 day 3  
 [국순당 막걸리 우국생](https://hidie.net/busanjj3a/)  

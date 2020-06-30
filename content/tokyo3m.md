@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
 
 睡前忍不住要吃的蛋糕！  
 
-[![](https://1.bp.blogspot.com/-QyFRwUUF_uc/XCTOPv4EIEI/AAAAAAAACPM/dlB0RJIDlUAAOHemrpjthl5PZVk2FcQIwCLcBGAs/s640/53.jpg)](https://1.bp.blogspot.com/-QyFRwUUF_uc/XCTOPv4EIEI/AAAAAAAACPM/dlB0RJIDlUAAOHemrpjthl5PZVk2FcQIwCLcBGAs/s1600/53.jpg)
+![](/images/tokyo3m.jpg)
 
 一般說要排隊的東西我是會選擇掉頭走  
 但為了這條蛋糕，我花了十五分鐘排隊時間  
@@ -26,4 +26,4 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

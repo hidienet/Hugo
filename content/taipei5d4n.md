@@ -70,6 +70,6 @@ day 5
   
   
 
-[![](https://4.bp.blogspot.com/-Hkv_4CsDKG0/XDGkbWbIoQI/AAAAAAAAEjw/Rqm2BKpD_NMwqaAB0Y1PgI-hUKy8ZK-XgCLcBGAs/s640/89.jpg)](https://4.bp.blogspot.com/-Hkv_4CsDKG0/XDGkbWbIoQI/AAAAAAAAEjw/Rqm2BKpD_NMwqaAB0Y1PgI-hUKy8ZK-XgCLcBGAs/s1600/89.jpg)
+![](/images/taipei5d4n.jpg)
 
 零錢用盡在機場只夠錢食包包 XDDD

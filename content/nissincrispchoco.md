@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 輕爽的檸檬味跟cream cheese的組合  
 
-[![](https://farm1.staticflickr.com/343/18984110555_262ef85bbc_z.jpg)](https://farm1.staticflickr.com/343/18984110555_262ef85bbc_z.jpg)
+![](/images/nissincrispchoco.jpg)
 
 味道不會很甜；吃完也不覺得漏漏的  
 再配上脆脆脆口的粟米片批  
@@ -17,4 +17,4 @@ tags : [flavor - say cheese]
   
 \-----------------------------------------------  
   
-延伸閱讀：[\[chocolate\] 日清 クリスプチョコ ミルクチョコ（crisp choco）](http://www.hidie.net/2014/11/crisp-choco.html)
+延伸閱讀：[\[chocolate\] 日清 クリスプチョコ ミルクチョコ（crisp choco）](https://hidie.net/crispchoco/)

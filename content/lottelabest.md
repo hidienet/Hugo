@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, flavor - say cheese]
 
 熱熱熱熱熱，要降降溫消消暑啊  
 
-[![](https://c2.staticflickr.com/8/7669/27301472183_329507fd5d_z.jpg)](https://c2.staticflickr.com/8/7669/27301472183_329507fd5d_z.jpg)
+![](/images/lottelabest.jpg)
 
 cream cheese皮配cheese x 藍莓醬雪糕  
 cheese味，聞到亦食得出  

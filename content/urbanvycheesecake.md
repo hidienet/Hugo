@@ -12,7 +12,7 @@ tags : [flavor - say cheese, lifestyle - 嗨啲的極樂世界]
 玩樂型的所以看起來都是凍齡的  
 （樣子老的一直keep住那麼老）  
 
-[![](https://farm9.staticflickr.com/8774/17667443993_3776585bd0_z.jpg)](https://farm9.staticflickr.com/8774/17667443993_3776585bd0_z.jpg)
+![](/images/urbanvycheesecake.jpg)
 
 建寧公主在urban買來的「肉鬆」芝士蛋糕（哈）  
 芝士味很濃，厚厚的很好吃喔！  

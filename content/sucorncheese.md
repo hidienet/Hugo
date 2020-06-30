@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 打開包裝又來了一種很熟悉的感覺  
 －－ 紳士牌的芝士條（不過一直都只愛芝士波）  
 
-[![](https://farm4.staticflickr.com/3811/19195386543_aa9d7252c9_z.jpg)](https://farm4.staticflickr.com/3811/19195386543_aa9d7252c9_z.jpg)
+![](/images/sucorncheese.jpg)
 
 淡橙色的色澤，手指沒有變橙變黃  
 芝士味濃郁但不會鹹  

@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 四層構造的芝士脆粟米片  
 
-[![](https://farm9.staticflickr.com/8564/16381917646_26359d4888_z.jpg)](https://farm9.staticflickr.com/8564/16381917646_26359d4888_z.jpg)
+![](/images/nabiscoaerial.jpg)
 
 脆口中帶有空氣感  
 芝士同粟米味都極度濃郁  

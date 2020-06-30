@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 長方形一大片薯片  
 
-[![](https://farm9.staticflickr.com/8701/17132937262_36f7af5cc9_z.jpg)](https://farm9.staticflickr.com/8701/17132937262_36f7af5cc9_z.jpg)
+![](/images/longchipscheese.jpg)
 
 薯仔味濃，味道也較清淡  
 （有種只適合“環保人士食用”的感覺）  

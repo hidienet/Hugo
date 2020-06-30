@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 這絕非厚多士  
 但也很多士的喔  
 
-[![](https://farm1.staticflickr.com/358/19036265169_bb3e46919c_z.jpg)](https://farm1.staticflickr.com/358/19036265169_bb3e46919c_z.jpg)
+![](/images/oyatsucheese.jpg)
 
 一包裡面有很多很多薄片多士  
 濃縮了火腿番茄同淡淡的芝士味  

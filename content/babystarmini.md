@@ -10,7 +10,7 @@ tags : [flavor - say cheese]
 最麻煩是會弄得周圍都是麵碎  
 所以這麵餅包裝都完全解決煩惱  
 
-[![](https://farm9.staticflickr.com/8737/16331863823_1b0c4e484c_z.jpg)](https://farm9.staticflickr.com/8737/16331863823_1b0c4e484c_z.jpg)
+![](/images/babystarmini.jpg)
 
 麵餅咸咸脆脆，帶有微微芝士粉味道  
 超可愛的細細一粒  

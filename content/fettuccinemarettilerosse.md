@@ -6,10 +6,10 @@ aliases: [ "/2014/06/fettuccine-maretti-le-rosse.html" ]
 tags : [flavor - say cheese]
 ---
 
-這包pasta snack除了美味的mushroom外 \[[相關舊文](http://www.hidie.net/2014/05/day2fettuccine-maretti-funghissime.html)\]  
+這包pasta snack除了美味的[mushroom](https://hidie.net/bulgaria2i/)外  
 tomato & cheese味也不錯吃  
 
-[![](https://3.bp.blogspot.com/-vEzpva9X0v4/XDNY99QTZLI/AAAAAAAAFDE/WORMlIq415QK80V92mTpsouP93dwehkjwCLcBGAs/s640/118.jpg)](https://3.bp.blogspot.com/-vEzpva9X0v4/XDNY99QTZLI/AAAAAAAAFDE/WORMlIq415QK80V92mTpsouP93dwehkjwCLcBGAs/s1600/118.jpg)
+![](/images/fettuccinemarettilerosse.jpg)
 
 雖然看起來紅紅的  
 卻是芝士味比番茄味濃很多  

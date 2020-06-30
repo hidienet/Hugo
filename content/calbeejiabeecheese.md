@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 雖然同樣是calbee出品  
 但じゃがりこ跟じゃがビー是不一樣的  
 
-[![](https://1.bp.blogspot.com/-pfDLK85Mxa0/XDCyr-S3_-I/AAAAAAAAERA/SC4RS5pceWUq3xPpYHR7s_NmwkR3l_LJQCLcBGAs/s640/74.jpg)](https://1.bp.blogspot.com/-pfDLK85Mxa0/XDCyr-S3_-I/AAAAAAAAERA/SC4RS5pceWUq3xPpYHR7s_NmwkR3l_LJQCLcBGAs/s1600/74.jpg)
+![](/images/calbeejiabeecheese.jpg)
 
 前者是薯蓉造成  
 後者則是薯仔切條  

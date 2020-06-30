@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 賣點是北海道產的芝士  
 
-[![](https://farm8.staticflickr.com/7460/16462375085_cb80bc51c0_z.jpg)](https://farm8.staticflickr.com/7460/16462375085_cb80bc51c0_z.jpg)
+![](/images/yamayoshi.jpg)
 
 而這種コクチーズ味道是很濃香沒錯  
 薯片是不厚不薄那種  

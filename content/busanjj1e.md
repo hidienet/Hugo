@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
 
 在韓國沒有不喝這個的道理～  
 
-[![](https://3.bp.blogspot.com/-8tGKIVH88n4/XCjLoU-3BLI/AAAAAAAADik/Yhfv3C89ZVIQDeUKB_DvjdqPzXsUtctLwCLcBGAs/s640/16.jpg)](https://3.bp.blogspot.com/-8tGKIVH88n4/XCjLoU-3BLI/AAAAAAAADik/Yhfv3C89ZVIQDeUKB_DvjdqPzXsUtctLwCLcBGAs/s1600/16.jpg)
+![](/images/busanjj1e.jpg)
 
 濃郁的香蕉味道的甜味牛奶  
   
@@ -17,4 +17,4 @@ tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

@@ -8,13 +8,12 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
 
 從花畑對面看到的是歌舞伎座  
 
-[![](https://4.bp.blogspot.com/-vQZtEikHgA0/XCS0mH3_orI/AAAAAAAACM4/Asw0wGzDNfQgqVVlTFVoe-F-16v74womwCLcBGAs/s640/36.jpg)](https://4.bp.blogspot.com/-vQZtEikHgA0/XCS0mH3_orI/AAAAAAAACM4/Asw0wGzDNfQgqVVlTFVoe-F-16v74womwCLcBGAs/s1600/36.jpg)
+![](/images/tokyo3g.jpg)
 
 有機會也想入內看看歌舞伎表演  
-  
-  
+    
 
-[![](https://1.bp.blogspot.com/-WNtajNeO22A/XCS0xQmDReI/AAAAAAAACM8/rhrGvPRgKHYkTfRGzKq7GlY_m1ExeOs-wCLcBGAs/s640/37.jpg)](https://1.bp.blogspot.com/-WNtajNeO22A/XCS0xQmDReI/AAAAAAAACM8/rhrGvPRgKHYkTfRGzKq7GlY_m1ExeOs-wCLcBGAs/s1600/37.jpg)
+![](/images/tokyo3g1.jpg)
 
 和光鐘樓是銀座的地標  
   
@@ -25,4 +24,4 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

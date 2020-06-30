@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 能飽肚的夾心餅乾  
 
-[![](https://3.bp.blogspot.com/-djAs7Nd_uqE/XC4LJNsZpfI/AAAAAAAAD3k/v8vliVpUHykKvLWkKcKyYIrmmYOS3BvrQCLcBGAs/s640/72.jpg)](https://3.bp.blogspot.com/-djAs7Nd_uqE/XC4LJNsZpfI/AAAAAAAAD3k/v8vliVpUHykKvLWkKcKyYIrmmYOS3BvrQCLcBGAs/s1600/72.jpg)
+![](/images/bourboncracker.jpg)
 
 超鬆脆餅乾外還加上鹽  
 cheese cream又香又濃又滑  

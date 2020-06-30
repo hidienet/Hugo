@@ -8,7 +8,7 @@ tags : [flavor - 揀飲宅食]
 
 厚面皮朝早潤一潤  
 
-[![](https://c1.staticflickr.com/1/479/31762179822_1f06698420_z.jpg)](https://c1.staticflickr.com/1/479/31762179822_1f06698420_z.jpg)
+![](/images/beeweb.jpg)
 
 係呀，反正返工都會俾人潤  
 與其俾人潤，不如自潤一吓  

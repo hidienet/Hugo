@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 圓～ 滾～ 圓～ 滾～ 的～ 豬～～～  
 
-[![](https://1.bp.blogspot.com/-vQfvJQJMndY/XCW7cUhwYhI/AAAAAAAACag/Cltl4oHL-GwHJrEQQYrGEfz5tgfgcLRrgCLcBGAs/s640/60.jpg)](https://1.bp.blogspot.com/-vQfvJQJMndY/XCW7cUhwYhI/AAAAAAAACag/Cltl4oHL-GwHJrEQQYrGEfz5tgfgcLRrgCLcBGAs/s1600/60.jpg)
+![](/images/kamakuragoropig.jpg)
 
 哈哈哈，好可愛耶～  
   

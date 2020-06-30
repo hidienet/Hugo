@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 一直喊肥喊肥但沒有想過停止吃零食  
 尤其是芝士味的  
 
-[![](https://farm1.staticflickr.com/305/19364497174_3469436cb0_z.jpg)](https://farm1.staticflickr.com/305/19364497174_3469436cb0_z.jpg)
+![](/images/orionchip.jpg)
 
 好吧！就吃非油炸是焗的  
 感覺上不會太～～～ 肥就OK  

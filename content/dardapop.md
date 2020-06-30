@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 鹹加甜混合食亦可  
 分開食都可以  
 
-[![](https://farm6.staticflickr.com/5814/20030041174_31600a7c9f_z.jpg)](https://farm6.staticflickr.com/5814/20030041174_31600a7c9f_z.jpg)
+![](/images/dardapop.jpg)
 
 一杯有齊鹹香芝士味同甜美焦糖味  
 芝士味淡香爆谷也較輕身  

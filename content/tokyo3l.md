@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
 
 回到酒店繼續宵夜時段⋯⋯  
 
-[![](https://2.bp.blogspot.com/-se2JeZ6Dymk/XCTNfkf5JNI/AAAAAAAACO8/RuQgBxHHxpI-CQBMrVZqUYgO4LLbpTVxwCLcBGAs/s640/51.jpg)](https://2.bp.blogspot.com/-se2JeZ6Dymk/XCTNfkf5JNI/AAAAAAAACO8/RuQgBxHHxpI-CQBMrVZqUYgO4LLbpTVxwCLcBGAs/s1600/51.jpg)
+![](/images/tokyo3l1.jpg)
 
 下午在銀座買的布甸  
 是和三盆糖味道  
@@ -23,10 +23,10 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](https://2.bp.blogspot.com/-Hv00GmEfPdU/XCTNtgEIn3I/AAAAAAAACPA/FAWVbQPvbKcmLxA8ssy_A4Sa-xMbOdzaQCLcBGAs/s640/52.jpg)](https://2.bp.blogspot.com/-Hv00GmEfPdU/XCTNtgEIn3I/AAAAAAAACPA/FAWVbQPvbKcmLxA8ssy_A4Sa-xMbOdzaQCLcBGAs/s1600/52.jpg)
+![](/images/tokyo3l.jpg)
 
 杯杯都像在向我招手的樣子 (-^.^)/  
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

@@ -2,7 +2,6 @@
 title: '[ララ奈良] Day4：あけび'
 date: 2017-11-14T12:30:00.000+08:00
 draft: false
-aliases: [ "/2017/11/day4_14.html" ]
 tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 ---
 

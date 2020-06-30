@@ -8,7 +8,7 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
 
 下榻的地方在新宿，附近為住宅區所以很靜  
 
-[![](https://1.bp.blogspot.com/-wpjWFh2N79k/XCRgnwqKQzI/AAAAAAAACGY/HohtTyUGdhAC2VFYyqyhpxqNRNGfZISrQCLcBGAs/s640/30.jpg)](https://1.bp.blogspot.com/-wpjWFh2N79k/XCRgnwqKQzI/AAAAAAAACGY/HohtTyUGdhAC2VFYyqyhpxqNRNGfZISrQCLcBGAs/s1600/30.jpg)
+![](/images/tokyo1c.jpg)
 
 但要到這個繁華的商圈亦只需步行不需要十分鐘的路程  
 超～ 級～ 爽～  
@@ -17,9 +17,9 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
   
 人生太美好了！  
 
-[![](https://1.bp.blogspot.com/-khFPx_pbgDk/XCRguur9VrI/AAAAAAAACGc/yWcaHtMpRsogJwgS9d_5gGbtUDoOMcWsACLcBGAs/s640/31.jpg)](https://1.bp.blogspot.com/-khFPx_pbgDk/XCRguur9VrI/AAAAAAAACGc/yWcaHtMpRsogJwgS9d_5gGbtUDoOMcWsACLcBGAs/s1600/31.jpg)
+![](/images/tokyo1c1.jpg)
 
-有點涼，喝個永谷園生姜チャイ暖暖身  
+有點涼，喝個**永谷園生姜チャイ**暖暖身  
 生薑味甜味跟牛奶味的組合  
 薑味不嗆不辣；日本東西飲料偏甜是預計的事；  
 奶味濃濃滑滑的，不錯喝  
@@ -30,4 +30,4 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

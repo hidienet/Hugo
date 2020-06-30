@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 秋天，栗子的季節  
 
-[![](https://3.bp.blogspot.com/-IL61B9Z_hWA/XCW4yZtlXuI/AAAAAAAACYQ/PPs6NsVEDWQeomrxMCusFIOq0Iu_KNv6ACLcBGAs/s640/41.jpg)](https://3.bp.blogspot.com/-IL61B9Z_hWA/XCW4yZtlXuI/AAAAAAAACYQ/PPs6NsVEDWQeomrxMCusFIOq0Iu_KNv6ACLcBGAs/s1600/41.jpg)
+![](/images/sentaro.jpg)
 
 **こぐり**：飽滿飽滿的栗子樣子的和菓子  
 烤香的餅層包住白豆餡  
@@ -24,7 +24,7 @@ tags : [flavor - 螞蟻族]
   
   
 
-[![](https://2.bp.blogspot.com/-Z__zdakMbCI/XCW433rdaCI/AAAAAAAACYU/F5Xbt_zNT0kKmV5TGud3c-twYUfoxnCvwCLcBGAs/s640/42.jpg)](https://2.bp.blogspot.com/-Z__zdakMbCI/XCW433rdaCI/AAAAAAAACYU/F5Xbt_zNT0kKmV5TGud3c-twYUfoxnCvwCLcBGAs/s1600/42.jpg)
+![](/images/sentaro1.jpg)
 
 **山椒餅**：樣子怪怪的  
 味道刺激！這是山椒味的 年！糕！  

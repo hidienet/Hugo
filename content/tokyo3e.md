@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day3：うまい鮨勘 之 廿萬個喜愛的一
 date: 2013-10-30T19:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day3_2324.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+tags : [collections-mini, flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
 ---
 
 話說，今天是一早爬起身想吃所謂的築地寿司  
@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東
 去旅行卻要花長時間去等，實在太浪費美好的假期  
 所以去了連鎖店「うまい鮨勘」，好吃不用等，多好！  
 
-[![](https://3.bp.blogspot.com/-XlmGa8KcSf4/XCSzqD75B5I/AAAAAAAACMY/Zho_KBK7uYY03LcElgdiUY-B9-u1rV5dgCLcBGAs/s640/1.jpg)](https://3.bp.blogspot.com/-XlmGa8KcSf4/XCSzqD75B5I/AAAAAAAACMY/Zho_KBK7uYY03LcElgdiUY-B9-u1rV5dgCLcBGAs/s1600/1.jpg)
+![](/images/tokyo3e1.jpg)
 
 魚生都是很新鮮肥美的，而且看到嗎？  
 那條比我的前臂還要長的鰻魚呀該燴～  
@@ -27,7 +27,7 @@ tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東
 拍照時被寿司師傅跟店員看到了  
 被沒收（！）後師傅送我這碟．．．  
 
-[![](https://4.bp.blogspot.com/-v7MaBd3SArc/XCSz0xwn21I/AAAAAAAACMc/VBI05Zks2oUfMkrL-EVYAo-XtrdCIQkrgCLcBGAs/s640/2.jpg)](https://4.bp.blogspot.com/-v7MaBd3SArc/XCSz0xwn21I/AAAAAAAACMc/VBI05Zks2oUfMkrL-EVYAo-XtrdCIQkrgCLcBGAs/s1600/2.jpg)
+![](/images/tokyo3e.jpg)
 
 能吃的1：6！！！，每件「寿司」都只有一粒米大小  
 青瓜卷與海膽軍艦也有包了紫菜絕不欺場  
@@ -41,14 +41,14 @@ tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東
   
   
 
-[![](https://2.bp.blogspot.com/-q7Vo8Th4aHA/XCSz9apCI6I/AAAAAAAACMg/b6Ask0D9rJ4nWYb_C5P423lhWsrygUwTQCLcBGAs/s640/33.jpg)](https://2.bp.blogspot.com/-q7Vo8Th4aHA/XCSz9apCI6I/AAAAAAAACMg/b6Ask0D9rJ4nWYb_C5P423lhWsrygUwTQCLcBGAs/s1600/33.jpg)
+![](/images/tokyo3e2.jpg)
 
 杯子是這家店的，另一邊有店家logo但沒有拍下來  
 
-[![](https://4.bp.blogspot.com/-peCYTjiMxEs/XCS0JDm0oEI/AAAAAAAACMo/h7CDzE7I_5Ew4p0-G2p3k0Rpobrf3gmeACLcBGAs/s640/34.jpg)](https://4.bp.blogspot.com/-peCYTjiMxEs/XCS0JDm0oEI/AAAAAAAACMo/h7CDzE7I_5Ew4p0-G2p3k0Rpobrf3gmeACLcBGAs/s1600/34.jpg)
+![](/images/tokyo3e3.jpg)
 
 餐前吃的茶碗蒸滑溜滑溜，也不錯吃  
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

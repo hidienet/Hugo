@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 忽然祈福黨？  
 
-[![](https://farm9.staticflickr.com/8641/16120464347_a2e5b8a73a_z.jpg)](https://farm9.staticflickr.com/8641/16120464347_a2e5b8a73a_z.jpg)
+![](/images/meijikaru.jpg)
 
 明治ウカール チーズあじ  
 紅色合格祈願芝士味  
@@ -16,7 +16,7 @@ tags : [flavor - say cheese]
 一口一粒超鬆脆  
 淡淡的芝士味跟粟米味很匹配就是  
 
-[![](https://farm8.staticflickr.com/7492/16305456272_7cfdc00a74_z.jpg)](https://farm8.staticflickr.com/7492/16305456272_7cfdc00a74_z.jpg)
+![](/images/meijikaru1.jpg)
 
 明治カールスティック 香りとコクのスモークチーズ味  
 嫌傳統粒粒空間感多體積太少？  

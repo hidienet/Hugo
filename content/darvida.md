@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 薄薄的超脆麥片餅乾  
 
-[![](https://farm9.staticflickr.com/8634/16048897504_8cab8929a1_z.jpg)](https://farm9.staticflickr.com/8634/16048897504_8cab8929a1_z.jpg)
+![](/images/darvida.jpg)
 
 麥味濃郁配上慢慢飄出的沉穩瑞士芝士  
 說不上非常好吃  

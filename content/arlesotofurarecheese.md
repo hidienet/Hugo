@@ -11,17 +11,17 @@ tags : [flavor - say cheese]
   
 當然是食啦食啦食啦哈哈哈～  
 
-[![](https://c2.staticflickr.com/6/5742/21755496991_1f647c9fa2_z.jpg)](https://c2.staticflickr.com/6/5742/21755496991_1f647c9fa2_z.jpg)
+![](/images/arlesotofurarecheese.jpg)
 
 豆腐 x rare cheese  
 木紋的紙皮箱，印有甚麼甚麼北海道產字樣  
 
-[![](https://c1.staticflickr.com/1/626/21746134065_c100c188d3_z.jpg)](https://c1.staticflickr.com/1/626/21746134065_c100c188d3_z.jpg)
+![](/images/arlesotofurarecheese1.jpg)
 
 開箱後就是一盒百福豆腐的包裝  
 樣子似放在冰格雪到一塊塊凍豆腐  
 
-[![](https://c2.staticflickr.com/6/5798/21720044976_27acd80d42_z.jpg)](https://c2.staticflickr.com/6/5798/21720044976_27acd80d42_z.jpg)
+![](/images/arlesotofurarecheese2.jpg)
 
 出街就沒有任何工具  
 就用較女漢子的食用方法 XD  

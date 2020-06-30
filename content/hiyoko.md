@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 一隻賣了過百年的小雞  
 
-[![](https://1.bp.blogspot.com/-lCvcS7fggZE/XCW6MddbbBI/AAAAAAAACZY/AVh_lJnFt6cMksQ8lGeqARX-fszezsXDgCLcBGAs/s640/51.jpg)](https://1.bp.blogspot.com/-lCvcS7fggZE/XCW6MddbbBI/AAAAAAAACZY/AVh_lJnFt6cMksQ8lGeqARX-fszezsXDgCLcBGAs/s1600/51.jpg)
+![](/images/hiyoko.jpg)
 
 似一隻未睡醒的小雞  
   

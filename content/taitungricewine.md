@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 臺東（灣）農產品咁鬼豐富  
 呢D發過酵嘅點會逃得出我張sortlist？  
 
-[![](https://c1.staticflickr.com/1/524/31793349471_3abc4f6890_z.jpg)](https://c1.staticflickr.com/1/524/31793349471_3abc4f6890_z.jpg)
+![](/images/taitungricewine.jpg)
 
 呢隻「穜」係臺灣原住民部落原生種嘅小米  
 配埋臺東D好純淨嘅水  

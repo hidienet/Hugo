@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 芝士的變化很多  
 不論鹹的甜的都可以  
 
-[![](https://farm8.staticflickr.com/7492/16055496548_3b7db00241_z.jpg)](https://farm8.staticflickr.com/7492/16055496548_3b7db00241_z.jpg)
+![](/images/crownbiscuit.jpg)
 
 不過這夾心餅  
 餅乾是很鬆脆沒錯  

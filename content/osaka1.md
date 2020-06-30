@@ -8,10 +8,10 @@ tags : [lifestyle - 逃離852, travel - 日本（関西近畿）・ 大和奈良
 
 一早就離開奈良喇...  
 
-[![](https://c1.staticflickr.com/5/4387/36962153841_aa89c00efc_z.jpg)](https://c1.staticflickr.com/5/4387/36962153841_aa89c00efc_z.jpg)
+![](/images/nara5a.jpg)
 
 移動中嘅早餐 (又)係**柿の葉すし**  
-唔係平宗而另一間叫[たなか](http://www.hidie.net/2017/11/day5.html)嘅舖頭  
+唔係平宗而另一間叫[たなか](https://hidie.net/nara5a/)嘅舖頭  
 試吓新嘢嘛唔好只係食定一間嘛  
   
   
@@ -74,8 +74,7 @@ PABLO係食cheese tart嘅
 
 [![](https://c1.staticflickr.com/5/4353/36680692945_84766e352d_z.jpg)](https://c1.staticflickr.com/5/4353/36680692945_84766e352d_z.jpg)
 
-行夠喇今日，返apartment
-
+行夠喇今日，返apartment  
 食**車厘子**～
 
   

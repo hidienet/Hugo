@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 看到包裝袋的公仔就想happy hour～  
 
-[![](https://farm8.staticflickr.com/7556/15723073168_5ec4c79a79_z.jpg)](https://farm8.staticflickr.com/7556/15723073168_5ec4c79a79_z.jpg)
+![](/images/asahipotacheese.jpg)
 
 芝士粒加上脆脆薯  
 油脂與鹽分滿滿香脆可口  

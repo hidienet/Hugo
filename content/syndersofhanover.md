@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 硬硬脆脆的芝士麵包粒  
 
-[![](https://farm9.staticflickr.com/8621/16167649847_7b34325f52_z.jpg)](https://farm9.staticflickr.com/8621/16167649847_7b34325f52_z.jpg)
+![](/images/syndersofhanover.jpg)
 
 cheddar味濃郁，又香又鹹好美味  
   

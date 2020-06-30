@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 入口就吃到帶微辣的芝士味  
 
-[![](https://farm4.staticflickr.com/3728/20231240656_3d38bff5ae_z.jpg)](https://farm4.staticflickr.com/3728/20231240656_3d38bff5ae_z.jpg)
+![](/images/koikeyax3.jpg)
 
 然後不消半分鐘...  
   

@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 rare cheesecake口味的tohato（嘻嘻）  
 
-[![](https://1.bp.blogspot.com/-3wTEJJ69shI/XDGDVu_yPVI/AAAAAAAAEbc/TEnIKZjRp-0pMBS6RWaECIA3WcgXwCNQwCLcBGAs/s640/19.jpg)](https://1.bp.blogspot.com/-3wTEJJ69shI/XDGDVu_yPVI/AAAAAAAAEbc/TEnIKZjRp-0pMBS6RWaECIA3WcgXwCNQwCLcBGAs/s1600/19.jpg)
+![](/images/tohatocheesecake.jpg)
 
 不是平時的天天花生醬焦糖味  
 而是甜中又帶有點淡淡的酸  

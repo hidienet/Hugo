@@ -8,7 +8,7 @@ tags : [flavor - 小食部, travel - 남한・부산、경주 (釜山、慶州)]
 
 肚子開始叫，是時候吃東西  
 
-[![](https://3.bp.blogspot.com/-gpIsaJhfI-Q/XCiqrYYOhXI/AAAAAAAADas/ghR2X2oVPWwXjWVb5OJlSRb03HSDlTXhQCLcBGAs/s640/13.jpg)](https://3.bp.blogspot.com/-gpIsaJhfI-Q/XCiqrYYOhXI/AAAAAAAADas/ghR2X2oVPWwXjWVb5OJlSRb03HSDlTXhQCLcBGAs/s1600/13.jpg)
+![](/images/busanjj1c.jpg)
 
 這個攤子可以坐下來  
 點了一份雜錦的  
@@ -35,4 +35,4 @@ tags : [flavor - 小食部, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

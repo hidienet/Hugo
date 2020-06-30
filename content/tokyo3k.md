@@ -8,7 +8,7 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
 
 在船橋屋吃不夠，要來吃串燒跟喝啤酒  
 
-[![](https://1.bp.blogspot.com/-zSHEwiFQz3E/XCS6WUdVIHI/AAAAAAAACOw/M4nSz9FNSbIBZlRgJlXK-gIwoejnx0LlwCLcBGAs/s640/50.jpg)](https://1.bp.blogspot.com/-zSHEwiFQz3E/XCS6WUdVIHI/AAAAAAAACOw/M4nSz9FNSbIBZlRgJlXK-gIwoejnx0LlwCLcBGAs/s1600/50.jpg)
+![](/images/tokyo3k.jpg)
 
 店鋪都是小小窄窄的  
 所以整條巷也薰著食物的味道  
@@ -22,4 +22,4 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

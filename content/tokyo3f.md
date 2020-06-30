@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
 
 吃畢築地的早餐（終於？），步行去銀座再覓食去！  
 
-[![](https://2.bp.blogspot.com/-f8zhqld6th8/XCS0ZFjKj5I/AAAAAAAACM0/mok0N-05BPUFz3vAz30MTIJpNB5_C_OOwCLcBGAs/s640/35.jpg)](https://2.bp.blogspot.com/-f8zhqld6th8/XCS0ZFjKj5I/AAAAAAAACM0/mok0N-05BPUFz3vAz30MTIJpNB5_C_OOwCLcBGAs/s1600/35.jpg)
+![](/images/tokyo3f.jpg)
 
 來自北海道的花畑牧場出產牛奶  
 所以乳製品食物應是絕對有專業水準吧  
@@ -25,4 +25,4 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

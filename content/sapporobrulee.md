@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 天氣一唔凍就熱得好快  
 又要响冰格到拎啲消暑嘢嚟降降溫  
 
-[![](https://c1.staticflickr.com/5/4700/39648797764_0a34500a19_z.jpg)](https://c1.staticflickr.com/5/4700/39648797764_0a34500a19_z.jpg)
+![](/images/sapporobrulee.jpg)
 
 （喔！個面起咗霜有排解凍...）  
 雖然叫brûlée  

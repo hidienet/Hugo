@@ -10,7 +10,7 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
 最怕行wet market  
 最怕行wet market  
 
-[![](https://4.bp.blogspot.com/-rirrFsJKC6o/XCRovP1xiBI/AAAAAAAACLw/54fqHY8-_lMgcPxwtZFr1JG05wVwTBolgCLcBGAs/s640/20.jpg)](https://4.bp.blogspot.com/-rirrFsJKC6o/XCRovP1xiBI/AAAAAAAACLw/54fqHY8-_lMgcPxwtZFr1JG05wVwTBolgCLcBGAs/s1600/20.jpg)
+![](/images/tokyo3d.jpg)
 
 ．  
 ．  
@@ -24,4 +24,4 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

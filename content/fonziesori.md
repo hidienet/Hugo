@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 小時候是吃粟一燒嗎？  
 但總覺得這一包扭扭芝士條比較好吃  
 
-[![](https://farm6.staticflickr.com/5589/18212675823_1130cbf179_z.jpg)](https://farm6.staticflickr.com/5589/18212675823_1130cbf179_z.jpg)
+![](/images/fonziesori.jpg)
 
 相比一般鹹芝士條or圈的零食  
 fonzies的顏色會較淡  

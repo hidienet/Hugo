@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 外層是牛油味卷；裡面是濃厚的cream  
 
-[![](https://farm9.staticflickr.com/8591/15855828325_deca192b4f_z.jpg)](https://farm9.staticflickr.com/8591/15855828325_deca192b4f_z.jpg)
+![](/images/glicocolloncheese.jpg)
 
 collon就是能令人欲罷不能的小卷卷  
 脆脆的牛油圓卷  

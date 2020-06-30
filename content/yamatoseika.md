@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 輕飄飄、輕飄飄～  
 
-[![](https://farm9.staticflickr.com/8636/16125389511_b93585e804_z.jpg)](https://farm9.staticflickr.com/8636/16125389511_b93585e804_z.jpg)
+![](/images/yamatoseika.jpg)
 
 淡淡的芝士帶有微微的甜味  
 這脆片就像在吃風般吃空氣般  

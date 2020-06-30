@@ -8,12 +8,12 @@ tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東
 
 上百年的元祖炸豬排店  
 
-[![](https://2.bp.blogspot.com/-2eueuxPnDac/XCS0-jVfJEI/AAAAAAAACNE/bSkFaaa4wxEPltffyPoR7ZU1pLpDYAkPACLcBGAs/s640/38.jpg)](https://2.bp.blogspot.com/-2eueuxPnDac/XCS0-jVfJEI/AAAAAAAACNE/bSkFaaa4wxEPltffyPoR7ZU1pLpDYAkPACLcBGAs/s1600/38.jpg)
+![](/images/tokyo3h1.jpg)
 
 好大的一碟炸豬扒，配上綠葉：椰菜絲  
 沒有多餘的東西就是能見真章吧！  
 
-[![](https://4.bp.blogspot.com/-5RJQcth4qCo/XCS1IJvZDSI/AAAAAAAACNM/_MUZl3oDyPA42YDu8b6N2gqB56pxRt5RQCLcBGAs/s640/39.jpg)](https://4.bp.blogspot.com/-5RJQcth4qCo/XCS1IJvZDSI/AAAAAAAACNM/_MUZl3oDyPA42YDu8b6N2gqB56pxRt5RQCLcBGAs/s1600/39.jpg)
+![](/images/tokyo3h.jpg)
 
 金黃色的炸麵包糠包住不太厚半肥瘦的豬扒  
 清楚看到不同的脂肪跟肉的分佈  
@@ -32,7 +32,7 @@ tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東
 其實看見chanel那街口轉入向前走便是  
 店面是西式的，下層也是  
 
-[![](https://3.bp.blogspot.com/-Q6dD-IJkpoo/XCS1QfTONxI/AAAAAAAACNU/PiEy7db7rxwhVsZodoprBr9QvwxDgAnfACLcBGAs/s640/40.jpg)](https://3.bp.blogspot.com/-Q6dD-IJkpoo/XCS1QfTONxI/AAAAAAAACNU/PiEy7db7rxwhVsZodoprBr9QvwxDgAnfACLcBGAs/s1600/40.jpg)
+![](/images/tokyo3h2.jpg)
 
 但我是坐高層和式的  
 坐得腿也酸，幸好很早便到店人流不多  
@@ -40,4 +40,4 @@ tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

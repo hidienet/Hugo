@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 頭先六點九去到已經full（傻眼）  
 仲要無得訂枱...  
 
-![](/images/nara1d.jpg)
+![](/images/nara1e.jpg)
 
 咁就改架步去**140年町屋**裡面食雜草野菜 @**栗 ならまち店**  
 然而今日只有**粟「大和牛と野菜」のディナーコース**  
@@ -19,17 +19,17 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 就呢籠咁精緻嘅**前菜**嚟講  
 已經知道佢肯定值回票價啦係咪？  
 
-![](/images/nara1d1.jpg)
+![](/images/nara1e1.jpg)
 
 加多個**地酒“shooter” set**先  
 送酒嗰兩粒番茄仔甜到喊呀該煨（眼濕濕）  
 
-![](/images/nara1d2.jpg)
+![](/images/nara1e2.jpg)
 
 由頭盤小食到主菜甜品都好食到暈  
 兜**伝統野菜**...（流口水ing）  
 
-![](/images/nara1d3.jpg)
+![](/images/nara1e3.jpg)
 
 隻牛係**鐮倉大和牛**  
 一啲都冇被頭先嘅野菜比下去  
@@ -38,13 +38,13 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 燒完牛再燒野菜  
 啲菜咪就係索晒啲牛油囉呵呵呵  
 
-![](/images/nara1d4.jpg)
+![](/images/nara1e4.jpg)
 
 **麦縄つけめん**  
 彈牙彈彈牙，煮嘅時間啱啱好  
 淡淡嘅香味越食越出  
 
-![](/images/nara1d5.jpg)
+![](/images/nara1e5.jpg)
 
 **デザート**  
 美滿嘅course就係要有啲甜嘢  

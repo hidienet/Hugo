@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族, flavor - say cheese]
 一向都追求平靚正  
 但係唔係次次都成功...  
 
-[![](https://c1.staticflickr.com/1/798/26286328247_5b960e15c1_z.jpg)](https://c1.staticflickr.com/1/798/26286328247_5b960e15c1_z.jpg)
+![](/images/tesconycheesecake.jpg)
 
 係嘅，我知係衰响買超級市場牌子呢度！  
 對於以港幣三十蚊  

@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 慶州有名的包飯（쌈밥）  
 就落在大陵苑隔壁，沒有不吃的道理  
 
-[![](https://3.bp.blogspot.com/-HeU4ocW5j4k/XCyUoYWwmyI/AAAAAAAADl8/1CNcoAh4ijcVIYSTYUyDiswy7DEIWIWzQCLcBGAs/s640/06.jpg)](https://3.bp.blogspot.com/-HeU4ocW5j4k/XCyUoYWwmyI/AAAAAAAADl8/1CNcoAh4ijcVIYSTYUyDiswy7DEIWIWzQCLcBGAs/s1600/06.jpg)
+![](/images/busanjj1h.jpg)
 
 一檯食物，每樣都有一點  
 前面有飯；右邊有菜  
@@ -33,4 +33,4 @@ kimchi、菇、豆芽、煎餅、鰤魽、魚、煮豬肉等等
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

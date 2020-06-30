@@ -8,18 +8,18 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 
 今日行得多，食鰻魚補充體力就最好（耶～）  
 
-[![](https://c1.staticflickr.com/5/4542/38330585851_e0378aff49_z.jpg)](https://c1.staticflickr.com/5/4542/38330585851_e0378aff49_z.jpg)
+![](/images/nara4f1.jpg)
 
 先嚟佐酒小食：**骨せんべい**  
 鹹鹹脆脆嘅炸鰻魚骨  
 
-[![](https://c1.staticflickr.com/5/4561/38275374336_759d5054b7_z.jpg)](https://c1.staticflickr.com/5/4561/38275374336_759d5054b7_z.jpg)
+![](/images/nara4f2.jpg)
 
 **貴仙寿吉兆**  
 酒，梗係奈良嘅地酒啦  
-同擒晚嘅[無上盃](https://www.hidie.net/2017/11/day3_8.html)一樣係奈良市今市町嘅豊澤酒造  
+同擒晚嘅[無上盃](https://hidie.net/nara3f/)一樣係奈良市今市町嘅豊澤酒造  
 
-[![](https://c1.staticflickr.com/5/4425/36932929152_b8971370f6_z.jpg)](https://c1.staticflickr.com/5/4425/36932929152_b8971370f6_z.jpg)
+![](/images/nara4f.jpg)
 
 **大和牛と国産うなぎを楽しめる \[期間限定のセット\]**  
 個set有鰻魚又有大和牛  
@@ -41,7 +41,7 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 **大和地野菜入り小鉢**、**香の物**  
 拌飯好朋友  
 
-[![](https://c1.staticflickr.com/5/4581/38330585601_c98f2d3078_z.jpg)](https://c1.staticflickr.com/5/4581/38330585601_c98f2d3078_z.jpg)
+![](/images/nara4f3.jpg)
 
 **肝串焼き**  
 就算好飽都要叫嘅  
@@ -58,16 +58,9 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 而且塊玻璃係手打嘅  
 即係唔係完全平滑  
 側面睇會見到波紋嗰種  
-同今朝喺[吉城園](https://www.hidie.net/2017/11/day4.html)見到嘅一樣  
+同今朝喺[吉城園](https://hidie.net/nara4a/)見到嘅一樣  
 係一九五零年代以前嘅日本出品  
 既然點影都唔好睇  
 你哋有機會就自己嚟睇吓啦！  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：志津香 | 興福寺五重塔 | 猿沢池 | なら泉勇斎 | 中谷堂 | 栗 ならまち店](https://www.hidie.net/2017/09/day-1.html)  
-[Day2：春日大社 | 奈良公園と鹿 | 玄 | 春鹿 | ならまち格子の家 | 樫舎 | 大仏プリン | 亜耶](https://www.hidie.net/2017/09/day-2.html)  
-[Day3：浮見堂 | 平宗柿の葉ずし | 奈良国立博物館 | 茶房暖暖 | 茶道体験 | 和やまむら](https://www.hidie.net/2017/09/day-3.html)  
-[Day4：吉城園 | 天極堂 | 東大寺 | 麺闘庵 | 江戸川 | あけび](https://www.hidie.net/2017/09/day-4.html)  
-[Day5：柿の葉すし たなか → 大阪](https://www.hidie.net/2017/09/day1.html)
+{{nara}}

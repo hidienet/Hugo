@@ -10,7 +10,7 @@ tags : [flavor - say cheese]
 配上濃郁的smoked cheese  
 會不會又鹹又甜怪怪的呢？  
 
-[![](https://farm8.staticflickr.com/7550/15933271156_69886911c5_z.jpg)](https://farm8.staticflickr.com/7550/15933271156_69886911c5_z.jpg)
+![](/images/mcvitiescheesespice.jpg)
 
 日版的芝士夾心麥維他  
 比傳統的薄身脆口些  

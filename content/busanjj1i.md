@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
 
 超好吃的慶州甜點！！！  
 
-[![](https://1.bp.blogspot.com/-yZj2Jwh392o/XCyVBpqowZI/AAAAAAAADmI/pjkkx5pfz4kMQfAhGUi2rL6Ydy-x9yuRACLcBGAs/s640/07.jpg)](https://1.bp.blogspot.com/-yZj2Jwh392o/XCyVBpqowZI/AAAAAAAADmI/pjkkx5pfz4kMQfAhGUi2rL6Ydy-x9yuRACLcBGAs/s1600/07.jpg)
+![](/images/busanjj1i.jpg)
 
 在鋪頭附近已聞到烤香的味道  
 那是始創於1939年的餅店  
@@ -28,4 +28,4 @@ tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

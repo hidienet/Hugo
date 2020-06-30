@@ -91,19 +91,19 @@ ROAR！！！！！！
 [宮原眼科 醉月樓](http://www.hidie.net/2016/03/day8_2.html)  
   
 **buy before bye**  
-\[飲\] [金穜輕之酒（小米酒）](http://www.hidie.net/2016/03/cheers.html)  
-\[飲\][香芭樂 芭樂心葉茶](http://www.hidie.net/2016/03/tea.html)  
-\[飲\][小萃幸 元氣美人茶](http://www.hidie.net/2016/03/tea_17.html)  
-\[食\] [山海經脈 原色金針](http://www.hidie.net/2016/03/bike-de-koffie.html)  
-\[醬\] [BIKE De Koffie 鳳梨奇異果果醬](http://www.hidie.net/2016/03/blog-post.html)  
-\[蜜\] [蜂之饗宴 厚皮香結晶蜜](http://www.hidie.net/2016/03/blog-post_14.html)  
-\[衣\] [核電歸零tee](http://www.hidie.net/2016/03/tee-time-tee.html)  
+\[飲\] [金穜輕之酒（小米酒）](https://hidie.net/taitungricewine/)  
+\[飲\][香芭樂 芭樂心葉茶](https://hidie.net/guavatea/)  
+\[飲\][小萃幸 元氣美人茶](https://hidie.net/littlehappinesstea/)  
+\[食\] [山海經脈 原色金針](https://hidie.net/bikedekoffie/)  
+\[醬\] [BIKE De Koffie 鳳梨奇異果果醬](https://hidie.net/taitunggoldenneedle/)  
+\[蜜\] [蜂之饗宴 厚皮香結晶蜜](https://hidie.net/beeweb/)  
+\[衣\] [核電歸零tee](https://hidie.net/zeronucleartee/)  
   
   
   
   
 
-[![](https://c2.staticflickr.com/6/5531/30465852743_8617af14f2_z.jpg)](https://c2.staticflickr.com/6/5531/30465852743_8617af14f2_z.jpg)
+![](/images/taitung8d7n.jpg)
 
 **臺東轉運站**  
 轉運呀！我都要轉個好運呀！（大誤）

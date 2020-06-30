@@ -9,7 +9,7 @@ tags : [flavor - say cheese]
 平民版嘅白痴戀人  
 而且比佢更加多款味  
 
-[![](https://c1.staticflickr.com/5/4765/38803045590_5f3778287a_z.jpg)](https://c1.staticflickr.com/5/4765/38803045590_5f3778287a_z.jpg)
+![](/images/langulyhokkaido.jpg)
 
 見到季節限定嘛  
 咪試吓呢隻北海道芝士味囉  

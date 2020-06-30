@@ -12,13 +12,13 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪, flavor
 加上見到数量限定呢幾隻咁有魔性嘅字  
 唔食就唔係我啦係咪？（哈）  
 
-[![](https://c1.staticflickr.com/5/4333/36234134403_32fc87f8eb_z.jpg)](https://c1.staticflickr.com/5/4333/36234134403_32fc87f8eb_z.jpg)
+![](/images/nara2e1.jpg)
 
 **樫舎の氷 わらび餅入り**  
 宇治金時咁啦  
 有抹茶蜜、紅豆餡、白玉、寒天同最緊要嘅冰  
 
-[![](https://c1.staticflickr.com/5/4336/36874145782_023e7ce988_z.jpg)](https://c1.staticflickr.com/5/4336/36874145782_023e7ce988_z.jpg)
+![](/images/nara2e2.jpg)
 
 反正都食梗係要有埋わらび餅啦  
 咁話晒都有食到本葛嘛  
@@ -26,16 +26,9 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪, flavor
   
 無咩嘅，一碗裡面咩都有嘛就係滿足囉～  
 
-[![](https://c1.staticflickr.com/5/4383/36930141136_806f457905_z.jpg)](https://c1.staticflickr.com/5/4383/36930141136_806f457905_z.jpg)
+![](/images/nara2e.jpg)
 
 又係影町屋嘅時候  
 樫舎隔離就係擒晚間栗喇  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：志津香 | 興福寺五重塔 | 猿沢池 | なら泉勇斎 | 中谷堂 | 栗 ならまち店](https://www.hidie.net/2017/09/day-1.html)  
-[Day2：春日大社 | 奈良公園と鹿 | 玄 | 春鹿 | ならまち格子の家 | 樫舎 | 大仏プリン | 亜耶](https://www.hidie.net/2017/09/day-2.html)  
-[Day3：浮見堂 | 平宗柿の葉ずし | 奈良国立博物館 | 茶房暖暖 | 茶道体験 | 和やまむら](https://www.hidie.net/2017/09/day-3.html)  
-[Day4：吉城園 | 天極堂 | 東大寺 | 麺闘庵 | 江戸川 | あけび](https://www.hidie.net/2017/09/day-4.html)  
-[Day5：柿の葉すし たなか → 大阪](https://www.hidie.net/2017/09/day1.html)
+{{<nara>}}

@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 是產地的問題嗎？  
 
-[![](https://farm9.staticflickr.com/8861/18030701345_96f648841c_z.jpg)](https://farm9.staticflickr.com/8861/18030701345_96f648841c_z.jpg)
+![](/images/doritosnachocheesier.jpg)
 
 同樣有多個版本  
 但不知為甚麼單一芝士味的話  

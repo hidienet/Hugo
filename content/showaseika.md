@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 感覺很冬天的蛋糕  
 
-[![](https://farm9.staticflickr.com/8576/15824363517_8f035755d3_z.jpg)](https://farm9.staticflickr.com/8576/15824363517_8f035755d3_z.jpg)
+![](/images/showaseika.jpg)
 
 蛋糕鋪上生cream的「雪面」  
 下層是半實的cream cheesecake  

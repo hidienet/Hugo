@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 一吃就有種很熟悉很懷念的感覺（遠望）  
 
-[![](https://farm9.staticflickr.com/8776/17133945891_bd21a2eb9e_z.jpg)](https://farm9.staticflickr.com/8776/17133945891_bd21a2eb9e_z.jpg)
+![](/images/risukacheese.jpg)
 
 是小時候小食部零食的味道  
 芝士味玉米棒的圈圈版  

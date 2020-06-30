@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 點稱呼佢好呢？  
 
-[![](https://c1.staticflickr.com/9/8437/29278896586_5088fcc121_z.jpg)](https://c1.staticflickr.com/9/8437/29278896586_5088fcc121_z.jpg)
+![](/images/shoeidelicyny.jpg)
 
 個樣似饅頭，食落係鬆軟蛋糕  
 裡面仲有韌韌哋嘅內層餡  

@@ -9,10 +9,10 @@ tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御�
 我不覺得外國的月亮比較圓  
 但日本的牛奶比較濃卻是我親嚐的！  
 
-[![](https://3.bp.blogspot.com/-WQA4sXamD4k/XCTQ56kQauI/AAAAAAAACPY/vXvhT6lhZK0gnPVeMrKuL7DJFT63VpK1QCLcBGAs/s640/1.jpg)](https://3.bp.blogspot.com/-WQA4sXamD4k/XCTQ56kQauI/AAAAAAAACPY/vXvhT6lhZK0gnPVeMrKuL7DJFT63VpK1QCLcBGAs/s1600/1.jpg)
+![](/images/tokyo4a.jpg)
 
 美好的早晨，今天出遠門去～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

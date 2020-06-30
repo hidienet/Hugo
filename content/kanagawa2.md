@@ -141,17 +141,17 @@ premium啤係用聚泡聚香氣嘅杯裝住
 呢度有**定番6種 x food pairing set**  
 一個上午就試咗9隻味嘅kirin  
 
-![](https://q1w8ww.ch.files.1drv.com/y4mSBJMaqr-RWbVSlRs-HNsRr7ZxEGsxxVd7uLJ4LrggkQaSjjsTaRHUN1MfC30FBPfOhmulzJrd67GIApRZtDMCmtIGGIj_2D_xGb_4H4aprGn19MfZjbtBSeCgoV33cVdLJYM3lJRFaHc-f1u-YjQCLaJvi5MFaPlknYeidAbMxy8UH3M1fjEC1MCQL1FmB5OQRXCA260mFJZ832EhEk_Iw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2f2.jpg)
 
 飲到肚脹脹又再移動到**黃金町**  
 
-![](https://q1wqww.ch.files.1drv.com/y4mfDdx50cBDwTz0yCIXyvcUAntpoZO1byj3R2eHD66QSp1pT9U6f5IN8_6z1-2h0494D1orvcqmFObn2UsCIrtoYdWV0gt0iBFhdYEPzET2u-F8BsmLaSfDlKRlRSSy8_S1XVFs2DCOqb9bTdhpvaaeIuOnzP2otI9EpfoCZxEd1ykyXCSojBqEZ1an0xeGL3910bhJbJpiidWgcHOsr09Bg?width=660&height=371&cropmode=none)
+![](/images/kanagawa2f.jpg)
 
-行兩步就到**横浜橋商店街**  
+行兩步就到[横浜橋商店街](https://hidie.net/kanagawa2f/)  
 
-![](https://q1xcww.ch.files.1drv.com/y4m7_rMo9GzixBtpuMlSDuBrd_DSs3lC_ioYhYZMDUH6iQQRmLOaSK8y7unGbBrCksGbpwmFbg1zBCYUDpVNH9mUwxCIE7RQ7kkgY58qIrl00vte9gQH2CwbDWRE13QzdxKrd5GxPY2DeRqE1kJZKFnwV9yGJfA0whZxEGTpa6B4IYNwWU3c4k6IFGMR-JoEk0to5OFqlMFBN7qoesMQDd1hg?width=660&height=371&cropmode=none)
+![](/images/kanagawa2g.jpg)
 
-食～鰻～魚～ @**うなぎ 八舟**  
+食～鰻～魚～ @[うなぎ 八舟](https://hidie.net/kanagawa2g/)  
 煮鰻魚浦燒白燒同肝串燒都好好食（流口水）  
 
 ![](https://a12plq.ch.files.1drv.com/y4mqDvuxiqtfsewaElf6t9lpmkK2AqPBWUQNijE2N64Tnk1Db8eAnoi4Oeh8oWzjTI5a_vJyE_QyNqQKKaRHjMGHXdquVx3H2xmfh9A6O_Hlqvjwy1gIZJSGi_nHkFax7tp5QwNUWQcaIzzTq7zAiXJrHlsPde9TzW6ogAiUFX6PD5ouzaM4ihiLftH7hrQXN00t5xRv0NUk1mu17K3NhJ7jw?width=660&height=371&cropmode=none)

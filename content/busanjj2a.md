@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
 因為很喜歡吃人參雞湯  
 所以brunch吃這個也無妨啊～  
 
-[![](https://4.bp.blogspot.com/-f_jZ0hGtybk/XCyVYk3eoeI/AAAAAAAADmU/2BX1BKvU-6whEtqNxvYmddNo_yEFZXh0wCLcBGAs/s640/09.jpg)](https://4.bp.blogspot.com/-f_jZ0hGtybk/XCyVYk3eoeI/AAAAAAAADmU/2BX1BKvU-6whEtqNxvYmddNo_yEFZXh0wCLcBGAs/s1600/09.jpg)
+![](/images/busanjj2a.jpg)
 
 一個人吃一整鍋！  
 熱騰騰又濃郁的雞湯  
@@ -30,4 +30,4 @@ tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶�
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

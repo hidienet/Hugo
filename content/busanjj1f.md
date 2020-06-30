@@ -8,7 +8,7 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
 
 在路上的一輛卡上車買的  
 
-[![](https://4.bp.blogspot.com/-Q_WAtTahPII/XCjL0j7ktbI/AAAAAAAADis/6ImO17dza9oC417yfSzlQBrt7Q8sib2LACLcBGAs/s640/17.jpg)](https://4.bp.blogspot.com/-Q_WAtTahPII/XCjL0j7ktbI/AAAAAAAADis/6ImO17dza9oC417yfSzlQBrt7Q8sib2LACLcBGAs/s1600/17.jpg)
+![](/images/busanjj1f.jpg)
 
 很便宜的就已經是一大堆  
 擺明是吃不完的份量  
@@ -20,4 +20,4 @@ tags : [travel - 남한・부산、경주 (釜山、慶州)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](http://www.hidie.net/2014/01/8d7n.html)
+延伸閱讀：[明明遊慶州 偏向釜山行（8D7N）](https://hidie.net/busanjj8d7n/)

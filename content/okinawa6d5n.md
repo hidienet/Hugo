@@ -89,6 +89,6 @@ day 6
 [\[吃\] 御菓子御殿 元祖紅いもタルト](http://www.hidie.net/2013/11/blog-post_6121.html)  
   
 
-[![](https://2.bp.blogspot.com/-chJarvrXMog/XCeBQA3FMDI/AAAAAAAACy0/O6lasRDcJ-oR3iIcuySj1DLPBKwjdaqWwCLcBGAs/s640/99.jpg)](https://2.bp.blogspot.com/-chJarvrXMog/XCeBQA3FMDI/AAAAAAAACy0/O6lasRDcJ-oR3iIcuySj1DLPBKwjdaqWwCLcBGAs/s1600/99.jpg)
+![](/images/okinawa6d5n.jpg)
 
 餓鬼 XDDD

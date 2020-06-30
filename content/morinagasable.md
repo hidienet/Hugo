@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 無法抗拒寫著「期間限定」的東西...  
 
-[![](https://farm9.staticflickr.com/8756/17037081771_39fd95fa95_z.jpg)](https://farm9.staticflickr.com/8756/17037081771_39fd95fa95_z.jpg)
+![](/images/morinagasable.jpg)
 
 含生換算7%cheddar cheese的sablé  
 氣味同味道都帶有鹹香的之時味  

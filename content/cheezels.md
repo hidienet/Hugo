@@ -10,7 +10,7 @@ tags : [flavor - say cheese]
 不吃這個就不知道原來芝士圈應該是這個味道  
 （絕無誇張！）  
 
-[![](https://1.bp.blogspot.com/-JsEvoXbLl4Y/XC4QewGWNxI/AAAAAAAAD6o/KRa556nEpNcG_I3cm4TpCl5ZHxgV9hq7wCLcBGAs/s640/99.jpg)](https://1.bp.blogspot.com/-JsEvoXbLl4Y/XC4QewGWNxI/AAAAAAAAD6o/KRa556nEpNcG_I3cm4TpCl5ZHxgV9hq7wCLcBGAs/s1600/99.jpg)
+![](/images/cheezels.jpg)
 
 鬆化的芝士圈  
 是粟米＋米的效果  

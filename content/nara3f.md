@@ -10,17 +10,17 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 呢間係Michelin奈良唯一一間三星嘅餐廳  
 食嘅... 係懷石料理（撒花）  
 
-[![](https://c1.staticflickr.com/5/4456/38005806301_ed55505a8e_z.jpg)](https://c1.staticflickr.com/5/4456/38005806301_ed55505a8e_z.jpg)
+![](/images/nara3f1.jpg)
 
 **無上盃**  
 咪講咁多，食嘢前梗係酒嚟先  
 （响奈良飲清酒係常識啩）  
 
-[![](https://c1.staticflickr.com/5/4451/38005804321_967102ee73_z.jpg)](https://c1.staticflickr.com/5/4451/38005804321_967102ee73_z.jpg)
+![](/images/nara3f2.jpg)
 
 睇吓今晚食乜先  
 
-[![](https://c1.staticflickr.com/5/4507/37296957454_4fd87ccfa6_z.jpg)](https://c1.staticflickr.com/5/4507/37296957454_4fd87ccfa6_z.jpg)
+![](/images/nara3f3.jpg)
 
 好少見我影**メニュー**㗎  
 不過佢哋係用手寫  
@@ -32,7 +32,7 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 好喇，食嘢喇！  
   
 
-[![](https://c1.staticflickr.com/5/4471/38005794631_5bfb398de4_z.jpg)](https://c1.staticflickr.com/5/4471/38005794631_5bfb398de4_z.jpg)
+![](/images/nara3f4.jpg)
 
 (前) **餐前酒**：**菊酒**，有菊花嘅清酒  
 先清清喉嚨先去食嘢  
@@ -44,7 +44,7 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 一口仔有齊晒軟滑腍帶微酸香  
 好開胃呀～  
 
-[![](https://c1.staticflickr.com/5/4501/37296951224_6723189813_z.jpg)](https://c1.staticflickr.com/5/4501/37296951224_6723189813_z.jpg)
+![](/images/nara3f5.jpg)
 
 **おわん**  
 以**土瓶蒸し**嚟煮嘅湯用炭爐慢慢㷫住  
@@ -52,7 +52,7 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 香噴噴又鮮甜嘅湯  
 飲嘅時候再唧少少青擰提鮮就更perfect  
 
-[![](https://c1.staticflickr.com/5/4494/37975429332_867679d217_z.jpg)](https://c1.staticflickr.com/5/4494/37975429332_867679d217_z.jpg)
+![](/images/nara3f6.jpg)
 
 **道明寺蒸し**  
 唔响メニュー度但係突然送上嚟  
@@ -61,14 +61,14 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 香甜嘅菇加埋軟綿綿嘅飯  
 哎呀呀會唔會太好食呀？  
 
-[![](https://c1.staticflickr.com/5/4512/38005798691_0bffe2159a_z.jpg)](https://c1.staticflickr.com/5/4512/38005798691_0bffe2159a_z.jpg)
+![](/images/nara3f7.jpg)
 
 **お造り**：**甘海老**、**鮪**、**平目**、**烏賊**  
 只係鮪魚(左二)係點左邊嘅醤油  
 其他幾款都係點右邊嘅大根醤油  
 見個閃令令嘅色就知佢哋有幾新鮮啦係咪  
 
-[![](https://c1.staticflickr.com/5/4368/37066493255_2f58cbe618_z.jpg)](https://c1.staticflickr.com/5/4368/37066493255_2f58cbe618_z.jpg)
+![](/images/nara3f.jpg)
 
 **八寸**：  
 **胡麻豆腐** － 嫩滑嫩滑滲有芝麻香嘅豆腐  
@@ -81,65 +81,65 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 **ホホ貝**、**酢味噌** － 酸酸地嘅北寄貝好好咬  
 **八幡卷** － 味道香濃嘅鰻魚牛蒡卷  
 
-[![](https://c1.staticflickr.com/5/4444/38005796161_9ce9b85c15_z.jpg)](https://c1.staticflickr.com/5/4444/38005796161_9ce9b85c15_z.jpg)
+![](/images/nara3f8.jpg)
 
 **焼物**  
 哈哈哈唔係燒草食啦  
 
-[![](https://c1.staticflickr.com/5/4469/37296952124_267c57b452_z.jpg)](https://c1.staticflickr.com/5/4469/37296952124_267c57b452_z.jpg)
+![](/images/nara3f9.jpg)
 
 **鮎塩焼き 香魚**  
 就係食佢喇！  
 點綠色嘅**たで酢**食嘅  
 香魚仔真係名副其實地香到爆！  
 
-[![](https://c1.staticflickr.com/5/4488/37296949894_eeb865fc63_z.jpg)](https://c1.staticflickr.com/5/4488/37296949894_eeb865fc63_z.jpg)
+![](/images/nara3f10.jpg)
 
 **冷物**  
 **大葉葛切り** x **長芋素麺** x **車海老**  
 食完熱辣辣嘅燒嘢就嚟兜凍得嚟清香嘅條條清吓口  
 一種爽另一種就韌夾埋一齊好好食  
 
-[![](https://c1.staticflickr.com/5/4485/26229665869_88a51b0e06_z.jpg)](https://c1.staticflickr.com/5/4485/26229665869_88a51b0e06_z.jpg)
+![](/images/nara3f11.jpg)
 
 **焚合**  
 然後就係返嚟暖胃嘅嘢食  
 
-[![](https://c1.staticflickr.com/5/4488/38005799581_af3a886f34_z.jpg)](https://c1.staticflickr.com/5/4488/38005799581_af3a886f34_z.jpg)
+![](/images/nara3f12.jpg)
 
 裡面係**青茄子**、**百合根**、**焼穴子**、**湯葉** (豆腐皮)  
 加埋含生姜嘅芡汁  
 
-[![](https://c1.staticflickr.com/5/4453/38005797931_74cae77fda_z.jpg)](https://c1.staticflickr.com/5/4453/38005797931_74cae77fda_z.jpg)
+![](/images/nara3f13.jpg)
 
 **ごはん**（**漬物**唔太鹹好好味呢）  
 好喇食咗好多嘢差唔多到尾聲食飯嘅時間喇  
 有四款揀，唔夠又可以添喎  
 咪試晒四隻囉... ↓↓↓  
 
-[![](https://c1.staticflickr.com/5/4497/37975428482_28269368b1_z.jpg)](https://c1.staticflickr.com/5/4497/37975428482_28269368b1_z.jpg)
+![](/images/nara3f14.jpg)
 
 **クリ** － 秋天（雖然奈良仲好熱）係要食栗子嘅  
 
-[![](https://c1.staticflickr.com/5/4499/37296954604_0e36346e1c_z.jpg)](https://c1.staticflickr.com/5/4499/37296954604_0e36346e1c_z.jpg)
+![](/images/nara3f15.jpg)
 
 **ちりめん** － 好好送飯嘅煮魚仔呀！  
 
-[![](https://c1.staticflickr.com/5/4443/38005792201_636b89a122_z.jpg)](https://c1.staticflickr.com/5/4443/38005792201_636b89a122_z.jpg)
+![](/images/nara3f16.jpg)
 
 **たらこ** － 燒過嘅鱈魚籽好香呢，仲有好得意嘅波波波波  
 
-[![](https://c1.staticflickr.com/5/4461/26229667359_88726e865c_z.jpg)](https://c1.staticflickr.com/5/4461/26229667359_88726e865c_z.jpg)
+![](/images/nara3f17.jpg)
 
 **かに** － 鮮甜嘅蟹肉粥  
 
-[![](https://c1.staticflickr.com/5/4503/37296956784_f7b4569332_z.jpg)](https://c1.staticflickr.com/5/4503/37296956784_f7b4569332_z.jpg)
+![](/images/nara3f18.jpg)
 
 **果物**  
 **jelly**入面有**スイカ**、**メロン**同**マンゴ**  
 清清甜咁成為呢餐嘅結尾  
 
-[![](https://c1.staticflickr.com/5/4466/38005790501_a18c49303b_z.jpg)](https://c1.staticflickr.com/5/4466/38005790501_a18c49303b_z.jpg)
+![](/images/nara3f19.jpg)
 
 食完後畀錢啦  
 返嚟發現個**メニュー**嘅背面啲空白位  
@@ -158,11 +158,4 @@ well，呢張咁獨一無二嘅メニュー梗係帶走啦
 
 食飽，返去瞓覺先～  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-[Day1：志津香 | 興福寺五重塔 | 猿沢池 | なら泉勇斎 | 中谷堂 | 栗 ならまち店](https://www.hidie.net/2017/09/day-1.html)  
-[Day2：春日大社 | 奈良公園と鹿 | 玄 | 春鹿 | ならまち格子の家 | 樫舎 | 大仏プリン | 亜耶](https://www.hidie.net/2017/09/day-2.html)  
-[Day3：浮見堂 | 平宗柿の葉ずし | 奈良国立博物館 | 茶房暖暖 | 茶道体験 | 和やまむら](https://www.hidie.net/2017/09/day-3.html)  
-[Day4：吉城園 | 天極堂 | 東大寺 | 麺闘庵 | 江戸川 | あけび](https://www.hidie.net/2017/09/day-4.html)  
-[Day5：柿の葉すし たなか → 大阪](https://www.hidie.net/2017/09/day1.html)
+{{<nara>}}

@@ -9,11 +9,11 @@ tags : [flavor - 螞蟻族, flavor - say cheese]
 芝士啦雪糕啦仲要係期間限定喎  
 對眼仲唔發光咩？  
 
-[![](https://c1.staticflickr.com/5/4784/40132474364_0effa182c7_z.jpg)](https://c1.staticflickr.com/5/4784/40132474364_0effa182c7_z.jpg)
+![](/images/lottesweetssquare.jpg)
 
 濃密但係輕身係咩玩法？  
 
-[![](https://c1.staticflickr.com/1/791/40132475674_710d187331_z.jpg)](https://c1.staticflickr.com/1/791/40132475674_710d187331_z.jpg)
+![](/images/lottesweetssquare1.jpg)
 
 打開個樣同包裝個樣冇咩大分別  
 過得到商品說明條例  

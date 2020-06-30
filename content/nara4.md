@@ -11,7 +11,7 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 
 [![](https://c1.staticflickr.com/5/4424/36290091843_e3c9bb68da_z.jpg)](https://c1.staticflickr.com/5/4424/36290091843_e3c9bb68da_z.jpg)
 
-被一片綠同一條水包圍嘅**[吉城園](http://www.hidie.net/2017/11/day4_9.html)**  
+被一片綠同一條水包圍嘅[吉城園](http://www.hidie.net/2017/11/day4_9.html)  
 真係骨魔寧呢  
 
 [![](https://c1.staticflickr.com/5/4438/36706823930_2bc613c274_z.jpg)](https://c1.staticflickr.com/5/4438/36706823930_2bc613c274_z.jpg)

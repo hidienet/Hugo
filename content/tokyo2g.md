@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
 
 力氣已盡，急需補充體力（甜食！）  
 
-[![](https://1.bp.blogspot.com/-DctRNdyPRkw/XCRlxFdpF5I/AAAAAAAACJ8/X4vc5yDNOHwLM6sbzyxl06wE_QNRYH1GgCLcBGAs/s640/5.jpg)](https://1.bp.blogspot.com/-DctRNdyPRkw/XCRlxFdpF5I/AAAAAAAACJ8/X4vc5yDNOHwLM6sbzyxl06wE_QNRYH1GgCLcBGAs/s1600/5.jpg)
+![](/images/tokyo2g.jpg)
 
 doughnut plant是來自紐約不過日本跟韓國都有分店  
 揀了一件最「原味」的tres leches  
@@ -28,4 +28,4 @@ tres leches是由一種在西班牙的tres leches cake演化成的
   
 \-----------------------------------------------  
   
-延伸閱讀：[東京箱根食買浸 (6D5N)](http://www.hidie.net/2013/11/6d5n.html)
+延伸閱讀：[東京箱根食買浸 (6D5N)](https://hidie.net/tokyo6d5n/)

@@ -6,14 +6,14 @@ aliases: [ "/2013/11/blog-post_9.html" ]
 tags : [flavor - 小食部]
 ---
 
-比起在大涌谷吃的那一隻難吃到哭出來的[全熟黒玉子](http://www.hidie.net/2013/11/day5_3.html)  
+比起在大涌谷吃的那一隻難吃到哭出來的[全熟黒玉子](https://hidie.net/tokyo5c/)  
 這全手工製作的溫泉蛋就是感動的美味～  
 
-[![](https://2.bp.blogspot.com/--4RTGDtUj_U/XCc-e8kQpDI/AAAAAAAACd0/ys_Lj-2PY5QO-end4QE_qau2WgUVQdyfACLcBGAs/s640/21.jpg)](https://2.bp.blogspot.com/--4RTGDtUj_U/XCc-e8kQpDI/AAAAAAAACd0/ys_Lj-2PY5QO-end4QE_qau2WgUVQdyfACLcBGAs/s1600/21.jpg)
+![](/images/hakutamago.jpg)
 
 外表跟大涌谷的黒玉子一樣  
 
-[![](https://1.bp.blogspot.com/-5RAGxlrR99U/XCc-qm3nAaI/AAAAAAAACd4/idVkGRtiqT4rcsOR6qWOXcp7Ps3ei3D8wCLcBGAs/s640/22.jpg)](https://1.bp.blogspot.com/-5RAGxlrR99U/XCc-qm3nAaI/AAAAAAAACd4/idVkGRtiqT4rcsOR6qWOXcp7Ps3ei3D8wCLcBGAs/s1600/22.jpg)
+![](/images/hakutamago1.jpg)
 
 這個才能稱為温泉玉子吧！  
   
@@ -29,5 +29,5 @@ tags : [flavor - 小食部]
   
   
   
-另，放蛋的兜是[pastel pudding](http://www.hidie.net/2013/10/day2-pastel-pudding.html)的那個容器  
+另，放蛋的兜是[pastel pudding](https://hidie.net/tokyo2h/)的那個容器  
 大小剛好又漂亮，超喜歡

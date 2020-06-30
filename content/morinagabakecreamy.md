@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 一口一個濃郁的baked cheesecake  
 
-[![](https://2.bp.blogspot.com/-NhYP70wD7A4/XEMorYZfDxI/AAAAAAAAFxI/Ab8K2BzI5E0vybDRotM4n2209JyKfGngACLcBGAs/s640/14416013382_26dfe1e012_z.jpg)](https://2.bp.blogspot.com/-NhYP70wD7A4/XEMorYZfDxI/AAAAAAAAFxI/Ab8K2BzI5E0vybDRotM4n2209JyKfGngACLcBGAs/s1600/14416013382_26dfe1e012_z.jpg)
+![](/images/morinagabakecreamy.jpg)
 
 打開包裝盒已有濃濃芝士蛋糕氣味  
 烤得有少少焦脆的表面  

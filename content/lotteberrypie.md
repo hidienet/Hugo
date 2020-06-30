@@ -6,10 +6,10 @@ aliases: [ "/2015/07/lotte.html" ]
 tags : [flavor - say cheese]
 ---
 
-一粒裡面有64層餓的酥皮  
+一粒裡面有64層的酥皮  
 好鬆耶～  
 
-[![](https://farm4.staticflickr.com/3699/18781560824_f29fa43321_z.jpg)](https://farm4.staticflickr.com/3699/18781560824_f29fa43321_z.jpg)
+![](/images/lotteberrypie.jpg)
 
 加上甜度還好的藍莓cream cheese內餡  
   

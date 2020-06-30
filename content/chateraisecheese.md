@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族, flavor - say cheese]
 咁啱行過見到有芝士味夾心bouchée  
 有三款喎點算好？買晒嚟試囉～  
 
-[![](https://c1.staticflickr.com/5/4787/39979412984_2b674655d6_z.jpg)](https://c1.staticflickr.com/5/4787/39979412984_2b674655d6_z.jpg)
+![](/images/chateraisecheese.jpg)
 
 三款bouchée嘅殼都係一樣  
 微微鬆軟甜甜哋外皮脆身餅位半乾身  

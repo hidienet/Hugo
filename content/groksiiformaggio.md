@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 意式小食時間進行中  
 
-[![](https://c1.staticflickr.com/5/4417/36159167594_df596a9805_z.jpg)](https://c1.staticflickr.com/5/4417/36159167594_df596a9805_z.jpg)
+![](/images/groksiiformaggio.jpg)
 
 細細粒圓餅形芝士粒  
 輕飄飄咁一粒呀幾粒呀一次啪入口  

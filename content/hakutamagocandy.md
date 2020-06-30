@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 又是黒玉子（箱根嘛～）  
 
-[![](https://2.bp.blogspot.com/-b8OSbEWlrXw/XCdAMA5uX1I/AAAAAAAACeU/RVPnRLO336Yt_oKWttt4INBhkJz4U_maQCLcBGAs/s640/25.jpg)](https://2.bp.blogspot.com/-b8OSbEWlrXw/XCdAMA5uX1I/AAAAAAAACeU/RVPnRLO336Yt_oKWttt4INBhkJz4U_maQCLcBGAs/s1600/25.jpg)
+![](/images/hakutamagocandy.jpg)
 
 這粒糖嘛，沒有蛋味  
 普通人工造糖的味  

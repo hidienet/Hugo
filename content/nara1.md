@@ -15,10 +15,10 @@ tags : [lifestyle - 逃離852, travel - 日本（関西近畿）・ 大和奈良
   
 去吓去吓，到咗咪掉低行李  
 
-[![](https://c1.staticflickr.com/5/4368/36833649056_8b920c8feb_z.jpg)](https://c1.staticflickr.com/5/4368/36833649056_8b920c8feb_z.jpg)
+![](/images/nara1a.jpg)
 
 （**奈良七種釜めし**）  
-然後係時候食個奔廚喇 @**[志津香](http://www.hidie.net/2017/10/day1.html)**  
+然後係時候食個奔廚喇 @**[志津香](https://hidie.net/nara1a/)**  
 開店前十五分鐘排隊  
 排第九呀～ 所以出菜都係第九位  
 因為即叫即整，差唔多半個鐘個釜めし就送到  
@@ -26,34 +26,34 @@ tags : [lifestyle - 逃離852, travel - 日本（関西近畿）・ 大和奈良
   
 好喇食飽飯梗係要去感受吓呢個古都  
 大和嘅發源地，比京都嗰啲早好多  
-**興福寺**個寺有成1300年歷史（瞪大眼）  
+[興福寺](https://hidie.net/nara1b/)個寺有成1300年歷史（瞪大眼）  
 
-[![](https://c1.staticflickr.com/5/4383/37021934255_9d1fce9700_z.jpg)](https://c1.staticflickr.com/5/4383/37021934255_9d1fce9700_z.jpg)
+![](/images/nara1b1.jpg)
 
 不過個主殿**中金堂**整備中  
 
-[![](https://c1.staticflickr.com/5/4432/36881113341_3a0811118f_z.jpg)](https://c1.staticflickr.com/5/4432/36881113341_3a0811118f_z.jpg)
+![](/images/nara1b.jpg)
 
 有得睇嘅仲有代表住古都奈良嘅國寶**五重塔**  
-雄偉而不華麗，好奈良啊～  
+宏偉而不華麗，好奈良啊～  
 
-[![](https://c1.staticflickr.com/5/4380/36932136126_8279da2cd5_z.jpg)](https://c1.staticflickr.com/5/4380/36932136126_8279da2cd5_z.jpg)
+![](/images/nara1b2.jpg)
 
 再兜到每日必經嘅**猿沢池**  
 
-[![](https://c1.staticflickr.com/5/4353/37042118655_57929c0ec5_z.jpg)](https://c1.staticflickr.com/5/4353/37042118655_57929c0ec5_z.jpg)
+![](/images/nara1c.jpg)
 
 行吓行吓口乾乾  
-去飲吓**奈良の地酒**先 @**なら泉勇斎**  
+去飲吓**奈良の地酒**先 @[なら泉勇斎](https://hidie.net/nara1c/)  
 啱啱仲有今年新酒評價獲金賞酒試㖭呀  
 （貴少少都要試吓）  
 左邊枝**三諸杉**超！好！味！  
 氣味香味道醇個after taste仲要好特別（拇指）  
 
-[![](https://c1.staticflickr.com/5/4426/36214035153_cc01fd61f8_z.jpg)](https://c1.staticflickr.com/5/4426/36214035153_cc01fd61f8_z.jpg)
+![](/images/nara1d.jpg)
 
 飲咗少少嘢呢又想食少少嘢喎  
-嚟返個古早味嘅**よもぎ餅**@**中谷堂**就啱啱好  
+嚟返個古早味嘅**よもぎ餅**@[中谷堂](https://hidie.net/nara1d/)就啱啱好  
 軟糯中夠煙韌，味道樸實唔太甜  
 好好食呀嚟到千祈唔好錯過～  
 就咁駐足睇現場高速舂餅都係賞心樂事  
@@ -66,9 +66,9 @@ tags : [lifestyle - 逃離852, travel - 日本（関西近畿）・ 大和奈良
 頭先六點九去到已經full（傻眼）  
 仲要無得訂枱...  
 
-[![](https://c1.staticflickr.com/5/4347/37022213565_2ee2ec68ae_z.jpg)](https://c1.staticflickr.com/5/4347/37022213565_2ee2ec68ae_z.jpg)
+![](/images/nara1e.jpg)
 
-咁就改架步去**140年町屋**裡面食雜草野菜 @**[栗 ならまち店](http://www.hidie.net/2017/10/day1_30.html)**  
+咁就改架步去**140年町屋**裡面食雜草野菜 @[栗 ならまち店](https://hidie.net/nara1e/)  
 然而今日只有**粟「大和牛と野菜」のディナーコース**  
 唔係全野菜；但都全部係名物啦（鐮倉大和牛！）  
 食食食（點頭點頭）唔掉頭走啦梗係～  
@@ -78,11 +78,4 @@ tags : [lifestyle - 逃離852, travel - 日本（関西近畿）・ 大和奈良
 實實在在咁生活咗一整日都會攰嘅  
 今晚唔周圍跑，早啲瞓聽朝再出動！  
   
-\-----------------------------------------------  
-  
-延伸閱讀：  
-Day1：志津香 | 興福寺五重塔 | 猿沢池 | なら泉勇斎 | 中谷堂 | 栗 ならまち店  
-[Day2：春日大社 | 奈良公園と鹿 | 玄 | 春鹿 | ならまち格子の家 | 樫舎 | 大仏プリン | 亜耶](https://www.hidie.net/2017/09/day-2.html)  
-[Day3：浮見堂 | 平宗柿の葉ずし | 奈良国立博物館 | 茶房暖暖 | 茶道体験 | 和やまむら](https://www.hidie.net/2017/09/day-3.html)  
-[Day4：吉城園 | 天極堂 | 東大寺 | 麺闘庵 | 江戸川 | あけび](https://www.hidie.net/2017/09/day-4.html)  
-[Day5：柿の葉すし たなか → 大阪](https://www.hidie.net/2017/09/day1.html)
+{{<nara>}}

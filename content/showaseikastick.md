@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, flavor - say cheese]
 
 cheesecake？cheese stick！  
 
-[![](https://4.bp.blogspot.com/-3MmX4YRMuyU/XFbHzRH1rUI/AAAAAAAAH24/tlJwNQbONGQ9PlDjw8eUpYN2Va2jEEAwACLcBGAs/s640/15183300033_b29e2d8675_z.jpg)](https://4.bp.blogspot.com/-3MmX4YRMuyU/XFbHzRH1rUI/AAAAAAAAH24/tlJwNQbONGQ9PlDjw8eUpYN2Va2jEEAwACLcBGAs/s1600/15183300033_b29e2d8675_z.jpg)
+![](/images/showaseikastick.jpg)
 
 雪凍後（其實一直都是保持冰凍狀態）  
 蛋糕厚實不會太硬，一咬就微微溶化  

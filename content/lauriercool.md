@@ -3,7 +3,7 @@ title: 'Kao - Laurier Super Slimguard Cool '
 date: 2020-07-01T09:30:00.000+08:00
 draft: false
 images: ["/images/lauriercool.jpg"]
-tags : [flavor-zakka]
+tags : [lifestyle-zakka]
 ---
 
 响咁熱嘅日子下姨媽到...

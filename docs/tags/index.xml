@@ -7,17 +7,26 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Wed, 01 Jul 2020 09:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Wed, 01 Jul 2020 19:40:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
     
     <item>
-      <title>flavor-zakka</title>
-      <link>https://hidie.net/tags/flavor-zakka/</link>
+      <title>amusement - films</title>
+      <link>https://hidie.net/tags/amusement-films/</link>
+      <pubDate>Wed, 01 Jul 2020 19:40:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/amusement-films/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>lifestyle - zakka</title>
+      <link>https://hidie.net/tags/lifestyle-zakka/</link>
       <pubDate>Wed, 01 Jul 2020 09:30:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/flavor-zakka/</guid>
+      <guid>https://hidie.net/tags/lifestyle-zakka/</guid>
       <description></description>
     </item>
     
@@ -63,15 +72,6 @@
       <pubDate>Thu, 25 Jun 2020 11:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E9%A3%B2/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>amusement - films</title>
-      <link>https://hidie.net/tags/amusement-films/</link>
-      <pubDate>Tue, 23 Jun 2020 15:50:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/amusement-films/</guid>
       <description></description>
     </item>
     
@@ -126,15 +126,6 @@
       <pubDate>Sun, 12 Apr 2020 20:57:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/lifestyle-%E6%B8%AF%E5%A5%B3%E6%B8%AF%E6%97%85/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>lifestyle - zakka</title>
-      <link>https://hidie.net/tags/lifestyle-zakka/</link>
-      <pubDate>Sun, 05 Apr 2020 15:27:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/lifestyle-zakka/</guid>
       <description></description>
     </item>
     

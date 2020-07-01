@@ -1,6 +1,6 @@
 ---
 title: '《정직한 후보》（誠實選舉媽/政客誠實中）'
-date: 2020-07-01T20:50:00.000+08:00
+date: 2020-07-01T19:40:00.000+08:00
 draft: false
 images: ["/images/honestcandidate.jpg"]
 tags : [amusement-films]
@@ -13,9 +13,10 @@ tags : [amusement-films]
 
 咪就係爆笑囉！  
 
-可惜呢啲誠實嘅議員只係電影先出現到㗎咋（唉）  
+可惜呢啲誠實嘅議員只係電影先出現到㗎咋（哈哈）  
+⇈ 講呢句真係安全㗎可？  
 
-
+![](/images/honestcandidate1.jpg)
 
 今日係6月閏30號  
 全港只有Cinema City Victoria上映呢套戲  

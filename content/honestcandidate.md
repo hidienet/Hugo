@@ -20,4 +20,4 @@ tags : [amusement-films]
 
 今日係6月閏30號  
 全港只有Cinema City Victoria上映呢套戲  
-所以，唯有落一轉**銅！鑼！灣！**啦～
+所以，唯有落一轉 **銅！鑼！灣！** 啦～

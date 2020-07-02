@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺東、知本]
 去唔到臺東最靚小學  
 响巴士到遠遠望到少少影都影唔切就byebye你條尾  
 
-[![](https://c2.staticflickr.com/6/5761/30825449290_7a462b7c7d_z.jpg)](https://c2.staticflickr.com/6/5761/30825449290_7a462b7c7d_z.jpg)
+![](/images/taitung6c.jpg)
 
 好彩皇天不負有心的懶人  
 巴士會停响大學個站  
@@ -20,4 +20,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

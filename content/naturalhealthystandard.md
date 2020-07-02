@@ -3,12 +3,12 @@ title: 'natural healthy standard - mineral enzyme green smoothie'
 date: 2014-10-15T15:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/natural-healthy-standard-mineral-enzyme.html" ]
-tags : [glamorous - 美 ‧ 食]
+tags : [glamorous - 秀色可餐]
 ---
 
 減肥怎麼會是件苦差呢？  
 
-[![](https://1.bp.blogspot.com/-plV3B6P4Ydg/XE1TuMuoyqI/AAAAAAAAHF4/crSO3Ys287I3rzY3NmqAuRqyRB6A2-D-gCLcBGAs/s640/15410402612_105318fb17_z.jpg)](https://1.bp.blogspot.com/-plV3B6P4Ydg/XE1TuMuoyqI/AAAAAAAAHF4/crSO3Ys287I3rzY3NmqAuRqyRB6A2-D-gCLcBGAs/s1600/15410402612_105318fb17_z.jpg)
+![](/images/naturalhealthystandard.jpg)
 
 超好味的酵素飲料  
 除了酵素還有纖維等果蔬植物  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 
 等免費車嘅站，順便買嘢食（同借洗手間）  
 
-[![](https://c1.staticflickr.com/9/8545/29767765240_d787ac84bb_z.jpg)](https://c1.staticflickr.com/9/8545/29767765240_d787ac84bb_z.jpg)
+![](/images/taitung4b.jpg)
 
 感覺似十萬層糖漿包住濕潤綿彈嘅糖漬番薯  
 味道係香嘅其實幾好食嘅  
@@ -19,4 +19,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

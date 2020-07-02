@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 很清新的橘子味道，充滿熱帶風味的masque  
 
-[![](https://4.bp.blogspot.com/-be7Q2k3xCfE/XCd-7xbiEoI/AAAAAAAACxY/x2oZ8DXj0yAmGc73W5NqlIEMr3grbJUAACLcBGAs/s640/87.jpg)](https://4.bp.blogspot.com/-be7Q2k3xCfE/XCd-7xbiEoI/AAAAAAAACxY/x2oZ8DXj0yAmGc73W5NqlIEMr3grbJUAACLcBGAs/s1600/87.jpg)
+![](/images/okimaskfruit.jpg)
 
 打開包裝袋，シークヮーサー的氣味就湧出來  
 シークヮーサー是沖縄的橘子，像calamansi般的水果  

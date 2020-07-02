@@ -8,7 +8,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄, flavor - 小食部]
 
 我是沒法抗拒花生豆腐的誘惑！  
 
-[![](https://2.bp.blogspot.com/-1051oBAtE6s/XCeIC_B7_EI/AAAAAAAAC3k/QY_TJ-j4UrE5XDr76_3xr_RgSNSXJHupwCLcBGAs/s640/106.jpg)](https://2.bp.blogspot.com/-1051oBAtE6s/XCeIC_B7_EI/AAAAAAAAC3k/QY_TJ-j4UrE5XDr76_3xr_RgSNSXJHupwCLcBGAs/s1600/106.jpg)
+![](/images/okinawa5c.jpg)
 
 這家在市場裡面的  
 玻璃後是「工場」  
@@ -27,4 +27,4 @@ tags : [travel - 日本（沖縄琉球）・沖縄, flavor - 小食部]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

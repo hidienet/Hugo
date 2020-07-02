@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺東、知本]
 明明諗住食㗎嘛  
 差個路口就到㗎喇！  
 
-[![](https://c2.staticflickr.com/6/5796/22846315628_481acac51c_z.jpg)](https://c2.staticflickr.com/6/5796/22846315628_481acac51c_z.jpg)
+![](/images/taitung5o.jpg)
 
 執枱・收凳・拖地......  
   
@@ -20,4 +20,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

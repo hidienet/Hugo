@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 整條国際通也不難看到的御菓子御殿   
 當中元祖紅いもタルト就是名物  
 
-[![](https://2.bp.blogspot.com/-MyORIdKlWi4/XCd56XV1UKI/AAAAAAAACu4/GduoA1NBqTc8SAIC3ea5G5H1Gh0oI8oxgCLcBGAs/s640/66.jpg)](https://2.bp.blogspot.com/-MyORIdKlWi4/XCd56XV1UKI/AAAAAAAACu4/GduoA1NBqTc8SAIC3ea5G5H1Gh0oI8oxgCLcBGAs/s1600/66.jpg)
+![](/images/okinawapie.jpg)
 
 紅芋的味道很香濃，也不會太甜  
 tart底牛油味很重，沒有死實實的脆度  

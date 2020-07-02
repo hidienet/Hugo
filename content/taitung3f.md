@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 
 行到有D熱，食雪條就最好  
 
-[![](https://c1.staticflickr.com/9/8552/29791179765_0d0529ac67_z.jpg)](https://c1.staticflickr.com/9/8552/29791179765_0d0529ac67_z.jpg)
+![](/images/taitung3f.jpg)
 
 40年+嘅老字號雪條店  
 試試個招牌雪條**鹹冰棒**先  
@@ -24,4 +24,4 @@ D粒粒好煙韌，好好咬
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

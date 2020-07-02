@@ -16,7 +16,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
 （一天票就是連一個那走的站都要坐車）  
 沒啥看上眼，因為都不算便宜  
 
-[![](https://4.bp.blogspot.com/-_9vNHoJhvjg/XCeIllhzyOI/AAAAAAAAC34/UobU64t4DGwxsF-SAX6P5Ga1zHhyZJqbwCLcBGAs/s640/109.jpg)](https://4.bp.blogspot.com/-_9vNHoJhvjg/XCeIllhzyOI/AAAAAAAAC34/UobU64t4DGwxsF-SAX6P5Ga1zHhyZJqbwCLcBGAs/s1600/109.jpg)
+[![](/images/okinawa3k.jpg)
 
 只覺得豆腐的包裝很可愛（有型？）  
   
@@ -29,4 +29,4 @@ Aeon跟其他沖縄和日本的店最大的分別
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

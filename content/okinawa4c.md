@@ -9,7 +9,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
 我join的bus tour行程只有兩個地方  
 一就是水族館；另一個是菠蘿園  
 
-[![](https://1.bp.blogspot.com/-HJh8F0bZUSk/XCeSJCohHmI/AAAAAAAAC8o/W2P4AWZyHUAzkkGkojyn2jwvFu1rfC-WQCLcBGAs/s640/19.jpg)](https://1.bp.blogspot.com/-HJh8F0bZUSk/XCeSJCohHmI/AAAAAAAAC8o/W2P4AWZyHUAzkkGkojyn2jwvFu1rfC-WQCLcBGAs/s1600/19.jpg)
+![](/images/okinawa4c1.jpg)
 
 入口的大大個硬膠菠蘿  
   
@@ -20,20 +20,20 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
   
 走路短途版  
 
-[![](https://2.bp.blogspot.com/-uRNk6t9u-9k/XCeSPny_JuI/AAAAAAAAC8w/RC994vcRM5sHR2J1WUX2v93qeeLpM0G4QCLcBGAs/s640/20.jpg)](https://2.bp.blogspot.com/-uRNk6t9u-9k/XCeSPny_JuI/AAAAAAAAC8w/RC994vcRM5sHR2J1WUX2v93qeeLpM0G4QCLcBGAs/s1600/20.jpg)
+![](/images/okinawa4c2.jpg)
 
 小菠蘿：不連葉部分大概是整隻手的大小  
 
-[![](https://4.bp.blogspot.com/-HQ_HVztScrs/XCeSU9zjXmI/AAAAAAAAC80/X6NFBnYzrK4cY3jF87L73vzb90LCht18wCLcBGAs/s640/21.jpg)](https://4.bp.blogspot.com/-HQ_HVztScrs/XCeSU9zjXmI/AAAAAAAAC80/X6NFBnYzrK4cY3jF87L73vzb90LCht18wCLcBGAs/s1600/21.jpg)
+![](/images/okinawa4c3.jpg)
 
 迷你菠蘿：size跟掌心一樣  
 在国際通及市場常見的就是這些  
 
-[![](https://3.bp.blogspot.com/-9E33xIxdj00/XCeSZZ_dyqI/AAAAAAAAC88/5SPxzfuHByUB_LjDHChqNGRbMQz5LX1BQCLcBGAs/s640/22.jpg)](https://3.bp.blogspot.com/-9E33xIxdj00/XCeSZZ_dyqI/AAAAAAAAC88/5SPxzfuHByUB_LjDHChqNGRbMQz5LX1BQCLcBGAs/s1600/22.jpg)
+![](/images/okinawa4c.jpg)
 
 大菠蘿：平常見的菠蘿，但樣子很參差  
 
-[![](https://2.bp.blogspot.com/-hshytzmI_94/XCeSgleBvZI/AAAAAAAAC9E/mm5uvzGEGMAVLf_YZr_OLQGpzqwZxxhHACLcBGAs/s640/23.jpg)](https://2.bp.blogspot.com/-hshytzmI_94/XCeSgleBvZI/AAAAAAAAC9E/mm5uvzGEGMAVLf_YZr_OLQGpzqwZxxhHACLcBGAs/s1600/23.jpg)
+![](/images/okinawa4c4.jpg)
 
 還是吃菠蘿好了  
 不過，其實酸酸的不好吃  
@@ -47,7 +47,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
   
 但臨走是都有消費  
 
-[![](https://2.bp.blogspot.com/-ZQ7fYFsCD8w/XCeSrF14naI/AAAAAAAAC9Q/yks_suQgVHsBKvvPhLZjW7QE7h4WaBFIgCLcBGAs/s640/24.jpg)](https://2.bp.blogspot.com/-ZQ7fYFsCD8w/XCeSrF14naI/AAAAAAAAC9Q/yks_suQgVHsBKvvPhLZjW7QE7h4WaBFIgCLcBGAs/s1600/24.jpg)
+![](/images/okinawa4c5.jpg)
 
 在blue seal對面的檔買  
 這個菠蘿軟雪糕很香甜很好吃  
@@ -58,4 +58,4 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

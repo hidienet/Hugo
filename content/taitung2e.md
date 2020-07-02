@@ -8,10 +8,10 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 
 宵夜食甜嘢好正常吖～  
 
-![](https://c2.staticflickr.com/8/7578/28895349124_63e10a38c3_z.jpg)
+![](/images/taitung2e.jpg)
 
 對於左邊嗰杯つぶあんミルクカップ  
-睇返之前响日本食嗰篇啦 >>[click](http://www.hidie.net/2015/10/go-go-nagoya-day3_13.html)<<  
+即係之前响[日本食](https://hidie.net/nagoya3f/)嗰隻    
 法官大人我無補充喇  
   
 今次仲俾我周到同紅豆最夾嘅抹茶雪糕！  
@@ -21,4 +21,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

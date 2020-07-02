@@ -3,14 +3,14 @@ title: 'ハイチオールC - hythiol-c'
 date: 2014-09-26T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/c-hythiol-c.html" ]
-tags : [glamorous - 美 ‧ 食]
+tags : [glamorous - 秀色可餐]
 ---
 
 緩解宿醉、消除疲勞加上可以美白  
 就全靠這小小的粒粒丸子  
 （雖然在宿醉方面好像未有需要）  
 
-[![](https://4.bp.blogspot.com/-ShMMG-ZXMVI/XE1AiyggjSI/AAAAAAAAG-s/fAt-o7nPBdsMBlBreikkALJfkmazE2VJACLcBGAs/s640/12855496033_242c81f276_z.jpg)](https://4.bp.blogspot.com/-ShMMG-ZXMVI/XE1AiyggjSI/AAAAAAAAG-s/fAt-o7nPBdsMBlBreikkALJfkmazE2VJACLcBGAs/s1600/12855496033_242c81f276_z.jpg)
+![](/images/hythiolc.jpg)
 
 左邊那樽是很多年來一直有的版本  
 右邊的是近年的plus版本  
@@ -31,7 +31,7 @@ tags : [glamorous - 美 ‧ 食]
 不過現在問我還想服用這美白丸嗎？  
 我的答案是否定的  
 因為如果是由維他命C去美白的話  
-[lemona](http://www.hidie.net/2014/08/c-lemona-s-powder.html)實在太美味 :p  
+[lemona](https://hidie.net/clemona/l)實在太美味 :p  
 也不用像吃藥般吞下呢～  
   
 但也會推薦給會準時吞丸仔去美白的人

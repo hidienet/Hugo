@@ -8,15 +8,15 @@ tags : [travel - 臺灣・臺東、知本, flavor - 小食部]
 
 朝早唔開㗎，好啦唯有下午茶時間先食佢啦  
 
-[![](https://c1.staticflickr.com/9/8426/29163859244_35eed1ee43_z.jpg)](https://c1.staticflickr.com/9/8426/29163859244_35eed1ee43_z.jpg)
+![](/images/taitung3g.jpg)
 
 即叫即煎，熱辣辣大大舊（好Q熱呀，但為咗影呢幅相嘛...）  
 
-[![](https://c1.staticflickr.com/9/8061/29708920811_349fde0650_z.jpg)](https://c1.staticflickr.com/9/8061/29708920811_349fde0650_z.jpg)
+![](/images/taitung3g1.jpg)
 
 真係好很大舊，大過我隻肥拳頭囉！  
 
-[![](https://c1.staticflickr.com/9/8445/29163863254_cfe7c67281_z.jpg)](https://c1.staticflickr.com/9/8445/29163863254_cfe7c67281_z.jpg)
+![](/images/taitung3g2.jpg)
 
 （咬～～～）  
 個包煎得外脆兼厚實  
@@ -31,4 +31,4 @@ tags : [travel - 臺灣・臺東、知本, flavor - 小食部]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺東、知本]
 但係有D辣味仲响個口度  
 加上又有路要行，買嘢飲係絕對有必要  
 
-[![](https://c2.staticflickr.com/6/5603/30460676053_60c337af7f_z.jpg)](https://c2.staticflickr.com/6/5603/30460676053_60c337af7f_z.jpg)
+![](/images/taitung7c.jpg)
 
 諗住安安分分飲枝麥茶啦  
 仲要寫到咁經典  
@@ -23,4 +23,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

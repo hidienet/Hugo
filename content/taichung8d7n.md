@@ -117,7 +117,7 @@ tags : [lifestyle - 逃離852, travel - 臺灣・臺中、南投清境、彰化�
 [九龍齋 烏魚子](http://www.hidie.net/2014/09/blog-post_18.html)  
   
 
-[![](https://1.bp.blogspot.com/-GPYpKBpWFr4/XExQu_yxOTI/AAAAAAAAG2Y/q4SIoKmy17ENOm2fla8jONVTQMorHnfFQCLcBGAs/s640/15153810821_a04a6fc417_z.jpg)](https://1.bp.blogspot.com/-GPYpKBpWFr4/XExQu_yxOTI/AAAAAAAAG2Y/q4SIoKmy17ENOm2fla8jONVTQMorHnfFQCLcBGAs/s1600/15153810821_a04a6fc417_z.jpg)
+![](/images/taichung8d7n1.jpg)
 
 臺中搭巴士到機場  
 超～ 塞～ 車～  

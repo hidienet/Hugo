@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
 是以sango（珊瑚）去烘培  
 然後再將營業額3.5％捐來移植新的珊瑚  
 
-[![](https://3.bp.blogspot.com/-Loq8bgdt1LE/XCdPNsRuj0I/AAAAAAAACks/Unmyi9Qvk10oT7iuHv45BkP0AZrpBCbSwCLcBGAs/s640/78.jpg)](https://3.bp.blogspot.com/-Loq8bgdt1LE/XCdPNsRuj0I/AAAAAAAACks/Unmyi9Qvk10oT7iuHv45BkP0AZrpBCbSwCLcBGAs/s1600/78.jpg)
+[![](/images/okinawa3b.jpg)
 
 要了杯caffè latte  
 奶味厚厚的，蠻creamy  
@@ -23,4 +23,4 @@ tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

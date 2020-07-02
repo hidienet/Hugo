@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 
 開舖喇終於，開餐！  
 
-[![](https://c2.staticflickr.com/6/5599/30544337792_a003064380_z.jpg)](https://c2.staticflickr.com/6/5599/30544337792_a003064380_z.jpg)
+![](/images/taitung5d.jpg)
 
 米苔目，湯同乾各一啦  
 湯底頗濃，有好香柴魚同蔥油味  
@@ -18,11 +18,11 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 入口咬多幾啖，淡淡米味就滲出嚟  
 無錯吖，又香又好𡁻  
 
-[![](https://c2.staticflickr.com/6/5830/30544340942_039c580630_z.jpg)](https://c2.staticflickr.com/6/5830/30544340942_039c580630_z.jpg)
+![](/images/taitung5d1.jpg)
 
 豬頭皮，一個字：爽！  
 
-[![](https://c2.staticflickr.com/6/5667/30544339622_59aab246ff_z.jpg)](https://c2.staticflickr.com/6/5667/30544339622_59aab246ff_z.jpg)
+![](/images/taitung5d2.jpg)
 
 嚟臺東點會唔食金針呀  
 話晒都係臺東特產喎  
@@ -35,4 +35,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

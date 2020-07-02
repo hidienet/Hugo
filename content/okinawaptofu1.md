@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 花生豆腐那麼好吃，豈有不買回家的道理？  
 
-[![](https://3.bp.blogspot.com/-PFoK54H7BD4/XCd92kMa_jI/AAAAAAAACw0/GHo2rNqvo0gOCcAuF2egJOyoXDrNp-5vgCLcBGAs/s640/82.jpg)](https://3.bp.blogspot.com/-PFoK54H7BD4/XCd92kMa_jI/AAAAAAAACw0/GHo2rNqvo0gOCcAuF2egJOyoXDrNp-5vgCLcBGAs/s1600/82.jpg)
+![](/images/okinawaptofu1.jpg)
 
 果然還是很韌的，花生味道在吃後也一直留住  
 醬油味蠻濃，半包配一顆豆腐就剛好  

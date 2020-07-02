@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 月桃（艷山薑）是可以用來編織、食用、入藥等  
 而提煉來敷面的話，就有柔軟肌膚的功效  
 
-[![](https://2.bp.blogspot.com/-iB6P4C4ydv4/XCd9O1uKUhI/AAAAAAAACwY/BZaL6cwb6-wZM97-5inSViavMAHz-kWHgCLcBGAs/s640/79.jpg)](https://2.bp.blogspot.com/-iB6P4C4ydv4/XCd9O1uKUhI/AAAAAAAACwY/BZaL6cwb6-wZM97-5inSViavMAHz-kWHgCLcBGAs/s1600/79.jpg)
+![](/images/okimaskmomo.jpg)
 
 其實月桃是甚麼味的呢？不知道耶  
 開了這面膜的包裝就聞到森林般的氣味  

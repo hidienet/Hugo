@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺東、知本]
 
 有D似有人求其掉低個畫框咁...  
 
-![](https://c2.staticflickr.com/6/5801/30431912940_4b960028dc_z.jpg)
+![](/images/taitung5f.jpg)
 
 但真係有好多人特登去影！  
 究竟有咩咁特別呢？  
@@ -19,4 +19,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

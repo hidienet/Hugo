@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 「刪咗對門；仲會開返隻窗。」  
 就係呢個時候！  
 
-[![](https://c2.staticflickr.com/6/5634/30939302912_79779536b9_z.jpg)](https://c2.staticflickr.com/6/5634/30939302912_79779536b9_z.jpg)
+![](/images/taitung5p.jpg)
 
 無得試山地菜係有dd可惜  
 不過如果唔試吓呢煲薑母鴨又絕對值得遺憾  
@@ -24,7 +24,7 @@ D料新鮮到爆！
 凍豆腐索晒D湯，但係食落又唔會覺得油膩  
 鶉蛋份量多咗D食唔晒呀～  
 
-[![](https://c2.staticflickr.com/6/5513/30939305262_212f4114ba_z.jpg)](https://c2.staticflickr.com/6/5513/30939305262_212f4114ba_z.jpg)
+![](/images/taitung5p1.jpg)
 
 咁熱，唔係唔隊啤呀化？  
 淡淡地之餘有D麥味  
@@ -32,4 +32,4 @@ D料新鮮到爆！
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺東、知本]
 行完海濱公園，就走去森林公園  
 做一陣yama girl  
 
-[![](https://c2.staticflickr.com/6/5818/30644623141_40f5179581_z.jpg)](https://c2.staticflickr.com/6/5818/30644623141_40f5179581_z.jpg)
+![](/images/taitung5h.jpg)
 
 要入公園要先經呢條綠水橋  
   
@@ -20,4 +20,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

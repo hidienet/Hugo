@@ -18,7 +18,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
 我也拍到，但這是hea爆的版本  
 （hea人拍hea景）  
 
-[![](https://2.bp.blogspot.com/-QDYTMXkoO1c/XCeHxiSDg5I/AAAAAAAAC3Y/P5na4V_Nm-EgwY10mfoNKO8luS8QFJYegCLcBGAs/s640/105.jpg)](https://2.bp.blogspot.com/-QDYTMXkoO1c/XCeHxiSDg5I/AAAAAAAAC3Y/P5na4V_Nm-EgwY10mfoNKO8luS8QFJYegCLcBGAs/s1600/105.jpg)
+![](/images/okinawahea.jpg)
 
 就是這個 XD  
 白底黑字A4紙過膠再貼膠紙而已  
@@ -27,4 +27,4 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

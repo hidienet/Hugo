@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 見到有間嘢仲未閂咪入去囉  
 吖～ 終於有嘢食喇  
 
-[![](https://c1.staticflickr.com/9/8663/28897591153_ae2128f35a_z.jpg)](https://c1.staticflickr.com/9/8663/28897591153_ae2128f35a_z.jpg)
+![](/images/taitung2d.jpg)
 
 呢個麻油雞湯底嘅火鍋嘛  
 係細人仔3B嘅  
@@ -22,7 +22,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 加火加火please～  
 （白飯都好大碗滿滿滿）  
 
-[![](https://c1.staticflickr.com/9/8118/28897589353_6b44196e27_z.jpg)](https://c1.staticflickr.com/9/8118/28897589353_6b44196e27_z.jpg)
+![](/images/taitung2d1.jpg)
 
 我呢，就食宮保杏鮑菇set  
 配四碟小餸（番茄蛋、蝦米椰菜、燙青菜同唔記得係乜）  
@@ -30,15 +30,15 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 除咗個宮保，全部味都較家庭式不太重口味  
 所以走飯is okay，反正唔係好有飯癮  
 
-[![](https://c1.staticflickr.com/9/8399/29519948805_1e9b77dbbb_z.jpg)](https://c1.staticflickr.com/9/8399/29519948805_1e9b77dbbb_z.jpg)
+![](/images/taitung2d2.jpg)
 
 本身一入去就有嘅桂圓紅棗茶  
 太好飲，一直refill囉  
 
-[![](https://c1.staticflickr.com/9/8282/28897589833_2fd76b07fa_z.jpg)](https://c1.staticflickr.com/9/8282/28897589833_2fd76b07fa_z.jpg)
+![](/images/taitung2d3.jpg)
 
 個set最後嘅超甜起沙黃西瓜，好滿足呢～～～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

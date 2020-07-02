@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 ハイビスカス是Hibiscus，即朱槿，又名扶桑花，在沖縄裡常見的  
 
-[![](https://2.bp.blogspot.com/-qprYrr_kyD8/XCd-HSILQOI/AAAAAAAACw8/cnDqDzOYkYYQQB3m1NZ_BqhpUdUzwLj3wCLcBGAs/s640/83.jpg)](https://2.bp.blogspot.com/-qprYrr_kyD8/XCd-HSILQOI/AAAAAAAACw8/cnDqDzOYkYYQQB3m1NZ_BqhpUdUzwLj3wCLcBGAs/s1600/83.jpg)
+![](/images/okimaskhana.jpg)
 
 打開包裝，花香急不期待地撲出來  
 「喔～ 這就是ハイビスカス的味道嗎？」  
@@ -32,6 +32,6 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 最後，來一件扶桑花與傻大姐的照片  
 那個跟花那麼近距離的人竟然聞不出扶桑花香 XD  
 
-[![](https://4.bp.blogspot.com/-InG3IRyQHIs/XCd-QA-nQ0I/AAAAAAAACxA/COrcVOfPOMQnwPuGPATauzX4QP6UkQA4gCLcBGAs/s640/84.jpg)](https://4.bp.blogspot.com/-InG3IRyQHIs/XCd-QA-nQ0I/AAAAAAAACxA/COrcVOfPOMQnwPuGPATauzX4QP6UkQA4gCLcBGAs/s1600/84.jpg)
+![](/images/okimaskhana1.jpg)
 
 （這朵可是真花，很大的一朵）

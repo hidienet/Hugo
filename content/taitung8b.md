@@ -8,12 +8,12 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 
 火車便當呀～ 終於俾我恨到喇（撒花）  
 
-[![](https://c2.staticflickr.com/6/5791/31157862091_44a0282de4_z.jpg)](https://c2.staticflickr.com/6/5791/31157862091_44a0282de4_z.jpg)
+![](/images/taitung8b.jpg)
 
 雖然唔係火車站買金屬盒  
 但係呢種紙盒裝都好vintage吖  
 
-[![](https://c2.staticflickr.com/6/5836/30464759873_63a5198c15_z.jpg)](https://c2.staticflickr.com/6/5836/30464759873_63a5198c15_z.jpg)
+![](/images/taitung8b1.jpg)
 
 ～開～  
 哇！有一・大・塊・排・骨  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

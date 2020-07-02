@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 敷完塊面膜會否變成蛇蠍美人呢？  
 （蛇蠍心腸就有份，美人就等投胎啦！）  
 
-[![](https://1.bp.blogspot.com/-cGjHVsNFuSI/XCd5EsjvLqI/AAAAAAAACug/PYyOewi-eRs3PWy4ozeChjsu5DV9MI3pACLcBGAs/s640/63.jpg)](https://1.bp.blogspot.com/-cGjHVsNFuSI/XCd5EsjvLqI/AAAAAAAACug/PYyOewi-eRs3PWy4ozeChjsu5DV9MI3pACLcBGAs/s1600/63.jpg)
+![](/images/okimasksnake.jpg)
 
 此面膜是以蛇脂精華跟類蛇毒作基底  
 （當然還有她們家一定有的保濕度高的水雲）  
@@ -32,6 +32,6 @@ sorry，這款面膜是添加了薰衣草味道的
   
 ＊crossover的[おきなわフールド](http://www.gyokusendo.co.jp/okinawaworld/)是沖縄的觀光情報所  
 
-[![](https://1.bp.blogspot.com/-01CHsCqCywk/XCd5Sc-VYbI/AAAAAAAACuo/ZFi_9ofLNr4aFStzNjoYEEpyydKKeKA2ACLcBGAs/s640/64.jpg)](https://1.bp.blogspot.com/-01CHsCqCywk/XCd5Sc-VYbI/AAAAAAAACuo/ZFi_9ofLNr4aFStzNjoYEEpyydKKeKA2ACLcBGAs/s1600/64.jpg)
+![](/images/okimasksnake1.jpg)
 
 蛇出沒注意！（攝於首里城）

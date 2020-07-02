@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 
 繼續掃街，微微飄香嘅臭豆腐  
 
-[![](https://c2.staticflickr.com/6/5530/30272709271_b1c48b4fb2_z.jpg)](https://c2.staticflickr.com/6/5530/30272709271_b1c48b4fb2_z.jpg)
+![](/images/taitung4i.jpg)
 
 細細一粒嘅臭豆腐  
 個皮超脆裡面洞洞好多都係乾身  
@@ -21,4 +21,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

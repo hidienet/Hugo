@@ -16,11 +16,11 @@ tags : [travel - 臺灣・臺東、知本]
 車上都係無得賣便當  
 （我真係好想食臺鐵便當呀 T-T）  
 
-[![](https://c1.staticflickr.com/9/8830/29437565081_74060cdd83_z.jpg)](https://c1.staticflickr.com/9/8830/29437565081_74060cdd83_z.jpg)
+![](/images/taitung2a.jpg)
 
 終於，响坐吓瞓吓再睇吓風景五粒鐘多少少之後  
 到喇到喇，臺東我嚟喇～～～（好滾動嘅故事係咪？）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

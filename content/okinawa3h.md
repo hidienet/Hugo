@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
 
 在三越前的小鋪看到便買了  
 
-[![](/images/okinawa3h.jpg)
+![](/images/okinawa3h.jpg)
 
 外層軟中帶韌的もち，吃時散出紅芋味  
 包住綿滑又不會太甜的紅豆蓉  

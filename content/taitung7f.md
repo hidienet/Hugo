@@ -8,14 +8,14 @@ tags : [travel - 臺灣・臺東、知本]
 
 今晚唔知食乜好， 求其搵間咋...  
 
-[![](https://c2.staticflickr.com/6/5722/31234988056_ab9890df26_z.jpg)](https://c2.staticflickr.com/6/5722/31234988056_ab9890df26_z.jpg)
+![](/images/taitung7f1.jpg)
 
 **天巴洛原住民音樂風味餐廳**  
 又唱晒歌跳晒舞咁  
 仲有一車車D中國旅行團咁  
 食個樣食裝修呱...  
 
-[![](https://c2.staticflickr.com/6/5350/31271360325_15287c3e66_z.jpg)](https://c2.staticflickr.com/6/5350/31271360325_15287c3e66_z.jpg)
+![](/images/taitung7f2.jpg)
 
 **金針排骨湯**  
 臺東D金針靚呀  
@@ -23,32 +23,32 @@ tags : [travel - 臺灣・臺東、知本]
 真係團餐feel嗰種油水湯咁囉  
 不過D金針同排骨本身唔錯就係啦  
 
-[![](https://c2.staticflickr.com/6/5742/31271360015_e313e412db_z.jpg)](https://c2.staticflickr.com/6/5742/31271360015_e313e412db_z.jpg)
+![](/images/taitung7f3.jpg)
 
 **阿拜**  
 即係稯，有餡嘅糯米稯  
 個味道幾好，係普通D囉得個名特別dd  
 咁話晒都係用原住民嘅稱呼  
 
-[![](https://c2.staticflickr.com/6/5570/31271361205_1866637785_z.jpg)](https://c2.staticflickr.com/6/5570/31271361205_1866637785_z.jpg)
+![](/images/taitung7f4.jpg)
 
 唔知點解嚟咗碟無叫嘅**炒豆腐**  
 店家堅持唔收返又唔收錢  
 幾夠鑊氣味道都幾好  
 係加埋呢碟嘢變成成餐飯太多嘢食唔晒囉  
 
-[![](https://c2.staticflickr.com/6/5659/31271360895_812869ab68_z.jpg)](https://c2.staticflickr.com/6/5659/31271360895_812869ab68_z.jpg)
+![](/images/taitung7f5.jpg)
 
 **白飯**係用臺東米呀，勁！好！食！  
 
-[![](https://c2.staticflickr.com/6/5744/31234989786_d6b159ec1e_z.jpg)](https://c2.staticflickr.com/6/5744/31234989786_d6b159ec1e_z.jpg)
+![](/images/taitung7f.jpg)
 
 **山豬肉**  
 從個樣到食落口都同泰式豬頸肉好似  
 個味都OK，但係真係好似平時D豬頸肉  
 食唔出有咩分別（汗）  
 
-[![](https://c2.staticflickr.com/6/5575/31271360565_b0300871c9_z.jpg)](https://c2.staticflickr.com/6/5575/31271360565_b0300871c9_z.jpg)
+![](/images/taitung7f6.jpg)
 
 **蔥爆鹿肉**  
 好多汁好香口  
@@ -63,4 +63,4 @@ OK啦，睇人跳舞唱歌慢慢坐吓hea吓
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

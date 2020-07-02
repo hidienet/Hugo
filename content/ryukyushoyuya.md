@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 かりんとう的中文譯做花林糖  
 但其實不是糖果，是以糖霜包面的米餅  
 
-[![](https://2.bp.blogspot.com/-8BAyvPocvK8/XCd_tizfUKI/AAAAAAAACx0/g-QmfxuPaKMJSTCQIe5fx1_LMplxgIL8QCLcBGAs/s640/91.jpg)](https://2.bp.blogspot.com/-8BAyvPocvK8/XCd_tizfUKI/AAAAAAAACx0/g-QmfxuPaKMJSTCQIe5fx1_LMplxgIL8QCLcBGAs/s1600/91.jpg)
+![](/images/ryukyushoyuya.jpg)
 
 包裝又種很古早的感覺  
   

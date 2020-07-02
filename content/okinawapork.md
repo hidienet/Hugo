@@ -6,10 +6,10 @@ aliases: [ "/2013/11/blog-post_30.html" ]
 tags : [flavor - 揀飲宅食]
 ---
 
-在沖縄買的東西，除了怕[蔬菜片](http://www.hidie.net/2013/11/blog-post_24.html)會壓碎之外  
+在沖縄買的東西，除了怕[蔬菜片](https://hidie.net/okinawadriedveg/)會壓碎之外  
 就是怕不能把這些豬急凍地帶回家  
 
-[![](https://1.bp.blogspot.com/-_vqG_PDkRVs/XCd5tfeCK9I/AAAAAAAACu0/FDkUVEeG28YCHaysqSKQPrtRomisKMSUgCLcBGAs/s640/65.jpg)](https://1.bp.blogspot.com/-_vqG_PDkRVs/XCd5tfeCK9I/AAAAAAAACu0/FDkUVEeG28YCHaysqSKQPrtRomisKMSUgCLcBGAs/s1600/65.jpg)
+![](/images/okinawapork.jpg)
 
 **ロース生ハム**（左）  
 生火腿就跟平常吃parma ham般  

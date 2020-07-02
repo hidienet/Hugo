@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺東、知本]
 打完邊罏，今晚實在食唔落宵夜  
 好啦好啦飲杯嘢都好啦～  
 
-[![](https://c2.staticflickr.com/6/5570/31014154071_9713f2b223_z.jpg)](https://c2.staticflickr.com/6/5570/31014154071_9713f2b223_z.jpg)
+![](/images/taitung5q.jpg)
 
 **特調茶**  
 話說一入去已經聞到好死香嘅咖啡味  
@@ -23,19 +23,19 @@ tags : [flavor - 飲！, travel - 臺灣・臺東、知本]
 但個味一D都唔覺得淡  
 唔錯喔！好似飲緊個花園咁，都幾特別  
 
-[![](https://c2.staticflickr.com/6/5828/30985138262_26574c360b_z.jpg)](https://c2.staticflickr.com/6/5828/30985138262_26574c360b_z.jpg)
+![](/images/taitung5q1.jpg)
 
 嗱～ 個後花園呀  
 如果唔熱其實坐出面都幾梳肝  
 
-[![](https://c2.staticflickr.com/6/5768/31014154711_e5ce96f12e_z.jpg)](https://c2.staticflickr.com/6/5768/31014154711_e5ce96f12e_z.jpg)
+![](/images/taitung5q2.jpg)
 
 夜晚太黑睇唔清楚？有・日・景  
 我住斜對面之嘛  
 等咗幾日都唔開呀  
 好彩都等到開嘅日子（笑）  
 
-[![](https://c2.staticflickr.com/6/5641/30760699040_e8a6a99927_z.jpg)](https://c2.staticflickr.com/6/5641/30760699040_e8a6a99927_z.jpg)
+![](/images/taitung5q3.jpg)
 
 裡面個裝修都幾型仔  
 又有書睇，想幾hea就幾hea  
@@ -46,4 +46,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 再平和通買的，除了紫芋片每包都是小小的  
 
-[![](https://2.bp.blogspot.com/-S6qei8jN150/XCeBEk_YOBI/AAAAAAAACys/of7hsSBvhgQdvResDk7KlXo17-Pt817hgCLcBGAs/s640/98.jpg)](https://2.bp.blogspot.com/-S6qei8jN150/XCeBEk_YOBI/AAAAAAAACys/of7hsSBvhgQdvResDk7KlXo17-Pt817hgCLcBGAs/s1600/98.jpg)
+![](/images/okinawadriedveg.jpg)
 
 **紫芋**，外層令身的糖漿包住硬硬脆脆的紫芋片  
 紫芋味道蠻香，雖然包糖漿卻不會太甜  

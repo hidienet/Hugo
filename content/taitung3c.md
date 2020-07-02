@@ -11,7 +11,7 @@ tags : [travel - 臺灣・臺東、知本]
 仲要係慢活嘅臺東喎  
 唔hea爆真係對唔住自己囉  
 
-[![](https://c1.staticflickr.com/9/8190/29754578176_7ff8995e1b_z.jpg)](https://c1.staticflickr.com/9/8190/29754578176_7ff8995e1b_z.jpg)
+![](/images/taitung3c1.jpg)
 
 食飽無plan去邊  
 咪行吓附近舖有草有樹嘅地方囉  
@@ -21,7 +21,7 @@ D草好香呀，尤其啱啱落過雨嚟
 好清新，真係好好行呀  
 不過，有！蚊！（呃）  
 
-[![](https://c1.staticflickr.com/9/8529/29754578636_8c81660785_z.jpg)](https://c1.staticflickr.com/9/8529/29754578636_8c81660785_z.jpg)
+![](/images/taitung3c.jpg)
 
 行多兩步，就到咗**臺東火車站 (舊站)**  
 無咩嘅，同太和無咩大分別  
@@ -32,7 +32,7 @@ D草好香呀，尤其啱啱落過雨嚟
 架車舊舊地再加D在那些清新雨後陽光咁  
 好舒服，好好hea...  
 
-[![](https://c1.staticflickr.com/9/8573/29677709552_47e3e65143_z.jpg)](https://c1.staticflickr.com/9/8573/29677709552_47e3e65143_z.jpg)
+![](/images/taitung3c2.jpg)
 
 個icecream booth好鬼得意  
   
@@ -40,4 +40,4 @@ D草好香呀，尤其啱啱落過雨嚟
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

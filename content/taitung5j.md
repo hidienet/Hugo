@@ -6,7 +6,10 @@ aliases: [ "/2016/02/day5_7.html" ]
 tags : [travel - 臺灣・臺東、知本]
 ---
 
-Barocco@臺東，呢座嘢叫中華會館。[![](https://c2.staticflickr.com/6/5624/30098788893_ec98151c70_z.jpg)](https://c2.staticflickr.com/6/5624/30098788893_ec98151c70_z.jpg)  
+Barocco@臺東，呢座嘢叫中華會館。
+
+![](/images/taitung5j.jpg)  
+
 1927年起好㗎喇  
 名義為華僑聚會所  
 實質係用嚟做抗日聯絡中心  
@@ -15,4 +18,4 @@ Barocco@臺東，呢座嘢叫中華會館。[![](https://c2.staticflickr.com/6/5
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

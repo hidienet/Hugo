@@ -6,10 +6,10 @@ aliases: [ "/2016/01/day3_8.html" ]
 tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 ---
 
-食[炸雞](http://www.hidie.net/2016/01/day3.html)食得唔係巧膠扇  
+食[炸雞](https://hidie.net/taitung3a/)食得唔係巧膠扇  
 咁就去食D令自己kai先嘅嘢啦  
 
-[![](https://c1.staticflickr.com/9/8398/29161768994_46308eaf2f_z.jpg)](https://c1.staticflickr.com/9/8398/29161768994_46308eaf2f_z.jpg)
+![](/images/taitung3b.jpg)
 
 後面兩件係一對芋頭麻糬  
 前左係旗魚酥；右面係芝麻餡  
@@ -33,4 +33,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

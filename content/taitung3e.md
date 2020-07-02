@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺東、知本]
 
 唔... 舊建築物一棟（1963年，幾十年咁啦）  
 
-[![](https://c1.staticflickr.com/9/8122/29791178745_d6173a1ddf_z.jpg)](https://c1.staticflickr.com/9/8122/29791178745_d6173a1ddf_z.jpg)
+![](/images/taitung3e.jpg)
 
 有一刻衝動想入去睇吓  
 不過我都唔鍾意街市嘅走入去做咩喎  
@@ -20,4 +20,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

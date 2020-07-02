@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 沖縄的海泥，清潔masque  
 
-[![](https://4.bp.blogspot.com/-v41s3frBebw/XCeAKyaBWYI/AAAAAAAACyA/UXTdS57814YnRMIoG8HfBcZNkXzbmIIZACLcBGAs/s640/92.jpg)](https://4.bp.blogspot.com/-v41s3frBebw/XCeAKyaBWYI/AAAAAAAACyA/UXTdS57814YnRMIoG8HfBcZNkXzbmIIZACLcBGAs/s1600/92.jpg)
+![](/images/okinawaclay.jpg)
 
 一小粒磚可以用兩次（面部）  
 以水1:1開成泥狀便可  

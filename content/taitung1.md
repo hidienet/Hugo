@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺東、知本]
 响呢個對於人體存摺兩難之間選擇嘛  
 我當然會揀「乜都要晒」！  
 
-[![](https://c1.staticflickr.com/9/8253/29315099985_308732374c_z.jpg)](https://c1.staticflickr.com/9/8253/29315099985_308732374c_z.jpg)
+![](/images/taitung1.jpg)
 
 無計啦，貪平搭晏晝機黃昏到臺中機場  
 然後再搭巴士去市中心  
@@ -39,4 +39,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

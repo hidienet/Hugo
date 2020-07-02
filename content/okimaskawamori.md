@@ -8,10 +8,10 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 這面膜，會敷醉人嗎？  
 
-[![](https://2.bp.blogspot.com/-VFmCZ2121Pw/XCd6L0KEGVI/AAAAAAAACvA/gYao4E23nkA5fj4Fl4yxIh6L97nzILrjACLcBGAs/s640/67.jpg)](https://2.bp.blogspot.com/-VFmCZ2121Pw/XCd6L0KEGVI/AAAAAAAACvA/gYao4E23nkA5fj4Fl4yxIh6L97nzILrjACLcBGAs/s1600/67.jpg)
+![](/images/okimaskawamori.jpg)
 
-在沖繩時沒有喝過helios的泡盛（喝的是[瑞泉](http://www.hidie.net/2013/11/day3_317.html)）  
-不過都有試過這品牌的[苦瓜啤](http://www.hidie.net/2013/11/day6helios-dry.html)  
+在沖繩時沒有喝過helios的泡盛（喝的是[瑞泉](https://hidie.net/okinawa3f/)）  
+不過都有試過這品牌的[苦瓜啤](https://hidie.net/okinawa6e/)  
   
 驟眼看以為是泡盛mask  
 直接敷酒精會否乾到爆裂拳？  

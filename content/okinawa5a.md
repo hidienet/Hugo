@@ -12,7 +12,7 @@ tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
   
 這是家日本咖啡連鎖店  
 
-[![](https://3.bp.blogspot.com/-RgoRwI8j6GY/XCeIZHXPhEI/AAAAAAAAC3w/2hhl1NYDofAd7CZwgtzIWKGz0CivjsaiQCLcBGAs/s640/108.jpg)](https://3.bp.blogspot.com/-RgoRwI8j6GY/XCeIZHXPhEI/AAAAAAAAC3w/2hhl1NYDofAd7CZwgtzIWKGz0CivjsaiQCLcBGAs/s1600/108.jpg)
+![](/images/okinawa5a.jpg)
 
 跟餐的latte  
 咖啡氣味沒有很香  
@@ -24,4 +24,4 @@ tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

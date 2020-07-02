@@ -3,13 +3,13 @@ title: 'CJ 아이시안 블루베리'
 date: 2014-11-23T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/cj.html" ]
-tags : [flavor - 飲！, glamorous - 美 ‧ 食]
+tags : [flavor - 飲！, glamorous - 秀色可餐]
 ---
 
 藍莓含有花青素（anthocyanidin）  
 聽說這種物質「對眼睛好」  
 
-[![](https://2.bp.blogspot.com/-bl0OLS18cZo/XFbSw3Fya9I/AAAAAAAAH5k/yBc_BUGdDZcxwYUc9LMiU1KQEm2G9CaUwCLcBGAs/s640/15231586383_b33bac806f_z.jpg)](https://2.bp.blogspot.com/-bl0OLS18cZo/XFbSw3Fya9I/AAAAAAAAH5k/yBc_BUGdDZcxwYUc9LMiU1KQEm2G9CaUwCLcBGAs/s1600/15231586383_b33bac806f_z.jpg)
+![](/images/cjblueberry.jpg)
 
 但其實沒有真正數據說明  
 花青素的「好」在那裡  

@@ -3,7 +3,7 @@ title: 'O''Sulloc - water+ red cafe'
 date: 2014-10-12T18:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/osulloc-water-red-cafe.html" ]
-tags : [glamorous - 美 ‧ 食]
+tags : [glamorous - 秀色可餐]
 ---
 
 吃東西很油膩的話，餐後就喝杯red cafe吧！  

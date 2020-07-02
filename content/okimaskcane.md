@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 琉球美咲口裡那塊不是朱古力，是沖縄黒糖  
 
-[![](https://3.bp.blogspot.com/-E_Lg5k_fLCA/XCd73VVELXI/AAAAAAAACv8/-ORgfo1GN3sJAM1bwINjDHiBuvd2hP7IQCLcBGAs/s640/76.jpg)](https://3.bp.blogspot.com/-E_Lg5k_fLCA/XCd73VVELXI/AAAAAAAACv8/-ORgfo1GN3sJAM1bwINjDHiBuvd2hP7IQCLcBGAs/s1600/76.jpg)
+![](/images/okimaskcane.jpg)
 
 濃濃的黒糖味從打開包裝就散開來  
 除了包裝袋寫了不可以食用（笑）之外  

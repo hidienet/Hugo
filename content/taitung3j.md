@@ -12,7 +12,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 一來間舖未開而來個肚仲飽飽哋  
 所有就一致決定今晚個晚餐係佢喇走唔甩！  
 
-[![](https://c1.staticflickr.com/9/8557/30024993226_040a159b38_z.jpg)](https://c1.staticflickr.com/9/8557/30024993226_040a159b38_z.jpg)
+![](/images/taitung3j1.jpg)
 
 主菜前當然要先食前菜  
 **紅酒漬鮮茄**  
@@ -25,7 +25,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 仲每啖都爆醬咁  
 真係好好食好鬼好食好鬼死好食！  
 
-[![](https://c1.staticflickr.com/9/8542/29975817861_9d295d63d5_z.jpg)](https://c1.staticflickr.com/9/8542/29975817861_9d295d63d5_z.jpg)
+![](/images/taitung3j2.jpg)
 
 **白玉腐皮湯卷**  
 有濃味亦有清淡D嘅味道  
@@ -37,17 +37,17 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 而腐皮本身有豆香之餘吸飽微鹹湯汁  
 呀～ 簡單而好味！  
 
-[![](https://c1.staticflickr.com/9/8694/30024976946_77536020b1_z.jpg)](https://c1.staticflickr.com/9/8694/30024976946_77536020b1_z.jpg)
+![](/images/taitung3j3.jpg)
 
 好！主角嚟喇！**自慢冷麵**  
 
-[![](https://c1.staticflickr.com/9/8539/29945584722_4f996de078_z.jpg)](https://c1.staticflickr.com/9/8539/29945584722_4f996de078_z.jpg)
+![](/images/taitung3j4.jpg)
 
 配上**原味上湯**  
 1 set過，倒入去成為冷湯烏冬  
 聽講唔錯，因為呢兜嘢唔係我嘅  
 
-[![](https://c2.staticflickr.com/6/5233/29432378333_f498f6a3d1_z.jpg)](https://c2.staticflickr.com/6/5233/29432378333_f498f6a3d1_z.jpg)
+![](/images/taitung3j.jpg)
 
 因為我比較鍾意食沾麵呀  
 **穗科冷麵**  
@@ -61,7 +61,7 @@ D麵條煙韌好有𡁻頭（Q彈無誤）
 好大兜，不過我係成兜清得晒  
 超！讚！  
 
-[![](https://c2.staticflickr.com/6/5253/29431512024_b8c4da8840_z.jpg)](https://c2.staticflickr.com/6/5253/29431512024_b8c4da8840_z.jpg)
+![](/images/taitung3j5.jpg)
 
 仲有配菜：**芝麻牛蒡**  
 簡單醬油炒嘅牛蒡絲  
@@ -74,14 +74,14 @@ D麵條煙韌好有𡁻頭（Q彈無誤）
   
   
 
-[![](https://c1.staticflickr.com/9/8533/29975824861_c8a9c6a864_z.jpg)](https://c1.staticflickr.com/9/8533/29975824861_c8a9c6a864_z.jpg)
+![](/images/taitung3j6.jpg)
 
 **梅子純麥汁、檸檬黑麥汁**  
 第一次試有氣麥汁  
 我嗰杯係黑麥，雖然有檸檬base但都有少少偏甜  
 算OK啦幾新鮮嘅體驗  
 
-[![](https://c1.staticflickr.com/9/8120/29975802411_df60aa572f_z.jpg)](https://c1.staticflickr.com/9/8120/29975802411_df60aa572f_z.jpg)
+![](/images/taitung3j7.jpg)
 
 因為呢間嘢D嘢食實在真係非常汁咁好食  
 烏冬呢就無得拎走㗎喇  
@@ -94,4 +94,4 @@ by the way，個樣子中上個師傅响邊度呢？
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

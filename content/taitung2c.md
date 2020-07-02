@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺東、知本]
 住呢間民宿呢，因為樓下就係cafe  
 所以好正咁入住嘅日子都會有杯free drink  
 
-[![](https://c1.staticflickr.com/9/8741/29229494810_34a83a6192_z.jpg)](https://c1.staticflickr.com/9/8741/29229494810_34a83a6192_z.jpg)
+![](/images/taitung2c.jpg)
 
 瞓完個晏覺食晚飯前搵D嘢墊墊肚  
 lunch飲過咖啡就唔再飲  
@@ -33,4 +33,4 @@ lunch飲過咖啡就唔再飲
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

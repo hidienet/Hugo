@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺東、知本]
 
 「等一個人咖啡。」  
 
-[![](https://c2.staticflickr.com/6/5754/30459988532_427e938edc_z.jpg)](https://c2.staticflickr.com/6/5754/30459988532_427e938edc_z.jpg)
+![](/images/taitung5a.jpg)
 
 就算要本書都唔係「藝文青」...  
 一來唔「文」；二來唔「青」  
@@ -22,4 +22,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

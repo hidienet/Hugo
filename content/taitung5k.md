@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 
 炎熱嘅天氣；一碗凍綠豆沙...  
 
-[![](https://c2.staticflickr.com/6/5575/30734213025_8b00505df2_z.jpg)](https://c2.staticflickr.com/6/5575/30734213025_8b00505df2_z.jpg)
+![](/images/taitung5k.jpg)
 
 綠豆味濃，唔太甜  
 凍但係又唔算係冰凍  
@@ -18,4 +18,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

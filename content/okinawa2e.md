@@ -8,7 +8,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄, glamorous - 裝身]
 
 在壺屋的「やちむん通り祭り」上買了這件tee  
 
-![](/okinawa2e.jpg)
+![](images/okinawa2e.jpg)
 
 嬌小的手繪師名字是[與那嶺しのぶ](https://twitter.com/yonamineshinob)，在這裡擺2天的攤擋  
 平日寄買的店是じーさーかす，也是在壺屋附近  

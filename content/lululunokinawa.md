@@ -6,9 +6,9 @@ aliases: [ "/2013/12/masque-lululun.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-LuLuLun是隻很火紅的面膜，便宜又好用  
+LuLuLun是隻很hit的面膜，便宜又好用  
 
-[![](https://1.bp.blogspot.com/-JUWClqpOj9w/XCd3mKSt18I/AAAAAAAACt8/BlhjLgsbE9si3W_d3O8NoYCweJTDvWsrwCLcBGAs/s640/58.jpg)](https://1.bp.blogspot.com/-JUWClqpOj9w/XCd3mKSt18I/AAAAAAAACt8/BlhjLgsbE9si3W_d3O8NoYCweJTDvWsrwCLcBGAs/s1600/58.jpg)
+![](/images/lululunokinawa.jpg)
 
 這隻沖縄限定版本，漂亮的包裝  
   

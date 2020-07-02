@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 
 食完臭豆腐，過對面再隊碗豆花先～  
 
-[![](https://c2.staticflickr.com/6/5830/29727211583_478d8c43e6_z.jpg)](https://c2.staticflickr.com/6/5830/29727211583_478d8c43e6_z.jpg)
+![](/images/taitung4j.jpg)
 
 花生豆花、純豆花  
 花生好豪氣好多又夠腍  
@@ -19,4 +19,4 @@ OK啦，呢D嘢通常好難同時有齊
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

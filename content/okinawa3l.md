@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 明天要早起遠行，今晚宵夜不去居酒屋  
 但東西還是不可以不吃啊  
 
-[![](https://4.bp.blogspot.com/-xW_-RayIJAw/XCeI0nDj5yI/AAAAAAAAC4A/-BuiIUOQNjgA7zqIgxGGXRNKNsMbdsl2QCLcBGAs/s640/110.jpg)](https://4.bp.blogspot.com/-xW_-RayIJAw/XCeI0nDj5yI/AAAAAAAAC4A/-BuiIUOQNjgA7zqIgxGGXRNKNsMbdsl2QCLcBGAs/s1600/110.jpg)
+![](/images/okinawa3l.jpg)
 
 以沖縄的物價，這碗索價近1000円的拉麵也太貴了吧！  
   
@@ -29,4 +29,4 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

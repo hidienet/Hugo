@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
 在沖縄，很多地方也有這家人氣雪糕店  
 朝一下聖～  
 
-[![](https://1.bp.blogspot.com/-AX71z7SnEMs/XCdf-f31XwI/AAAAAAAACn0/wvrR891czv8fvG30vDFgvve5G-dK3hqLgCLcBGAs/s640/10.jpg)](https://1.bp.blogspot.com/-AX71z7SnEMs/XCdf-f31XwI/AAAAAAAACn0/wvrR891czv8fvG30vDFgvve5G-dK3hqLgCLcBGAs/s1600/10.jpg)
+![](/images/okinawa3i.jpg)
 
 紅芋味軟雪糕  
 說實話，紅芋味道真的不太香濃  
@@ -19,4 +19,4 @@ tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

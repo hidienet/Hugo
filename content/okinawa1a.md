@@ -9,13 +9,13 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 先吃完不太好吃的機場餐和超！難！吃！的飛機餐  
 終於到了沖縄，要吃好好的！  
 
-[![](https://1.bp.blogspot.com/-6sN08EZ5n3w/XCdGlSVcu6I/AAAAAAAACf0/7wuumqCPN5Upk9jHvPvnPvg5DescYvGOwCLcBGAs/s640/36.jpg)](https://1.bp.blogspot.com/-6sN08EZ5n3w/XCdGlSVcu6I/AAAAAAAACf0/7wuumqCPN5Upk9jHvPvnPvg5DescYvGOwCLcBGAs/s1600/36.jpg)
+![](/images/okinawa1a.jpg)
 
 燒石垣牛！！！  
   
 別急，先吃前菜  
 
-[![](https://2.bp.blogspot.com/-YFfkkD1SF70/XCdGvNksuLI/AAAAAAAACf4/7c032KN1gmQ61dsdTFiFsPM7wdPVOql9QCLcBGAs/s640/37.jpg)](https://2.bp.blogspot.com/-YFfkkD1SF70/XCdGvNksuLI/AAAAAAAACf4/7c032KN1gmQ61dsdTFiFsPM7wdPVOql9QCLcBGAs/s1600/37.jpg)
+![](/images/okinawa1a1.jpg)
 
 **小鉢三点盛り**  
 （ミミガーピーナッツ和え）  
@@ -25,7 +25,7 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 （ゴーヤーの酢の物）  
 用醋醃過的苦瓜不會很苦而且很爽脆  
 
-[![](https://1.bp.blogspot.com/-DqWJZHWn0p8/XCdG3n0NyvI/AAAAAAAACf8/tKlBxUaRHhw6TeJEQXXoCqqhXchGoSLQwCLcBGAs/s640/38.jpg)](https://1.bp.blogspot.com/-DqWJZHWn0p8/XCdG3n0NyvI/AAAAAAAACf8/tKlBxUaRHhw6TeJEQXXoCqqhXchGoSLQwCLcBGAs/s1600/38.jpg)
+![](/images/okinawa1a2.jpg)
 
 **備長炭 x 石垣牛 (カルビ+ロース+バラ)**  
 不同部位的石垣牛，不會像神戶牛那麼油膩  
@@ -34,7 +34,7 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
   
 除了石垣牛，アグー豚也是沖縄名物  
 
-[![](https://1.bp.blogspot.com/-rYrZX4fFbFs/XCdG_HWQqQI/AAAAAAAACgA/lQ-xCWEZElU5MdYn9PbzrKiXTz-wEzZQQCLcBGAs/s640/39.jpg)](https://1.bp.blogspot.com/-rYrZX4fFbFs/XCdG_HWQqQI/AAAAAAAACgA/lQ-xCWEZElU5MdYn9PbzrKiXTz-wEzZQQCLcBGAs/s1600/39.jpg)
+![](/images/okinawa1a3.jpg)
 
 **アグー豚のロース、アグー豚のバラ**  
 這樣卷卷的，當然不是用來燒  
@@ -42,7 +42,7 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 入口即化，雖然薄切但不會散開  
 人間美味也～  
 
-[![](https://3.bp.blogspot.com/-fWvJAbmRqbc/XCdHIlsUN9I/AAAAAAAACgM/RqnegQjLWbcgYQFvceB8gdAKa4JmcXaXwCLcBGAs/s640/40.jpg)](https://3.bp.blogspot.com/-fWvJAbmRqbc/XCdHIlsUN9I/AAAAAAAACgM/RqnegQjLWbcgYQFvceB8gdAKa4JmcXaXwCLcBGAs/s1600/40.jpg)
+![](/images/okinawa1a4.jpg)
 
 **沖縄そば麺 x 野菜盛り**  
 しゃぶしゃぶ的野菜味道很鮮甜  
@@ -51,7 +51,7 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 再來一份沖縄そば麺，不像日本其他地區的  
 硬硬的不錯吃  
 
-[![](https://2.bp.blogspot.com/-0D6DmGAHVKA/XCdHR1ozU2I/AAAAAAAACgU/dIIlkMHS-OQs4nkdmpoOVkSflekc1U3pACLcBGAs/s640/41.jpg)](https://2.bp.blogspot.com/-0D6DmGAHVKA/XCdHR1ozU2I/AAAAAAAACgU/dIIlkMHS-OQs4nkdmpoOVkSflekc1U3pACLcBGAs/s1600/41.jpg)
+![](/images/okinawa1a5.jpg)
 
 **デザート**  
 紅芋雪糕番薯味很香不會太甜  
@@ -61,4 +61,4 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

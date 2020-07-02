@@ -3,13 +3,13 @@ title: 'CJ innerb'
 date: 2015-01-14T09:30:00.000+08:00
 draft: false
 aliases: [ "/2015/01/cj-innerb.html" ]
-tags : [glamorous - 美 ‧ 食]
+tags : [glamorous - 秀色可餐]
 ---
 
 如果怕皮膚粗糙的話  
 就喝枝維他命B吧～  
 
-[![](https://farm8.staticflickr.com/7481/16242357692_f17153fcc3_z.jpg)](https://farm8.staticflickr.com/7481/16242357692_f17153fcc3_z.jpg)
+![](/cjinnerb.jpg)
 
 維他命B能使皮膚平滑之餘  
 也能改善痘痘問題  

@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 
 世界上怎會有這麼好吃的そば？！  
 
-[![](https://1.bp.blogspot.com/-Bd0per1CXIM/XCdP8dpSTjI/AAAAAAAAClA/KeJBsXbi5eYYt9ckPKFrqbVoH327VNzBACLcBGAs/s640/80.jpg)](https://1.bp.blogspot.com/-Bd0per1CXIM/XCdP8dpSTjI/AAAAAAAAClA/KeJBsXbi5eYYt9ckPKFrqbVoH327VNzBACLcBGAs/s1600/80.jpg)
+![](/images/okinawa3d.jpg)
 
 **首里そば**  
 手打的面條粗硬而且非常有嚼勁  
@@ -25,11 +25,11 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 另點的**煮付け**中，蘿蔔跟海帶很甘甜  
 除了好吃還是好吃  
 
-[![](https://3.bp.blogspot.com/-s9m6lKq9LLM/XCdQCCuMB2I/AAAAAAAAClE/idSYOhH3ApY5FlyxCM6pc2bNwjeAkMIKACLcBGAs/s640/81.jpg)](https://3.bp.blogspot.com/-s9m6lKq9LLM/XCdQCCuMB2I/AAAAAAAAClE/idSYOhH3ApY5FlyxCM6pc2bNwjeAkMIKACLcBGAs/s1600/81.jpg)
+![](/images/okinawa3d1.jpg)
 
 這就是美味的證據！  
 
-[![](https://3.bp.blogspot.com/-4nn2OYYDYwk/XCdQIYb5c1I/AAAAAAAAClI/dmPZbWsTRs0JnB4SJhDeVDPbWqT3Q1izwCLcBGAs/s640/82.jpg)](https://3.bp.blogspot.com/-4nn2OYYDYwk/XCdQIYb5c1I/AAAAAAAAClI/dmPZbWsTRs0JnB4SJhDeVDPbWqT3Q1izwCLcBGAs/s1600/82.jpg)
+![](/images/okinawa3d2.jpg)
 
 追加的**氷ぜんざい**  
 紅豆冰不是香港飲用那種  
@@ -43,4 +43,4 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

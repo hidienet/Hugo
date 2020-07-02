@@ -8,7 +8,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 
 燒完珠等車走，當然要坐低飲返杯食個tea啦  
 
-[![](https://c2.staticflickr.com/6/5552/29726132003_c4e53cd7ed_z.jpg)](https://c2.staticflickr.com/6/5552/29726132003_c4e53cd7ed_z.jpg)
+![](/images/taitung4g.jpg)
 
 **兒時回憶雞蛋布丁**  
 如其名就係好vintage嗰種好重蛋味滑滑厚實型布甸  
@@ -27,15 +27,15 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 唔係嗰種甜死人聖誕gingerbread咖啡特飲  
 只可以講鍾意個糖漿多過杯咖啡（嘻）  
 
-[![](https://c2.staticflickr.com/6/5788/30357810535_49de31155f_z.jpg)](https://c2.staticflickr.com/6/5788/30357810535_49de31155f_z.jpg)
+![](/images/taitung4g1.jpg)
 
 夠hea嘅環境，我仲要係坐梳花呢其實  
 
-[![](https://c1.staticflickr.com/9/8657/30322631406_595bea055a_z.jpg)](https://c1.staticflickr.com/9/8657/30322631406_595bea055a_z.jpg)
+![](/images/taitung4g2.jpg)
 
 廚房準備晚餐嘅囡囡們  
 
-[![](https://c2.staticflickr.com/8/7541/29727455284_3809d2150c_z.jpg)](https://c2.staticflickr.com/8/7541/29727455284_3809d2150c_z.jpg)
+![](/images/taitung4g3.jpg)
 
 outdoor都好舒服好正～  
   
@@ -44,4 +44,4 @@ outdoor都好舒服好正～
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

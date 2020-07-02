@@ -9,15 +9,15 @@ tags : [glamorous - 保養おたく]
 平常DIY以鹽做的都是磨砂  
 但這瓶宮古島的雪塩卻是用來massage  
 
-[![](https://3.bp.blogspot.com/-XitHoDVooZY/XCd_Kp-_fHI/AAAAAAAACxg/eavJm_rbPwcoDSswkHrVj6A1ctZsrnkaQCLcBGAs/s640/88.jpg)](https://3.bp.blogspot.com/-XitHoDVooZY/XCd_Kp-_fHI/AAAAAAAACxg/eavJm_rbPwcoDSswkHrVj6A1ctZsrnkaQCLcBGAs/s1600/88.jpg)
+![](/images/snowsalt.jpg)
 
 藍白色的一桶雪塩  
 
-[![](https://2.bp.blogspot.com/-UiiQBkKhoQE/XCd_WxoTQaI/AAAAAAAACxo/kN5FsxBfgqUGPJfaAiFP0Rw3qZOHuKTBQCLcBGAs/s640/89.jpg)](https://2.bp.blogspot.com/-UiiQBkKhoQE/XCd_WxoTQaI/AAAAAAAACxo/kN5FsxBfgqUGPJfaAiFP0Rw3qZOHuKTBQCLcBGAs/s1600/89.jpg)
+![](/images/snowsalt1.jpg)
 
 超幼細，像雪一樣的粉狀  
 
-[![](https://2.bp.blogspot.com/-SmgPMXlSy2U/XCd_fCR9_hI/AAAAAAAACxs/asQTDxVh3n0AE2TQMG7mVoeiroH3lPVkgCLcBGAs/s640/90.jpg)](https://2.bp.blogspot.com/-SmgPMXlSy2U/XCd_fCR9_hI/AAAAAAAACxs/asQTDxVh3n0AE2TQMG7mVoeiroH3lPVkgCLcBGAs/s1600/90.jpg)
+![](/images/snowsalt2.jpg)
 
 跟住瓶蓋的recipe  
 massage的就加適當份量的水（或其他液體）  

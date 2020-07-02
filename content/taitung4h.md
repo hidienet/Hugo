@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 臺灣有度好，食嘢少少少少咁  
 咁就可以食多幾樣唔駛一嘢質飽咗  
 
-[![](https://c2.staticflickr.com/6/5590/30271947411_b317dc1201_z.jpg)](https://c2.staticflickr.com/6/5590/30271947411_b317dc1201_z.jpg)
+![](/images/taitung4h.jpg)
 
 鵝件、腎、筍  
 鍾意鵝件多過鵝片  
@@ -29,4 +29,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
 
 百多年的琉球饅頭老店  
 
-[![](https://3.bp.blogspot.com/-vzQ_v3ZYdrc/XCeIOmBg-HI/AAAAAAAAC3o/BcTmDcqKNsoWHjQR5-EFbJC2m1u5NvDywCLcBGAs/s640/107.jpg)](https://3.bp.blogspot.com/-vzQ_v3ZYdrc/XCeIOmBg-HI/AAAAAAAAC3o/BcTmDcqKNsoWHjQR5-EFbJC2m1u5NvDywCLcBGAs/s1600/107.jpg)
+![](/images/okinawa5b.jpg)
 
 這種饅頭不是白色麵粉那種  
 而是像粿那樣半透明的  
@@ -27,4 +27,4 @@ tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族]
 但一直吃himalayan salt又想不出轉換的理由  
 加上那種海塩一點都不便宜，所以最後都沒有買  
 
-[![](https://4.bp.blogspot.com/--HSU0b3_55s/XCd8ozA3LpI/AAAAAAAACwI/XVaNn2OkdLUVWL3q_MnqYjcdL3xVdGzgACLcBGAs/s640/77.jpg)](https://4.bp.blogspot.com/--HSU0b3_55s/XCd8ozA3LpI/AAAAAAAACwI/XVaNn2OkdLUVWL3q_MnqYjcdL3xVdGzgACLcBGAs/s1600/77.jpg)
+![](/images/fujibambi.jpg)
 
 是「皇天不負有心人」嗎？  
 當最後一晚在街上閒逛的時候在family mart看到這包  

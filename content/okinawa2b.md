@@ -12,13 +12,13 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 只吃刺身可以在一樓吃  
 選擇了「仲田鮮魚」跟「長嶺鮮魚」  
 
-[![](https://1.bp.blogspot.com/-eUMTlrlYo2A/XCdITAGEmFI/AAAAAAAAChA/ntURrvoefEslr66g6M5ZzAUPrHAgFCzcwCLcBGAs/s640/47.jpg)](https://1.bp.blogspot.com/-eUMTlrlYo2A/XCdITAGEmFI/AAAAAAAAChA/ntURrvoefEslr66g6M5ZzAUPrHAgFCzcwCLcBGAs/s1600/47.jpg)
+![](/images/okinawa2b.jpg)
 
 先吃刺身  
 沖縄大眼雞（？），當地的魚紅色皮眼睛大大的  
 點了就即切的，魚肉鮮甜沒有渣  
 
-[![](https://3.bp.blogspot.com/-0pzuqQ1DIjk/XCdIaKqnicI/AAAAAAAAChI/1c1tigecsw4C99RPeAoqoIBvWWWtIadwQCLcBGAs/s640/48.jpg)](https://3.bp.blogspot.com/-0pzuqQ1DIjk/XCdIaKqnicI/AAAAAAAAChI/1c1tigecsw4C99RPeAoqoIBvWWWtIadwQCLcBGAs/s1600/48.jpg)
+![](/images/okinawa2b1.jpg)
 
 夜光貝  
 又是沖縄特有的貝類  
@@ -26,7 +26,7 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 雖然也是鮮切，不過有點腥臭  
 不算太好吃，當試試當地特有的東西就好  
 
-[![](https://3.bp.blogspot.com/-kEWkvdjx1HM/XCdIhKa55rI/AAAAAAAAChM/OsnSeruJrmorW4l1fOqxBG5bCfTO1LRvwCLcBGAs/s640/49.jpg)](https://3.bp.blogspot.com/-kEWkvdjx1HM/XCdIhKa55rI/AAAAAAAAChM/OsnSeruJrmorW4l1fOqxBG5bCfTO1LRvwCLcBGAs/s1600/49.jpg)
+![](/images/okinawa2b2.jpg)
 
 ボタンエビ + うに  
 我最愛吃的蝦蝦蝦，超黏超甜超新鮮  
@@ -36,7 +36,7 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
 古宇利島的海膽，味道很濃  
 海水味也很重但不會太鹹（大愛）  
 
-[![](https://2.bp.blogspot.com/-dBj-H5h9Q_g/XCdInvNiqfI/AAAAAAAAChU/ZJpHtZbN30UlNA3VMCKifoHD_h5Vtw7VACLcBGAs/s640/50.jpg)](https://2.bp.blogspot.com/-dBj-H5h9Q_g/XCdInvNiqfI/AAAAAAAAChU/ZJpHtZbN30UlNA3VMCKifoHD_h5Vtw7VACLcBGAs/s1600/50.jpg)
+![](/images/okinawa2b3.jpg)
 
 大大塊夾起超豪氣吃下  
 （因為太便宜才能這樣做吧！呵呵～）  
@@ -47,4 +47,4 @@ tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

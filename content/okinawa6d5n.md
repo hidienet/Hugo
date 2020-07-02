@@ -84,8 +84,8 @@ day 6
   
   
 **非沖縄買的沖縄名物**  
-[\[吃\] 南風堂 雪塩ちんすこう](http://www.hidie.net/2013/11/cookies_29.html)  
-[\[吃\] 御菓子御殿 元祖紅いもタルト](http://www.hidie.net/2013/11/blog-post_6121.html)  
+[\[吃\] 南風堂 雪塩ちんすこう](https://hidie.net/nanpudo/)  
+[\[吃\] 御菓子御殿 元祖紅いもタルト](https://hidie.net/okinawapie/)  
   
 
 ![](/images/okinawa6d5n.jpg)

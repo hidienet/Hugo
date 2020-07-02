@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺東、知本]
 响天巴洛出面個生果檔口買  
 ... 反正等緊巴士  
 
-[![](https://c2.staticflickr.com/6/5572/31156500191_276d81f960_z.jpg)](https://c2.staticflickr.com/6/5572/31156500191_276d81f960_z.jpg)
+![](/images/taitung7g.jpg)
 
 好熟・超腍・爆甜  
 簡直好食到暈低（無誇張）  
@@ -19,4 +19,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

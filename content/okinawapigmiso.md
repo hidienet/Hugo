@@ -8,7 +8,7 @@ tags : [flavor - 揀飲宅食]
 
 在沖縄很多地方也看見豚肉みそ的蹤影  
 
-[![](https://1.bp.blogspot.com/-PgsoLzYJg4Y/XCd-f2d_DMI/AAAAAAAACxI/Nb3jDt7yOwsJovUhm9MvFaDjtgsgsoDswCLcBGAs/s640/85.jpg)](https://1.bp.blogspot.com/-PgsoLzYJg4Y/XCd-f2d_DMI/AAAAAAAACxI/Nb3jDt7yOwsJovUhm9MvFaDjtgsgsoDswCLcBGAs/s1600/85.jpg)
+![](/images/okinawapigmiso.jpg)
 
 很卻很難才找到像這樣的既小盒又是膠盒的包裝  
 因為街上常見的都是玻璃樽裝  

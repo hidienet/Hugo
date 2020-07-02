@@ -12,7 +12,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 臺東嘛就算十二月都仲係好L熱  
 所以呢個cold stone嘅買一送一就最啱喇（嘻）  
 
-[![](https://c2.staticflickr.com/6/5714/22772622758_d12f1d8a18_z.jpg)](https://c2.staticflickr.com/6/5714/22772622758_d12f1d8a18_z.jpg)
+![](/images/taitung5m.jpg)
 
 （左）愛戀巧克力、（右）就是愛找茶兒  
 杯朱古力3B嘅  
@@ -33,4 +33,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

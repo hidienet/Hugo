@@ -12,28 +12,28 @@ hea都要hea得夠瘋狂！！！
 ROAR！！！！！！  
   
 **day 1**  
-[健康同唔健康之間](http://www.hidie.net/2016/01/day1.html)  
+[健康同唔健康之間](https://hidie.net/taitung1/)  
   
 **day 2**  
-[日安臺東](http://www.hidie.net/2016/01/day2.html)  
-[Oia Cafe B&B（伊亞咖啡民宿）](http://www.hidie.net/2016/01/day2oia-cafe-b.html)  
-[Oia - welcome drink](http://www.hidie.net/2016/01/day2oia-welcome-drink.html)  
-[田園米膳坊－麻油雞火鍋、宮保杏鮑菇set](http://www.hidie.net/2016/01/day2set.html)  
-[井村屋 やわもちアイス つぶあんミルクカップ、抹茶つぶあん最中](http://www.hidie.net/2016/01/day2_7.html)  
+[日安臺東](https://hidie.net/taitung2a/)  
+[Oia Cafe B&B（伊亞咖啡民宿）](https://hidie.net/taitung2b/)  
+[Oia - welcome drink](https://hidie.net/taitung2c/)  
+[田園米膳坊－麻油雞火鍋、宮保杏鮑菇set](https://hidie.net/taitung2d/)  
+[井村屋 やわもちアイス つぶあんミルクカップ、抹茶つぶあん最中](https://hidie.net/taitung2e/)  
   
 **day 3**  
-[藍蜻蜓炸雞](http://www.hidie.net/2016/01/day3.html)  
-[杉原陳家麻糬](http://www.hidie.net/2016/01/day3_8.html)  
-[鐵花村、臺東火車站 (舊站)](http://www.hidie.net/2016/01/day3_11.html)  
-[番薯兩難之要紅還是黃？](http://www.hidie.net/2016/01/day3_90.html)  
-[臺東市中央市場](http://www.hidie.net/2016/01/day3_12.html)  
-[津芳冰城 鹹冰棒](http://www.hidie.net/2016/01/day3_13.html)  
-[七里香水煎包](http://www.hidie.net/2016/01/day3_51.html)  
-[卑南豬血湯](http://www.hidie.net/2016/01/day3_14.html)  
-[bonsoir 鐵花村](http://www.hidie.net/2016/01/day3_14.html)  
-[穗科手打烏龍麵](http://www.hidie.net/2016/01/day3_15.html)  
-[寶桑湯圓](http://www.hidie.net/2016/01/day3_18.html)  
-[臺東觀光夜市](http://www.hidie.net/2016/01/day3_10.html)  
+[藍蜻蜓炸雞](https://hidie.net/taitung3a/)  
+[杉原陳家麻糬](https://hidie.net/taitung3b/)  
+[鐵花村、臺東火車站 (舊站)](https://hidie.net/taitung3c/)  
+[番薯兩難之要紅還是黃？](https://hidie.net/taitung3d/)  
+[臺東市中央市場](https://hidie.net/taitung3e/)  
+[津芳冰城 鹹冰棒](https://hidie.net/taitung3f/)  
+[七里香水煎包](https://hidie.net/taitung3g/)  
+[卑南豬血湯](https://hidie.net/taitung3h/)  
+[bonsoir 鐵花村](https://hidie.net/taitung3i/)  
+[穗科手打烏龍麵](https://hidie.net/taitung3j/)  
+[寶桑湯圓](https://hidie.net/taitung3k/)  
+[臺東觀光夜市](https://hidie.net/taitung3l/)  
   
 **day 4**  
 [明奎早餐店](https://hidie.net/taitung4a/)  

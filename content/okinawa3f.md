@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
 能喝就不怕試！  
 這些瑞泉泡盛都是任！飲！的！  
 
-[![](https://1.bp.blogspot.com/-45fjlC1nWNQ/XCdeuzrfbcI/AAAAAAAACm4/V1Zi93nS1poRJzHJVWhKKvNzEZ4duae_ACLcBGAs/s640/01.jpg)](https://1.bp.blogspot.com/-45fjlC1nWNQ/XCdeuzrfbcI/AAAAAAAACm4/V1Zi93nS1poRJzHJVWhKKvNzEZ4duae_ACLcBGAs/s1600/01.jpg)
+![](/images/okinawa3f.jpg)
 
 （＊not評酒師的不專業評論）  
 先喝反轉樽的那四枝，從左邊起  
@@ -32,27 +32,27 @@ tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
 超香也超醇，很好喝啊（入手了，我的是no.31）  
 最後是「飛泉漱玉」：哎～ 真的像是用來漱口，沒啥味道  
 
-[![](https://4.bp.blogspot.com/-flQ7DfIyXfA/XCde0RYZd2I/AAAAAAAACm8/BcPN-eVOLZsp-FulxkAl_GfHURsUcMRrwCLcBGAs/s640/02.jpg)](https://4.bp.blogspot.com/-flQ7DfIyXfA/XCde0RYZd2I/AAAAAAAACm8/BcPN-eVOLZsp-FulxkAl_GfHURsUcMRrwCLcBGAs/s1600/02.jpg)
+![](/images/okinawa3f1.jpg)
 
 熟成中  
 
-[![](https://1.bp.blogspot.com/-Vifum9Wnrak/XCde67dBvWI/AAAAAAAACnA/f3SLHCsUnZcDw9jkoxMMW0UEVJHkipeSQCLcBGAs/s640/03.jpg)](https://1.bp.blogspot.com/-Vifum9Wnrak/XCde67dBvWI/AAAAAAAACnA/f3SLHCsUnZcDw9jkoxMMW0UEVJHkipeSQCLcBGAs/s1600/03.jpg)
+![](/images/okinawa3f2.jpg)
 
 這些是新酒，小小的瓶很可愛  
 
-[![](https://1.bp.blogspot.com/-M4ZU0HFX5Ng/XCdfAqct37I/AAAAAAAACnI/uFVw3HZbOHoQdxC6I3v75VfcZwRdSnPsQCLcBGAs/s640/04.jpg)](https://1.bp.blogspot.com/-M4ZU0HFX5Ng/XCdfAqct37I/AAAAAAAACnI/uFVw3HZbOHoQdxC6I3v75VfcZwRdSnPsQCLcBGAs/s1600/04.jpg)
+![](/images/okinawa3f3.jpg)
 
 酒很重（液體+玻璃），不能買太多  
 
-[![](https://2.bp.blogspot.com/-qoEWChk9z5o/XCdfH58OscI/AAAAAAAACnM/v_jJ1mTupW4r7EIJEO5pZZbXwZu8u9iggCLcBGAs/s640/05.jpg)](https://2.bp.blogspot.com/-qoEWChk9z5o/XCdfH58OscI/AAAAAAAACnM/v_jJ1mTupW4r7EIJEO5pZZbXwZu8u9iggCLcBGAs/s1600/05.jpg)
+![](/images/okinawa3f4.jpg)
 
 沿著首里城西邊的外圍一直走便能到達  
 被一片綠包住，看起來舊舊的門牌  
 
-[![](https://1.bp.blogspot.com/-wCGQWdf2xMM/XCdfNkIft8I/AAAAAAAACnU/XX5HtCjDmuYyjaoK0fbov73_HjarqTC9ACLcBGAs/s640/06.jpg)](https://1.bp.blogspot.com/-wCGQWdf2xMM/XCdfNkIft8I/AAAAAAAACnU/XX5HtCjDmuYyjaoK0fbov73_HjarqTC9ACLcBGAs/s1600/06.jpg)
+![](/images/okinawa3f5.jpg)
 
 贈品的毛巾，薄薄的都不錯用  
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

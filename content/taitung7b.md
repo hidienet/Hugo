@@ -26,7 +26,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 好啦我都唔想攪大件事  
 一碗兩份分就分啦  
 
-[![](https://c2.staticflickr.com/6/5337/31231714996_e56d4b128d_z.jpg)](https://c2.staticflickr.com/6/5337/31231714996_e56d4b128d_z.jpg)
+![](/images/taitung7b.jpg)
 
 真・係・一・碗・就・夠  
 碗麵仲大過我塊面  
@@ -39,7 +39,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 好L好食，不過兩條友分一碗真係啱啱好唔浪費唔失禮  
 （係啱啱好唔夠喉但係再嗌一定食唔晒咁樣）  
 
-[![](https://c2.staticflickr.com/6/5717/31231717306_668758bc1b_z.jpg)](https://c2.staticflickr.com/6/5717/31231717306_668758bc1b_z.jpg)
+![](/images/taitung7b1.jpg)
 
 超級提味嘅靈魂  
 唔食得辣都一定要加嘅辣醬  
@@ -48,4 +48,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

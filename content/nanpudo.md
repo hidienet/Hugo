@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 貴爲連續3年世界零食金獎的雪塩ちんすこう  
 有甚麼獨特之處呢？  
 
-[![](https://4.bp.blogspot.com/-OptpV5ZD-8Q/XCd6cB5pGII/AAAAAAAACvE/FGFyW86xczQhVJGLFcdkoBoJl30rmK3gwCLcBGAs/s640/68.jpg)](https://4.bp.blogspot.com/-OptpV5ZD-8Q/XCd6cB5pGII/AAAAAAAACvE/FGFyW86xczQhVJGLFcdkoBoJl30rmK3gwCLcBGAs/s1600/68.jpg)
+[![](/images/nanpudo.jpg)
 
 ちんすこう又譯金楚糕  
 是傳統的琉球菓子  
@@ -25,4 +25,4 @@ tags : [flavor - 螞蟻族]
 不需要從沖縄托回來 XD  
   
   
-申延閱讀：[\[琉球戀吃活樂遊\] Day4：塩屋 雪塩ソフトクリーム](http://www.hidie.net/2013/11/day4_19.html)
+申延閱讀：[\[琉球戀吃活樂遊\] Day4：塩屋 雪塩ソフトクリーム](https://hidie.net/okinawa4d/)

@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 「相煎何太急。」  
 我一路食個腦就諗起呢句死人嘢！  
 
-[![](https://c1.staticflickr.com/9/8174/29907051636_8b2c06f505_z.jpg)](https://c1.staticflickr.com/9/8174/29907051636_8b2c06f505_z.jpg)
+![](/images/taitung3h.jpg)
 
 咩啫？！  
 豬血湯之嘛  
@@ -20,7 +20,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 味道鮮嫩，一D血腥味呀豬臭味都無！  
 好食喎！！！  
 
-[![](https://c1.staticflickr.com/9/8171/29647490720_4b87817f59_z.jpg)](https://c1.staticflickr.com/9/8171/29647490720_4b87817f59_z.jpg)
+![](/images/taitung3h1.jpg)
 
 剩係食碗嘢好似有D唔夠喉  
 叫多份肝連  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

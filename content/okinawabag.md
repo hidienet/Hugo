@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
 
 便宜得快要哭出來～  
 
-[![](https://3.bp.blogspot.com/-L48aV0kA168/XCdIzX2PRgI/AAAAAAAAChc/mzt4qKW047YtuT2ubixSTNjiegmb57UAwCLcBGAs/s640/51.jpg)](https://3.bp.blogspot.com/-L48aV0kA168/XCdIzX2PRgI/AAAAAAAAChc/mzt4qKW047YtuT2ubixSTNjiegmb57UAwCLcBGAs/s1600/51.jpg)
+![](/images/okinawabag.jpg)
 
 1000yen在三越買的福袋  
 （說是內含4000yen貨仔！）  
@@ -28,4 +28,4 @@ jelly的果汁味道很重，連提子味道都竟然沒有藥水味
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

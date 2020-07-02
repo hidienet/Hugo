@@ -9,16 +9,16 @@ tags : [travel - 臺灣・臺東、知本]
 係飽嘅係好飽嘅  
 所以唔浸得溫泉住  
 
-[![](https://c2.staticflickr.com/6/5475/31235227956_49150c29e4_z.jpg)](https://c2.staticflickr.com/6/5475/31235227956_49150c29e4_z.jpg)
+![](/images/taitung7h.jpg)
 
 不過可以浸溫泉蛋呀！  
 
-[![](https://c2.staticflickr.com/6/5689/31271631315_3e682bf9b7_z.jpg)](https://c2.staticflickr.com/6/5689/31271631315_3e682bf9b7_z.jpg)
+![](/images/taitung7h1.jpg)
 
 好一個煮蛋區@酒店  
 D水係好熱嘅  
 
-[![](https://c2.staticflickr.com/6/5655/31235223816_7c8280a77b_z.jpg)](https://c2.staticflickr.com/6/5655/31235223816_7c8280a77b_z.jpg)
+![](/images/taitung7h2.jpg)
 
 因為唔係即刻食  
 所以今次整我唔鍾意嘅全熟蛋  
@@ -29,4 +29,4 @@ D水係好熱嘅
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

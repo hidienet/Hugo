@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 又到咗一晚一宵夜時間  
 今晚食湯圓  
 
-[![](https://c1.staticflickr.com/9/8624/29433901823_b7743c0e2c_z.jpg)](https://c1.staticflickr.com/9/8624/29433901823_b7743c0e2c_z.jpg)
+![](/images/taitung3k.jpg)
 
 一冷一熱，兩種都係綜合  
 就係要一舖過大包圍試晒佢  
@@ -20,12 +20,12 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺東、知本]
   
 而盤綜合冰呢...  
 
-[![](https://c1.staticflickr.com/9/8545/29433909213_aba0fd4007_z.jpg)](https://c1.staticflickr.com/9/8545/29433909213_aba0fd4007_z.jpg)
+![](/images/taitung3k1.jpg)
 
 D料係收埋响堆冰裡面  
 花生同豆同熱嘅一樣啦  
 無咩好挑剔湯圓無似熱食咁軟  
-而係更韌好好咬嗰種�咬嗰種  
+而係更韌好好咬嗰種好好咬嗰種  
 脆圓就變得非常脆  
 咬落有聲好過癮  
 糖漿就係好古早味  
@@ -34,4 +34,4 @@ D料係收埋响堆冰裡面
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

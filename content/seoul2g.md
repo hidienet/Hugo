@@ -3,7 +3,7 @@ title: '[seoul time] Day2：CJ - Fat DOWN power burn master'
 date: 2014-10-23T20:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day2cj-fat-down-power-burn.html" ]
-tags : [travel - 남한・서울 (首爾), glamorous - 美 ‧ 食]
+tags : [travel - 남한・서울 (首爾), glamorous - 秀色可餐]
 ---
 
 無帶[water+](https://hidie.net/osullocredcafe/)，就衝入olive young買了這枝  

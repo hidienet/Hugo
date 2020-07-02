@@ -16,7 +16,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 好啦，(我深信係)臺東人都咁講  
 無理由唔試吓啫  
 
-[![](https://c2.staticflickr.com/6/5118/29433870204_b53d366987_z.jpg)](https://c2.staticflickr.com/6/5118/29433870204_b53d366987_z.jpg)
+![](/images/taitung4a.jpg)
 
 **奶茶** ｜ **法式土司** ｜ **龍眼干茶**  
 同平日响茶餐廳食到嘅西多唔同  
@@ -37,7 +37,7 @@ Mmm... 反而呀對面位份總匯三明治（右上角）仲吸引
 加上件西士又係甜  
 好sweet囉呢set加埋  
 
-[![](https://c1.staticflickr.com/9/8537/30061252015_089c22a2a3_z.jpg)](https://c1.staticflickr.com/9/8537/30061252015_089c22a2a3_z.jpg)
+![](/images/taitung4a1.jpg)
 
 等咗好耐份**蘿蔔糕**終於到喇  
 哇哇哇！無論邊一面都煎到鬼咁脆啱晒我  
@@ -52,4 +52,4 @@ Mmm... 反而呀對面位份總匯三明治（右上角）仲吸引
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

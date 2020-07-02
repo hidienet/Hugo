@@ -10,17 +10,17 @@ tags : [travel - 臺灣・臺東、知本]
 雖然之後唔算好早瞓  
 不過一早就已經精神奕奕  
 
-[![](https://c2.staticflickr.com/6/5628/31231602876_60ff2a6edd_z.jpg)](https://c2.staticflickr.com/6/5628/31231602876_60ff2a6edd_z.jpg)
+![](/images/taitung7a.jpg)
 
 尤其睇吓，個天咁鬼靚  
 真係早起D望多兩眼都好吖  
 （左邊舊雲好似隻馬！）  
 
-[![](https://c2.staticflickr.com/6/5630/30900071910_ce15af1e38_z.jpg)](https://c2.staticflickr.com/6/5630/30900071910_ce15af1e38_z.jpg)
+![](/images/taitung7a1.jpg)
 
 酒店有包自助早餐（筍lover！）  
 
-[![](https://c2.staticflickr.com/6/5775/31231603356_095889f948_z.jpg)](https://c2.staticflickr.com/6/5775/31231603356_095889f948_z.jpg)
+![](/images/taitung7a2.jpg)
 
 食少少晾吓個肚（無聊到呢D嘢都影...）  
   
@@ -28,4 +28,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

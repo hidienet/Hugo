@@ -10,27 +10,27 @@ tags : [travel - 臺灣・臺東、知本]
 不過唔係返去浸吓瞓吓覺咁  
 係又～ 向山上行  
 
-[![](https://c2.staticflickr.com/6/5642/31268795435_12fb7d709c_z.jpg)](https://c2.staticflickr.com/6/5642/31268795435_12fb7d709c_z.jpg)
+![](/images/taitung7d1.jpg)
 
 行上D上D先又瀑布睇  
 响酒店附近，好方便  
 都幾澎湃吖係咪？  
-（唔係咩都要比較嘅：[壺口瀑布](http://www.hidie.net/2014/07/day2_15.html)）  
+（唔係咩都要比較嘅：[壺口瀑布](https://hidie.net/xian2b/)）  
 
-[![](https://c2.staticflickr.com/6/5685/30461042523_66da5aab91_z.jpg)](https://c2.staticflickr.com/6/5685/30461042523_66da5aab91_z.jpg)
+![](/images/taitung7d.jpg)
 
 先行完一條人車共享嘅山路  
 然後就沿住呢條樓梯路一直上就到  
 
-[![](https://c2.staticflickr.com/6/5660/30447292744_194c0a341f_z.jpg)](https://c2.staticflickr.com/6/5660/30447292744_194c0a341f_z.jpg)
+![](/images/taitung7d2.jpg)
 
 係呀係又樓梯呀  
 
-[![](https://c2.staticflickr.com/6/5469/30447289524_c220081499_z.jpg)](https://c2.staticflickr.com/6/5469/30447289524_c220081499_z.jpg)
+![](/images/taitung7d3.jpg)
 
 一路行都見到隔離一直有流水  
 
-[![](https://c2.staticflickr.com/6/5493/31232569326_6848703cc6_z.jpg)](https://c2.staticflickr.com/6/5493/31232569326_6848703cc6_z.jpg)
+![](/images/taitung7d4.jpg)
 
 行一陣就到㗎喇好易行！  
 但係要影張好D嘅相就一D都唔容易  
@@ -52,4 +52,4 @@ tags : [travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

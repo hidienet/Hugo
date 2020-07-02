@@ -6,17 +6,17 @@ aliases: [ "/2016/03/day8_2.html" ]
 tags : [flavor - 飲！, flavor - 螞蟻族, travel - 臺灣・臺東、知本]
 ---
 
-係呀！又係臨走食[宮原眼科](http://www.hidie.net/2014/09/day8.html)呀！  
+係呀！又係臨走食[宮原眼科](https://hidie.net/taichung8/)呀！  
 無計啦，由呢度搭巴士去機場最方便（笑）  
 今次食輕食就夠喇  
 
-[![](https://c2.staticflickr.com/6/5466/31273244185_f68c565ab7_z.jpg)](https://c2.staticflickr.com/6/5466/31273244185_f68c565ab7_z.jpg)
+![](/images/taitung8c.jpg)
 
 下午茶，最重要係杯茶  
 薄荷紫米茶  
 濃郁而甜美嘅味道中帶D清新薄荷味  
 
-[![](https://c2.staticflickr.com/6/5773/31273244575_8488386874_z.jpg)](https://c2.staticflickr.com/6/5773/31273244575_8488386874_z.jpg)
+![](/images/taitung8c1.jpg)
 
 配菜但都好重要嘅甜品們  
 花生糖 x 南瓜籽糖；cheesecake；鳳梨酥  
@@ -27,4 +27,4 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

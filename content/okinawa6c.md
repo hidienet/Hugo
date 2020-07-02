@@ -9,7 +9,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
 藍色的天空  
 藍色的海岸線  
 
-[![](https://4.bp.blogspot.com/-M496_chNvOk/XCeD_XHb44I/AAAAAAAAC0w/dtWeRVuSmjQwgRMB7MG7pZeVyy2tWMTbACLcBGAs/s640/u.jpg)](https://4.bp.blogspot.com/-M496_chNvOk/XCeD_XHb44I/AAAAAAAAC0w/dtWeRVuSmjQwgRMB7MG7pZeVyy2tWMTbACLcBGAs/s1600/u.jpg)
+![](/images/okinawa6c.jpg)
 
 還有藍色標誌的ANA XD  
 .  
@@ -33,4 +33,4 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
   
 \-----------------------------------------------  
   
-延伸閱讀：[琉球戀吃活樂遊 (6D5N)](http://www.hidie.net/2013/11/6d5n_23.html)
+延伸閱讀：[琉球戀吃活樂遊 (6D5N)](https://hidie.net/okinawa6d5n/)

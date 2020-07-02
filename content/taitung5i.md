@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
 
 雖然對住一個個咁可愛嘅屁股  
 
-[![](https://c2.staticflickr.com/6/5447/30733510605_2820d62e14_z.jpg)](https://c2.staticflickr.com/6/5447/30733510605_2820d62e14_z.jpg)
+![](/images/taitung5i.jpg)
 
 但係我都係唔會唔捨得食嘅！！！  
   
@@ -24,4 +24,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺東、知本]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺東瘋食遊（8D7N）](http://www.hidie.net/2016/03/8d7n.html)
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

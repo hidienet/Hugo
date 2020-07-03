@@ -9,7 +9,7 @@ tags : [amusement - books]
 很喜歡食蕃茄，不論生食熟食的都鍾意  
 所以這個瘦身法便非常吸引我    
 
-[![](https://2.bp.blogspot.com/-CN8aQii-OhA/XCdhIUdJmlI/AAAAAAAACow/-iAOVlyKBwQeFQzRWbJ7fYHo8vhBMhlOACLcBGAs/s640/18.jpg)](https://2.bp.blogspot.com/-CN8aQii-OhA/XCdhIUdJmlI/AAAAAAAACow/-iAOVlyKBwQeFQzRWbJ7fYHo8vhBMhlOACLcBGAs/s1600/18.jpg)
+![](/images/tomatobook.jpg)
 
 「夜トマトダイエット」  
 ﹣唐沢 明  
@@ -22,6 +22,6 @@ tags : [amusement - books]
 也可以喝茄汁或點茄醬   
 所以真的不難試   
 
-[![](https://2.bp.blogspot.com/-nD5bYnRxE4o/XCdhOdHtDnI/AAAAAAAACo4/ECXjfaGjiJYetmNdb0j6HiJkmnPOzpNDgCLcBGAs/s640/19.jpg)](https://2.bp.blogspot.com/-nD5bYnRxE4o/XCdhOdHtDnI/AAAAAAAACo4/ECXjfaGjiJYetmNdb0j6HiJkmnPOzpNDgCLcBGAs/s1600/19.jpg)
+![](/images/kagome.jpg)
 
 最愛的果汁，kagome～

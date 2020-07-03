@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名
 但這枝實在太吸引  
 忍不住就買了返酒店  
 
-[![](https://c2.staticflickr.com/6/5727/21139216793_6a21c9c9b5_z.jpg)](https://c2.staticflickr.com/6/5727/21139216793_6a21c9c9b5_z.jpg)
+![](/images/nagoya2c.jpg)
 
 鹽 x 荔枝的口味  
 甜中帶微鹹令甜味更突出  
@@ -27,4 +27,4 @@ tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

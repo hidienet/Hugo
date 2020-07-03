@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 响一片書海（其實係書架）之中找尋到幸福…
 
-[![](https://c1.staticflickr.com/5/4776/26858434678_acb441c310_z.jpg)](https://c1.staticflickr.com/5/4776/26858434678_acb441c310_z.jpg)
+![](/images/hanakoaoyama.jpg)
 
 **仕事も恋もがけっぷち！**  
 ２９歳ＯＬが永遠に続く幸せを手に入れたシンプルな習慣  
@@ -40,7 +40,7 @@ tags : [amusement - books]
 可以好容易就捉得到  
 視乎個人抉擇㗎啫～
 
-[![](https://c1.staticflickr.com/5/4799/38919486960_d1b73ec78c_z.jpg)](https://c1.staticflickr.com/5/4799/38919486960_d1b73ec78c_z.jpg)
+![](/images/hanakoaoyama1.jpg)
 
 我嘅幸福時光  
 睇住水，吹住清爽嘅風  

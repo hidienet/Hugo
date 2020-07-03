@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 懶到極點的借助外物來瘦之一：彈力帶！  
 
-[![](https://4.bp.blogspot.com/-XazvdCw1TfY/XCdqRftSriI/AAAAAAAACs0/wtD4_DTGsi8-qqDDBiFrQN5eunNfhRBIwCLcBGAs/s640/50.jpg)](https://4.bp.blogspot.com/-XazvdCw1TfY/XCdqRftSriI/AAAAAAAACs0/wtD4_DTGsi8-qqDDBiFrQN5eunNfhRBIwCLcBGAs/s1600/50.jpg)
+![](/images/beltbook.jpg)
 
 「バンド1本でやせる! 巻くだけダイエット」－山本千尋  
   

@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺北]
 那麼辛苦的「爬山」  
 當然要好好地休息一下（懶）  
 
-[![](https://4.bp.blogspot.com/-1aBd2Wx6mik/XDGhgaKYeAI/AAAAAAAAEhk/e7xKxQ1-JqwRoDH5keV2cfipetwsIqNiACLcBGAs/s640/70.jpg)](https://4.bp.blogspot.com/-1aBd2Wx6mik/XDGhgaKYeAI/AAAAAAAAEhk/e7xKxQ1-JqwRoDH5keV2cfipetwsIqNiACLcBGAs/s1600/70.jpg)
+![](/images/taipei3c.jpg)
 
 專人泡的功夫茶  
 加一客像雲一樣軟滑的雪花糕  
@@ -20,4 +20,4 @@ tags : [travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

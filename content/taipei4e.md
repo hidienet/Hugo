@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 作為一枚蝦精的我  
 怎會放過吃蝦的機會？  
 
-[![](https://3.bp.blogspot.com/-Fdm0V1P6hg8/XDGjYHlJ_3I/AAAAAAAAEi8/xn9sgZ7cWiMDa3ggEWboMrJBzQoWH9eCACLcBGAs/s640/82.jpg)](https://3.bp.blogspot.com/-Fdm0V1P6hg8/XDGjYHlJ_3I/AAAAAAAAEi8/xn9sgZ7cWiMDa3ggEWboMrJBzQoWH9eCACLcBGAs/s1600/82.jpg)
+![](/images/taipei4e.jpg)
 
 一整塊圓圓的炸蝦餅  
 切開成一角角的pizza狀  
@@ -27,4 +27,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

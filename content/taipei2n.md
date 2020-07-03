@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 
 圓滾滾的胡椒餅，超好吃的呢～  
 
-[![](https://2.bp.blogspot.com/-oQXS0haBZUs/XDGg0K-9B4I/AAAAAAAAEhE/SqFYCuvIiiobam-Ooei9SUbvjuU122fSACLcBGAs/s640/66.jpg)](https://2.bp.blogspot.com/-oQXS0haBZUs/XDGg0K-9B4I/AAAAAAAAEhE/SqFYCuvIiiobam-Ooei9SUbvjuU122fSACLcBGAs/s1600/66.jpg)
+![](/images/taipei2n.jpg)
 
 又是要排隊先有得食  
 （因為新鮮現烤的）  
@@ -22,4 +22,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

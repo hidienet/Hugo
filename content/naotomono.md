@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 要瘦？早抖啦你！  
 
-[![](https://c1.staticflickr.com/5/4336/37173160990_b9b6b499f1_z.jpg)](https://c1.staticflickr.com/5/4336/37173160990_b9b6b499f1_z.jpg)
+![](/images/naotomono.jpg)
 
 「きょうの睡眠ダイエット: 4週間でヤセ体質に変わる」  
 － 友野 なお  

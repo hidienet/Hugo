@@ -12,7 +12,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 咪休休閒扮吓貴婦嘆返個afternoon tea  
 食件“の”cake cake  
 
-[![](https://c2.staticflickr.com/2/1627/25080712700_8b1bdafac2_z.jpg)](https://c2.staticflickr.com/2/1627/25080712700_8b1bdafac2_z.jpg)
+![](/images/nagoya7c.jpg)
 
 呢款tea set包兩件蛋糕加壺茶  
 秋天當然會揀有栗子der：  
@@ -26,11 +26,11 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 點埋士多啤梨醬、朱古力醬、抹茶醬、桃醬同芒果醬  
 响原味中再帶色彩  
 
-[![](https://c2.staticflickr.com/2/1496/25258057462_42da9bda9d_z.jpg)](https://c2.staticflickr.com/2/1496/25258057462_42da9bda9d_z.jpg)
+![](/images/nagoya7c1.jpg)
 
 香滑不苦焦糖味紅茶  
 以金色茶壺同餐具用餐，「巧膠紙」ね。   
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

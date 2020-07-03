@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 比起郁都唔郁，郁少少應該易瘦啲... 啩... ...  
 
-[![](https://c1.staticflickr.com/5/4400/36523189751_c4735ebd60_z.jpg)](https://c1.staticflickr.com/5/4400/36523189751_c4735ebd60_z.jpg)
+![](/images/sacrumbook.jpg)
 
 「ひねって伸ばす 仙骨ウォーキングでバービー体型になる！」  
 － かなつ久美、デューク更家  

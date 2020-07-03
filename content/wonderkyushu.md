@@ -11,7 +11,7 @@ tags : [amusement - books]
 所以一般都係上網𥄫D人寫乜  
 或者去圖書館借嚟睇  
 
-[![](https://c1.staticflickr.com/1/403/32041831305_2ffc930ebc_z.jpg)](https://c1.staticflickr.com/1/403/32041831305_2ffc930ebc_z.jpg)
+![](/images/wonderkyushu.jpg)
 
 好難得响我想去南九州嘅時候  
 竟然Discover Japan响尖咀免費派幾日呢本嘢  

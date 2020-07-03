@@ -9,13 +9,13 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
 既然飯後果不健康  
 乾脆拿大大個爆甜生果做宵夜啦！  
 
-[![](https://c2.staticflickr.com/2/1493/25281963651_5a722a8120_z.jpg)](https://c2.staticflickr.com/2/1493/25281963651_5a722a8120_z.jpg)
+![](/images/nagoya6f.jpg)
 
 **愛知 次郎柿**  
 甜！爽！脆！  
 當造的柿就是既便宜又美味  
 
-[![](https://c2.staticflickr.com/2/1616/25375002635_f7847a21bd_z.jpg)](https://c2.staticflickr.com/2/1616/25375002635_f7847a21bd_z.jpg)
+![](/images/nagoya6f1.jpg)
 
 **りんご**（蘋果就蘋果啦，扮Q晒野...）  
 爽甜就當然了  
@@ -25,4 +25,4 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

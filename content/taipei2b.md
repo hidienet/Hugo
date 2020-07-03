@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺北]
 都說了粉漿羹不是我杯茶  
 為甚麼要去吃呢？  
 
-[![](https://2.bp.blogspot.com/-3HPJaOq8zzA/XDGe1pcQNFI/AAAAAAAAEfk/C_65qkU2DI0ZYfrLJFIb2QRZ2xzfQHzegCLcBGAs/s640/53.jpg)](https://2.bp.blogspot.com/-3HPJaOq8zzA/XDGe1pcQNFI/AAAAAAAAEfk/C_65qkU2DI0ZYfrLJFIb2QRZ2xzfQHzegCLcBGAs/s1600/53.jpg)
+![](/images/taipei2b.jpg)
 
 這碗湯羹較稀  
 又有愛吃的爽脆荀絲  
@@ -19,4 +19,4 @@ tags : [travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

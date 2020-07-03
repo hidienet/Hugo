@@ -9,7 +9,7 @@ tags : [amusement - books]
 對於一直想把那對「金華美腿」變回人類的腿而努力  
 又給書名的一次瘦到位吸引，當然又要白老鼠上身  
 
-[![](https://3.bp.blogspot.com/-URZveKVSAgE/XCiHbIqRvGI/AAAAAAAADMw/5JcKrNn4d8kI6GtSUTDEL8m3BaNkPTXNQCLcBGAs/s640/51.jpg)](https://3.bp.blogspot.com/-URZveKVSAgE/XCiHbIqRvGI/AAAAAAAADMw/5JcKrNn4d8kI6GtSUTDEL8m3BaNkPTXNQCLcBGAs/s1600/51.jpg)
+![](/images/towelbook.jpg)
 
 「下半身やせ深筋ダイエット」  
 －中辻 正  
@@ -19,7 +19,7 @@ tags : [amusement - books]
 是以毛巾（大的地方用浴巾；小的用面巾）打結  
 然後按深層的肌肉  
   
-喔！深層肌肉，這跟[push](http://www.hidie.net/2013/12/push-push.html)的表層不同  
+喔！深層肌肉，這跟[push](https://hidie.net/pushbook/)的表層不同  
 這是連骨頭的那些肌肉  
 人體有好多好多肌肉，有排按了吧（悶吶）  
   

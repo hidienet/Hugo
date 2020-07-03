@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 （加上一陣上機無嘢食）  
 開餐～～～  
 
-[![](https://c2.staticflickr.com/8/7552/27594526934_725c8204be_z.jpg)](https://c2.staticflickr.com/8/7552/27594526934_725c8204be_z.jpg)
+![](/images/nagoya8h.jpg)
 
 浸完唔想大魚大肉  
 所以清清地食刺身定食  
@@ -23,7 +23,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 所以有好多新鮮魚食  
 仲要係日日唔同買完就明天請早嗰種  
 
-[![](https://c2.staticflickr.com/8/7728/27929720030_285d3635df_z.jpg)](https://c2.staticflickr.com/8/7552/27594526934_725c8204be_z.jpg)
+![](/images/nagoya8h1.jpg)
 
 嗱！完売完売完売呀！  
   
@@ -31,4 +31,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

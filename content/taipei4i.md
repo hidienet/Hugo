@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺北]
 
 青蛙下蛋... 多嘔心的名稱呢  
 
-[![](https://1.bp.blogspot.com/-JGj8MCio7A0/XDGkG41X3MI/AAAAAAAAEjk/xGq9vR0uDfQ12KUFkdE__2hPTxZP-Q3pwCLcBGAs/s640/87.jpg)](https://1.bp.blogspot.com/-JGj8MCio7A0/XDGkG41X3MI/AAAAAAAAEjk/xGq9vR0uDfQ12KUFkdE__2hPTxZP-Q3pwCLcBGAs/s1600/87.jpg)
+![](/images/taipei4i.jpg)
 
 其實是檸檬汁 + 愛玉  
 愛玉是無色天然jelly  
@@ -19,4 +19,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

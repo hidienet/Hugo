@@ -9,12 +9,12 @@ tags : [travel - 臺灣・臺北]
 折騰一輪  
 幸好今天天氣真的超好  
 
-[![](https://4.bp.blogspot.com/-aNesvTrHy1s/XDGhIXZ3zjI/AAAAAAAAEhQ/Wc788EZF6joekkfGupSbBbifU0EztTuaACLcBGAs/s640/67.jpg)](https://4.bp.blogspot.com/-aNesvTrHy1s/XDGhIXZ3zjI/AAAAAAAAEhQ/Wc788EZF6joekkfGupSbBbifU0EztTuaACLcBGAs/s1600/67.jpg)
+![](/images/taipei3a.jpg)
 
 美麗的天氣加景觀  
 就能補足拍攝技術不足（笑）  
 
-[![](https://4.bp.blogspot.com/-5H_YiG0FiTQ/XDGhM0EBG5I/AAAAAAAAEhU/Iv4IV1iU2mo10ZwMpeX7JCLiBipNyqF_gCLcBGAs/s640/68.jpg)](https://4.bp.blogspot.com/-5H_YiG0FiTQ/XDGhM0EBG5I/AAAAAAAAEhU/Iv4IV1iU2mo10ZwMpeX7JCLiBipNyqF_gCLcBGAs/s1600/68.jpg)
+![](/images/taipei3a1.jpg)
 
 有懷舊糖果賣呢  
 不過其實我小時候已經不是吃這些  
@@ -22,4 +22,4 @@ tags : [travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

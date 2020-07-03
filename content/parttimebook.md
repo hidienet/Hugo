@@ -10,7 +10,7 @@ tags : [amusement - books]
 老闆們都去了開會  
 沒有人會打擾做甚麼都OK  
 
-[![](https://4.bp.blogspot.com/-hAhyoEN5fVw/XEQT7LBNt7I/AAAAAAAAGJY/mT6I49AExDQgOWLhNcGb4B1yWwMujClLACLcBGAs/s640/9733644169_5db5d2f62d_z.jpg)](https://4.bp.blogspot.com/-hAhyoEN5fVw/XEQT7LBNt7I/AAAAAAAAGJY/mT6I49AExDQgOWLhNcGb4B1yWwMujClLACLcBGAs/s1600/9733644169_5db5d2f62d_z.jpg)
+![](/images/parttimebook.jpg)
 
 不能落入老闆手中的書？  
   

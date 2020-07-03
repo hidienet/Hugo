@@ -6,7 +6,7 @@ aliases: [ "/2015/10/go-go-nagoya-day5_16.html" ]
 tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
 ---
 
-吃了難吃得死去活來的[山本屋本店](http://www.hidie.net/2015/10/go-go-nagoya-day5_58.html)後  
+吃了難吃得死去活來的[山本屋本店](https://hidie.net/nagoya5g/)後  
 一口氣就走上JR名古屋高島屋10階  
 因為那裡正進行「楽天うまいもの大会」  
 但太～ 逼～ 太～ 多～ 人～  
@@ -15,12 +15,12 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 最後當然是覺得累啦  
 **Teatime please！**  
 
-[![](https://c2.staticflickr.com/6/5631/21870262323_9d8ae2ca9b_z.jpg)](https://c2.staticflickr.com/6/5631/21870262323_9d8ae2ca9b_z.jpg)
+![](/images/nagoya5h.jpg)
 
 來到名古屋還未嘗到コーチン  
 那就先試試以コーチン蛋造成的小雞布甸蛋糕  
 
-[![](https://c2.staticflickr.com/6/5707/21870264713_b7c06f179d_z.jpg)](https://c2.staticflickr.com/6/5707/21870264713_b7c06f179d_z.jpg)
+![](/images/nagoya5h1.jpg)
 
 （解剖後）  
 耳朵同眼是朱古力  
@@ -32,10 +32,10 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 完全是我愛的口味喔～  
 而且沒有很甜的，真好！  
 
-[![](https://c1.staticflickr.com/1/623/22303505510_706833aff6_z.jpg)](https://c1.staticflickr.com/1/623/22303505510_706833aff6_z.jpg)
+![](/images/nagoya5h2.jpg)
 
 加上凍咖啡，好一個美妙的下午茶啊（笑）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

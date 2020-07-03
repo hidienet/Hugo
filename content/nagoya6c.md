@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 有美味的八丁味噌、守口漬  
 也有以味淋粕漬的魚肉  
 
-[![](https://c1.staticflickr.com/1/563/23022567402_9d78b6d0c3_z.jpg)](https://c1.staticflickr.com/1/563/23022567402_9d78b6d0c3_z.jpg)
+![](/images/nagoya6c.jpg)
 
 **鈴波定食**  
 **箸割 － 丹波黑豆**：大大粒超腍身丹波甜黑豆  
@@ -19,14 +19,14 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 **赤だし**：濃郁而不太鹹的味噌湯  
 **ところてん**：條條甜黑醋寒天，超美味耶～  
 
-[![](https://c2.staticflickr.com/6/5668/23036094345_eca7095013_z.jpg)](https://c2.staticflickr.com/6/5668/23036094345_eca7095013_z.jpg)
+![](/images/nagoya6c1.jpg)
 
 **鈴波御膳**  
 有箸割 丹波黑豆、味淋粕漬焼魚、煮物、ご飯、漬物、赤だし  
 加上若いもとろろ，黏黏的山芋啊，對腸胃皮膚耶很好  
 味道也不會腥沒有甚麼泥味草青味不錯不錯呢！  
 
-[![](https://c2.staticflickr.com/6/5722/22413341264_557ca04e89_z.jpg)](https://c2.staticflickr.com/6/5722/22413341264_557ca04e89_z.jpg)
+![](/images/nagoya6c2.jpg)
 
 お口直し － 梅粕酢  
 自家梅醋，微甜微酸帶有濃濃梅味  
@@ -36,4 +36,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

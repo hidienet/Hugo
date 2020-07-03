@@ -10,15 +10,17 @@ tags : [amusement - books]
 但因還未算能煮，所以要多磨練   
 看多點書偷偷師務求育成廚娘計劃（啥？）  
 
-[![](https://4.bp.blogspot.com/-nvtvITBSrfg/XCOPWcHPxqI/AAAAAAAAB1k/VfK9335hIaMC2U0kX1gy2Fc2Ne0V6qEFQCLcBGAs/s640/13.jpg)](https://4.bp.blogspot.com/-nvtvITBSrfg/XCOPWcHPxqI/AAAAAAAAB1k/VfK9335hIaMC2U0kX1gy2Fc2Ne0V6qEFQCLcBGAs/s1600/13.jpg)
+![](/images/kitchenbook.jpg)
+
+料理図鑑-『生きる底力』をつけよう-Do-図鑑シリーズ-とよこ  
+(料理圖鑑：1500招廚房新手求生術)  
+文：おち とよこ 圖：平野 恵理子
 
 由零開始，大感謝《料理圖鑑》  
   
 
-「各位同學，今日我地玩看圖講故事」
-
-跟住圖去學去揀去買，也有依照各食材的簡單食譜
-
+「各位同學，今日我地玩看圖講故事」  
+跟住圖去學去揀去買，也有依照各食材的簡單食譜  
 基本要下廚的事已不難了
 
   
@@ -28,10 +30,3 @@ tags : [amusement - books]
 
   
 
-  
-
-料理図鑑-『生きる底力』をつけよう-Do-図鑑シリーズ-とよこ
-
-(料理圖鑑：1500招廚房新手求生術)
-
-文：おち とよこ 圖：平野 恵理子

@@ -10,19 +10,19 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 （well，唔旅行都係胃食mode全開我認）  
 襯松坂屋仲未打烊就買啦買啦仲等咩呀？  
 
-[![](https://c1.staticflickr.com/9/8869/28193562075_b78edb1f15_z.jpg)](https://c1.staticflickr.com/9/8869/28193562075_b78edb1f15_z.jpg)
+![](/images/nagoya7e.jpg)
 
 有好多都好正咁，最後揀咗呢兩款  
 （plus R咗4分1件**鬼まんじゅう**試吓）  
 
-[![](https://c1.staticflickr.com/9/8736/28116265641_7464242a54_z.jpg)](https://c1.staticflickr.com/9/8736/28116265641_7464242a54_z.jpg)
+![](/images/nagoya7e1.jpg)
 
 首先出場係(又)名物**吉芋花火**  
 一條條幼身煙花狀  
 脆糖包住番薯條，夾咗一啖入口就停唔到  
 一路食一路食一路食，實在太邪惡（！）  
 
-[![](https://c2.staticflickr.com/8/7691/27578869583_03947f6d58_z.jpg)](https://c2.staticflickr.com/8/7691/27578869583_03947f6d58_z.jpg)
+![](/images/nagoya7e2.jpg)
 
 再來pack唔係名物但見到忍不住買嘅**大学芋（べっ甲芋）**  
 因為見到「**二度揚**」 ，炸兩次喎  
@@ -40,4 +40,4 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

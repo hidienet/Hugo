@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 上機場巴士前食咗稲荷寿し  
 落車去到機場，咪食另一款囉  
 
-[![](https://c1.staticflickr.com/9/8772/28131203371_a9ea3f3f86_z.jpg)](https://c1.staticflickr.com/9/8772/28131203371_a9ea3f3f86_z.jpg)
+![](/images/nagoya8e.jpg)
 
 一口一個tapas樣嘅**天むす**  
 即係紫菜包住炸蝦同飯  
@@ -30,4 +30,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

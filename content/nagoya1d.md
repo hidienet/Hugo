@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名
 因為好想大口大口地喝清水  
 （以前日本扭開水龍頭就有乾淨水的日子已經過去了）  
 
-[![](https://c2.staticflickr.com/6/5683/21569156249_1a9772914d_z.jpg)](https://c2.staticflickr.com/6/5683/21569156249_1a9772914d_z.jpg)
+![](/images/nagoya1d.jpg)
 
 買吧！反正超～ 便～ 宜～  
 2L裝超大一枝也只是88円  
@@ -23,4 +23,4 @@ tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
 
 一口一粒，冰涼冰涼的涼圓  
 
-![](https://2.bp.blogspot.com/-mdGAXaFH2s8/XDGgQzkrwII/AAAAAAAAEgs/W-y8sbtHJCklkY8C0qO56Wnl01ybJ1XRwCLcBGAs/s640/62.jpg)
+![](/images/taipei2k.jpg)
 
 圓滾圓滾好可愛  
 冰冰凍凍的外皮很QQ  
@@ -20,4 +20,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

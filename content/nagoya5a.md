@@ -9,13 +9,13 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 早起的人吃早餐去（睏）  
 今天要「出走」，其實也只是從**栄**搭地鐵去了**名古屋駅**，wakakakakakaaaa～  
 
-[![](https://c2.staticflickr.com/6/5721/21930320012_c1a1b762cc_z.jpg)](https://c2.staticflickr.com/6/5721/21930320012_c1a1b762cc_z.jpg)
+![](/images/nagoya5a.jpg)
 
 這間的手泡咖啡也是很香  
 不過沒有非常濃郁或者很苦  
 包的早餐有toast、烚蛋同甜甜乳酪杯  
 
-[![](https://c2.staticflickr.com/6/5712/21952129461_e14cb5b830_z.jpg)](https://c2.staticflickr.com/6/5712/21952129461_e14cb5b830_z.jpg)
+![](/images/nagoya5a1.jpg)
 
 不過既然要早起也需要滿滿的體力「遠征」  
 我的早餐就變成**小倉トースト**  
@@ -26,4 +26,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

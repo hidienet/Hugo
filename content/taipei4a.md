@@ -11,10 +11,10 @@ tags : [travel - 臺灣・臺北]
 公眾眾樂樂的好；  
 酒店房獨樂樂的也好  
 
-[![](https://1.bp.blogspot.com/-C9mKmQKIq9E/XDGiz3OQoLI/AAAAAAAAEic/2fxhdM85k6kceFuSABnGdJcnUtOUYXDWACLcBGAs/s640/78.jpg)](https://1.bp.blogspot.com/-C9mKmQKIq9E/XDGiz3OQoLI/AAAAAAAAEic/2fxhdM85k6kceFuSABnGdJcnUtOUYXDWACLcBGAs/s1600/78.jpg)
+![](/images/taipei4a.jpg)
 
 有得浸就最好（啦啦啦）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

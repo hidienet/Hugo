@@ -9,7 +9,7 @@ tags : [amusement - books]
 個人認為擁有優雅的步姿跟優美的線條  
 才稱得上是瘦得漂亮  
 
-[![](https://1.bp.blogspot.com/-91sf2YDwTSQ/XCiKg9wLZsI/AAAAAAAADOk/slmnHlneeREA4aUm_xy7RTs-Wt563_zygCLcBGAs/s640/66.jpg)](https://1.bp.blogspot.com/-91sf2YDwTSQ/XCiKg9wLZsI/AAAAAAAADOk/slmnHlneeREA4aUm_xy7RTs-Wt563_zygCLcBGAs/s1600/66.jpg)
+![](/images/balletbeautiful.jpg)
 
 "Ballet Beautiful"  
 \- Mary Helen Bowers  

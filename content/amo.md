@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 薄薄多層的紮實蛋糕  
 
-[![](https://1.bp.blogspot.com/-rxC-VPSpbec/XDGlObYAiZI/AAAAAAAAEkU/p9i89QucU3YxQBQWwN4IRiuZepSdzHvgwCLcBGAs/s640/94.jpg)](https://1.bp.blogspot.com/-rxC-VPSpbec/XDGlObYAiZI/AAAAAAAAEkU/p9i89QucU3YxQBQWwN4IRiuZepSdzHvgwCLcBGAs/s1600/94.jpg)
+![](/images/amo.jpg)
 
 打開包裝和跟膠紙後  
 一股濃濃的香甜味道撲鼻而出  

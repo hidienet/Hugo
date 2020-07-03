@@ -8,7 +8,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 
 秋天的味道啊～  
 
-[![](https://c1.staticflickr.com/1/748/23047731621_3a7553e3e0_z.jpg)](https://c1.staticflickr.com/1/748/23047731621_3a7553e3e0_z.jpg)
+![](/images/nagoya6b.jpg)
 
 除了最愛的栗子，還有銀杏呢！  
 去除了殼跟芯的銀杏  
@@ -21,4 +21,4 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

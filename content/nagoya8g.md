@@ -17,7 +17,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
 為咗唔令到自己去旅行會有丁點不滿  
 所以呢，溫泉is a MUST  
 
-[![](https://c1.staticflickr.com/9/8618/28176146966_b55c12ee6c_z.jpg)](https://c1.staticflickr.com/9/8618/28176146966_b55c12ee6c_z.jpg)
+![](/images/nagoya8g.jpg)
 
 入口自己除低鞋入鞋櫃  
 然後篤篤篤個自動售票機  
@@ -31,4 +31,4 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

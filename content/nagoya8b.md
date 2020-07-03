@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 唔夠時間慢慢坐低食late lunch  
 就買簡單外賣邊等車邊食啦  
 
-[![](https://c1.staticflickr.com/9/8630/27592046834_1d02712c42_z.jpg)](https://c1.staticflickr.com/9/8630/27592046834_1d02712c42_z.jpg)
+![](/images/nagoya8b.jpg)
 
 揀咗呢間老鋪 (明治22年)：壺屋  
 浸滿甜味醬油嘅**稲荷寿し**  
@@ -21,4 +21,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

@@ -11,7 +11,7 @@ tags : [amusement - books]
 黑芝麻黑胡椒黑木耳黑提子等等都很喜歡   
 黑豆，也不例外．．．    
 
-[![](https://2.bp.blogspot.com/--pa53d8fjNY/XCdjfhaNHvI/AAAAAAAACqI/5lHgJZ7EtYYys1vyTlVwofw--lCuuR3xQCLcBGAs/s640/29.jpg)](https://2.bp.blogspot.com/--pa53d8fjNY/XCdjfhaNHvI/AAAAAAAACqI/5lHgJZ7EtYYys1vyTlVwofw--lCuuR3xQCLcBGAs/s1600/29.jpg)
+![](/images/blackbeanbook.jpg)
 
 「3개월에 12kg 빼주는 살잡이 까망콩 」  
 ﹣정주영  
@@ -20,7 +20,7 @@ tags : [amusement - books]
 以其滿滿的飽肚感令自己不太饞嘴   
 這減肥法有夠簡單 (大心)  
 
-[![](https://1.bp.blogspot.com/-jbTLe3w61c8/XCdjnPZhHTI/AAAAAAAACqQ/HsXhDZDKAr8Uba2CHU2xoxDkYofMy6LzQCLcBGAs/s640/30.jpg)](https://1.bp.blogspot.com/-jbTLe3w61c8/XCdjnPZhHTI/AAAAAAAACqQ/HsXhDZDKAr8Uba2CHU2xoxDkYofMy6LzQCLcBGAs/s1600/30.jpg)
+![](/images/blackbean.jpg)
 
 我吃的黑豆購自么鳳  
 （是青仁黑豆！）  

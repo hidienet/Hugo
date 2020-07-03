@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 在九份上落巴士入街的路口  
 不能沒看到這家牛肉麵吧  
 
-[![](https://4.bp.blogspot.com/-MQ5iqFNsBqA/XDGiOUlOgpI/AAAAAAAAEiE/uOnVry-17JY8Zm7mHrypD6yx6CDoUlNQACLcBGAs/s640/74.jpg)](https://4.bp.blogspot.com/-MQ5iqFNsBqA/XDGiOUlOgpI/AAAAAAAAEiE/uOnVry-17JY8Zm7mHrypD6yx6CDoUlNQACLcBGAs/s1600/74.jpg)
+![](/images/taipei3g.jpg)
 
 就算真的眼睛大得錯過了  
 也會聞得到藥材跟牛肉的香氣  
@@ -24,4 +24,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

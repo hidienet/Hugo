@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
 
 這碗名叫招牌，不好吃就拆招牌！  
 
-[![](https://4.bp.blogspot.com/-6RU8WdO4cHw/XDGip320eZI/AAAAAAAAEiU/2tgQ6CQD4JwKwGSARD1T28a5H7uUqNeHgCLcBGAs/s640/77.jpg)](https://4.bp.blogspot.com/-6RU8WdO4cHw/XDGip320eZI/AAAAAAAAEiU/2tgQ6CQD4JwKwGSARD1T28a5H7uUqNeHgCLcBGAs/s1600/77.jpg)
+![](/images/taipei3j.jpg)
 
 Q彈的地瓜圓跟芋圓  
 香味濃郁韌度十足  
@@ -23,4 +23,4 @@ topping的奶雖稀卻滑
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

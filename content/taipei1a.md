@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 不管是牛肉麵又好，蔥油餅亦好  
 豆沙鍋餅也好，整餐的感覺就是香香香  
 
-[![](https://3.bp.blogspot.com/-htvibCnTUw8/XDGI5SPNIQI/AAAAAAAAEeU/2FGrYD1N3Gs0eIFn7JybuEV0Ot36YHUKgCLcBGAs/s640/43.jpg)](https://3.bp.blogspot.com/-htvibCnTUw8/XDGI5SPNIQI/AAAAAAAAEeU/2FGrYD1N3Gs0eIFn7JybuEV0Ot36YHUKgCLcBGAs/s1600/43.jpg)
+![](/images/taipei1a.jpg)
 
 中藥味中帶有清甜的蔬菜跟牛的味道  
 紅燒牛肉軟嫩又不會爛  
@@ -20,7 +20,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 就會一切都不夠完美  
 真的好喜歡台式的牛肉麵（心）  
 
-[![](https://1.bp.blogspot.com/-qCIVTit6huE/XDGI-qsSBTI/AAAAAAAAEec/oUHoD52YvvAGUUhdAopY5Eq4LiOaWz7nACLcBGAs/s640/44.jpg)](https://1.bp.blogspot.com/-qCIVTit6huE/XDGI-qsSBTI/AAAAAAAAEec/oUHoD52YvvAGUUhdAopY5Eq4LiOaWz7nACLcBGAs/s1600/44.jpg)
+![](/images/taipei1a1.jpg)
 
 蔥油餅熱騰騰  
 塞爆了蔥的內餡蔥味香  
@@ -28,7 +28,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 雖有點油膩，卻令人欲罷不能  
 很讚呢～  
 
-[![](https://3.bp.blogspot.com/-NEc4bjZylPw/XDGJEOZ_zZI/AAAAAAAAEeg/lu7T6NQ3b10tZSMaA6Mkk7vINo_voyX-ACLcBGAs/s640/45.jpg)](https://3.bp.blogspot.com/-NEc4bjZylPw/XDGJEOZ_zZI/AAAAAAAAEeg/lu7T6NQ3b10tZSMaA6Mkk7vINo_voyX-ACLcBGAs/s1600/45.jpg)
+![](/images/taipei1a2.jpg)
 
 超香的芝麻配上香脆的炸餅  
 裡面是滿滿的紅豆蓉餡  
@@ -38,4 +38,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

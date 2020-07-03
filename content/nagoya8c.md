@@ -9,7 +9,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 只係食兩三件稲荷寿し係未夠滿足  
 而且秋天嘛，一定要食栗子！  
 
-[![](https://c1.staticflickr.com/9/8858/27927125480_d415bcd68a_z.jpg)](https://c1.staticflickr.com/9/8858/27927125480_d415bcd68a_z.jpg)
+![](/images/nagoya8c.jpg)
 
 所以呢，食呢隻栗わらび就最啱喇  
 栗子蓉加砂糖一齊煮，香甜兼滑身  
@@ -18,4 +18,4 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
 
 滑溜滑溜，一齊骨碌入口吧～  
 
-[![](https://3.bp.blogspot.com/-r_8lSFN9Zs4/XDGgqOgwlUI/AAAAAAAAEhA/HcaSmpniYccFak69Aj7Z1uXxlu0TNAbdwCLcBGAs/s640/65.jpg)](https://3.bp.blogspot.com/-r_8lSFN9Zs4/XDGgqOgwlUI/AAAAAAAAEhA/HcaSmpniYccFak69Aj7Z1uXxlu0TNAbdwCLcBGAs/s1600/65.jpg)
+![](/images/taipei2m.jpg)
 
 清甜的清雞蛋布丁（圖左）  
 （右邊只是普通得不能再普通的白豆花）  
@@ -24,4 +24,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

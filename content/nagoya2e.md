@@ -10,7 +10,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 雖然「杏仁亦要花氣力」（！）  
 但不妨礙我對這味道的熱愛  
 
-![](https://c1.staticflickr.com/1/652/21748651256_471db6f2db_z.jpg)
+![](/images/nagoya2e.jpg)
 
 一大大大杯的杏仁豆腐！  
 **445g！** 大概是平日分量的兩倍多  
@@ -26,4 +26,4 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

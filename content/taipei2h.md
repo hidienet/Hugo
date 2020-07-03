@@ -11,7 +11,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
 很QQ的，不太甜的味道  
 就是這個原因會令人吃了會再想吃
 
-[![](https://4.bp.blogspot.com/-RUIDXfKAEYQ/XDGf1yYL8MI/AAAAAAAAEgU/gt7ffp0JHksoxgh1tsoyeCOjRTAknvs9wCLcBGAs/s640/59.jpg)](https://4.bp.blogspot.com/-RUIDXfKAEYQ/XDGf1yYL8MI/AAAAAAAAEgU/gt7ffp0JHksoxgh1tsoyeCOjRTAknvs9wCLcBGAs/s1600/59.jpg)
+![](/images/taipei2h.jpg)
 
 故此會叫做鴉片粉買吧～  
 這味道真會叫人上癮似的
@@ -25,4 +25,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

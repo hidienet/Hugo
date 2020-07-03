@@ -12,7 +12,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 雖然經過台湾ラーメン的教訓  
 卻不減“到名古屋就吃名古屋特色”的「情懷」  
 
-[![](https://c1.staticflickr.com/1/652/21786017321_12568cd07d_z.jpg)](https://c1.staticflickr.com/1/652/21786017321_12568cd07d_z.jpg)
+![](/images/nagoya3c.jpg)
 
 名物之一：**カレーうどん**（咖喱烏冬）  
 先來碗元祖版本  
@@ -21,7 +21,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 配料有最基本的魚捲魚板蔥等等  
 味道到咬下的感覺也超～ 棒～（大姆指）  
 
-[![](https://c1.staticflickr.com/1/569/21776561905_a1aba3120c_z.jpg)](https://c1.staticflickr.com/1/569/21776561905_a1aba3120c_z.jpg)
+![](/images/nagoya3c1.jpg)
 
 再來一碗夏季限定的冷烏冬，還是夏末真好  
 **夏野菜の冷たいカレーうどん**  
@@ -41,4 +41,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

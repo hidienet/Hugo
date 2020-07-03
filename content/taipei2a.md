@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺北]
 
 一patpat的麵線  
 
-[![](https://1.bp.blogspot.com/-TBDxb7nNlCs/XDGeruF1aMI/AAAAAAAAEfc/NfxhKs1A9uEI9b2h23o2UCF9a1ay6BaLgCLcBGAs/s640/52.jpg)](https://1.bp.blogspot.com/-TBDxb7nNlCs/XDGeruF1aMI/AAAAAAAAEfc/NfxhKs1A9uEI9b2h23o2UCF9a1ay6BaLgCLcBGAs/s1600/52.jpg)
+![](/images/taipei2a.jpg)
 
 味道其實不錯  
 有柯仔味，有強烈胡椒味  
@@ -17,4 +17,4 @@ tags : [travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺北]
 
 星星本身可以解喉毒  
 
-[![](https://1.bp.blogspot.com/-wrYys1jRnwo/XDGfsuVqbfI/AAAAAAAAEgM/FvPfdV7EYkYxBoqcHh-wnlBkVYFmyg8_wCLcBGAs/s640/58.jpg)](https://1.bp.blogspot.com/-wrYys1jRnwo/XDGfsuVqbfI/AAAAAAAAEgM/FvPfdV7EYkYxBoqcHh-wnlBkVYFmyg8_wCLcBGAs/s1600/58.jpg)
+![](/images/taipei2g.jpg)
 
 這家老店再拿來醃  
 然後加糖浸泡  
@@ -21,4 +21,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

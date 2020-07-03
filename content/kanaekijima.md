@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 「每一天都是學習」（！）  
 
-[![](https://3.bp.blogspot.com/-exRKuVe7Iqw/XC4SY7jIQiI/AAAAAAAAD7s/7n3acrVHJCEIDoP0AVWzHbwJ--4zZIQRACLcBGAs/s640/i.jpg)](https://3.bp.blogspot.com/-exRKuVe7Iqw/XC4SY7jIQiI/AAAAAAAAD7s/7n3acrVHJCEIDoP0AVWzHbwJ--4zZIQRACLcBGAs/s1600/i.jpg)
+![](/images/kanaekijima.jpg)
 
 這本書是日本一單案件的審判記錄  
 主人翁（疑犯）木嶋佳苗被控  

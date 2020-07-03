@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 
 OMG！哪來的美味炸排骨？  
 
-[![](https://3.bp.blogspot.com/-83GpLkXdCxM/XDGf-_p_9uI/AAAAAAAAEgc/GQEIMt0r5ykWKGPbaJR9x748kINNSjQ3QCLcBGAs/s640/60.jpg)](https://3.bp.blogspot.com/-83GpLkXdCxM/XDGf-_p_9uI/AAAAAAAAEgc/GQEIMt0r5ykWKGPbaJR9x748kINNSjQ3QCLcBGAs/s1600/60.jpg)
+![](/images/taipei2i.jpg)
 
 熱騰騰的排骨不太厚身  
 原來這就是剛好的厚薄嗎  
@@ -26,4 +26,4 @@ OMG！哪來的美味炸排骨？
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

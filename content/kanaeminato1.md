@@ -9,7 +9,7 @@ tags : [amusement - books]
 寫實的生活因為一些火花而帶來無可想像的衝擊同後果  
 讀湊かなえ的書每每令我有種要一口氣讀完的感覺  
 
-[![](https://farm9.staticflickr.com/8678/16406900601_dfa736484d_z.jpg)](https://farm9.staticflickr.com/8678/16406900601_dfa736484d_z.jpg)
+![](/images/kanaeminato1.jpg)
 
 《告白》  
 忍不住一讀再讀的作品  
@@ -25,7 +25,7 @@ tags : [amusement - books]
 能演繹出那神髓  
 不過我更想主角是由天海祐希飾演呢（嘻）  
 
-[![](https://farm8.staticflickr.com/7328/15786187434_94f5217dbd_z.jpg)](https://farm8.staticflickr.com/7328/15786187434_94f5217dbd_z.jpg)
+![](/images/kanaeminato1a.jpg)
 
 《少女》  
 兩位從小就是好朋友的高中生  
@@ -41,7 +41,7 @@ tags : [amusement - books]
 年輕的高中生角度為主軸  
 故事也明顯地寫的爽快  
 
-[![](https://farm9.staticflickr.com/8671/15786187574_aca7550ed5_z.jpg)](https://farm9.staticflickr.com/8671/15786187574_aca7550ed5_z.jpg)
+![](/images/kanaeminato1b.jpg)
 
 《贖罪》  
 十歲的女兒被姦殺後  
@@ -65,4 +65,4 @@ tags : [amusement - books]
   
 \-----------------------------------------------  
   
-延伸閱讀：[電影《白ゆき姫殺人事件》](http://www.hidie.net/2014/11/blog-post_23.html)
+延伸閱讀：[電影《白ゆき姫殺人事件》](https://hidie.net/shirayuki/)

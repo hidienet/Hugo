@@ -9,13 +9,13 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 創於昭和初期的鯛福茶庵  
 有個「鯛」字當然要拜候一下たい焼き（鯛魚燒）啦～  
 
-[![](https://c1.staticflickr.com/1/644/21925709712_8d213d68ca_z.jpg)](https://c1.staticflickr.com/1/644/21925709712_8d213d68ca_z.jpg)
+![](/images/nagoya4f.jpg)
 
 **たい焼き**  
 一排排即燒即賣的魚仔餅  
 拿上手好熱好熱好Q熱  
 
-[![](https://c2.staticflickr.com/6/5716/21937766055_e73c05fb93_z.jpg)](https://c2.staticflickr.com/6/5716/21937766055_e73c05fb93_z.jpg)
+![](/images/nagoya4f1.jpg)
 
 外皮乾身脆口餅質韌而柔軟  
 不會很厚沒有像吃麵包的感覺，很好！  
@@ -26,7 +26,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 天氣熱又行了一輪再加上吃了熱食  
 要吃點冰品凍的凍的凍的  
 
-[![](https://c1.staticflickr.com/1/672/21937767305_00a9ee4d39_z.jpg)](https://c1.staticflickr.com/1/672/21937767305_00a9ee4d39_z.jpg)
+![](/images/nagoya4f2.jpg)
 
 **かき氷（抹茶）**  
 雖然不及紅綠糖漿那樣傳統  
@@ -44,10 +44,10 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
   
 其實也想吃五平餅，可惜已經吃不下了  
 
-[![](https://c2.staticflickr.com/6/5756/21315030474_81ce501678_z.jpg)](https://c2.staticflickr.com/6/5756/21315030474_81ce501678_z.jpg)
+![](/images/nagoya4f3.jpg)
 
 在大須観音「轉角遇到吃」，真好～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

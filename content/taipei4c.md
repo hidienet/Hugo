@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺北]
 
 酸梅湯開胃消滯又解渴  
 
-[![](https://4.bp.blogspot.com/-2XrNEO0ZVtY/XDGjFL-_g1I/AAAAAAAAEis/q6EEXkuFDzAQoll5d_RZrzUfgovBLDmSwCLcBGAs/s640/80.jpg)](https://4.bp.blogspot.com/-2XrNEO0ZVtY/XDGjFL-_g1I/AAAAAAAAEis/q6EEXkuFDzAQoll5d_RZrzUfgovBLDmSwCLcBGAs/s1600/80.jpg)
+![](/images/taipei4c.jpg)
 
 平日港式的是濕醃梅  
 這家買的是醃梅乾後製成  
@@ -21,4 +21,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

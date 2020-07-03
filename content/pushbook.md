@@ -9,7 +9,7 @@ tags : [amusement - books]
 對於腿部比白蘿蔔更粗更短的我  
 有什麼能瘦腿的都會試試 XD  
 
-[![](https://3.bp.blogspot.com/-msT6b4xlc68/XCd2ZPJKsmI/AAAAAAAACtU/Hj53tsMvTJUuuj5jj01PDlgxtHkDvcZAACLcBGAs/s640/54.jpg)](https://3.bp.blogspot.com/-msT6b4xlc68/XCd2ZPJKsmI/AAAAAAAACtU/Hj53tsMvTJUuuj5jj01PDlgxtHkDvcZAACLcBGAs/s1600/54.jpg)
+![](/images/pushbook.jpg)
 
 「脚やせPUSHダイエット」－ 斉藤美恵子  
   

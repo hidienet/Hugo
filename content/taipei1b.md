@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 
 從小就喜歡小籠包，你們也是這樣嗎？  
 
-[![](https://1.bp.blogspot.com/--MJIrbpSIgI/XDGdzPKRUzI/AAAAAAAAEew/hnsYxZ21y8c2D_E1nU-jXGzBehG-JBC1QCLcBGAs/s640/46.jpg)](https://1.bp.blogspot.com/--MJIrbpSIgI/XDGdzPKRUzI/AAAAAAAAEew/hnsYxZ21y8c2D_E1nU-jXGzBehG-JBC1QCLcBGAs/s1600/46.jpg)
+![](/images/taipei1b.jpg)
 
 不管是台式的或上海的都喜歡  
 台式的皮比較薄  
@@ -20,4 +20,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

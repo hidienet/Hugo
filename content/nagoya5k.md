@@ -10,36 +10,36 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 今晚不宅在酒店房食布甸飲牛奶  
 去居！酒！屋！  
 
-[![](https://c1.staticflickr.com/1/782/22685279726_c55cac685c_z.jpg)](https://c1.staticflickr.com/1/782/22685279726_c55cac685c_z.jpg)
+![](/images/nagoya5k1.jpg)
 
 在名古屋吃最地道的手羽先（雞翼）  
 當然要到風来坊  
 
-[![](https://c2.staticflickr.com/6/5709/22088544244_5a49bc3fa5_z.jpg)](https://c2.staticflickr.com/6/5709/22088544244_5a49bc3fa5_z.jpg)
+![](/images/nagoya5k2.jpg)
 
 就算人少少也有廂房  
 周圍其實非常嘈  
 不過要傾偈都算夠空間  
 
-[![](https://c2.staticflickr.com/6/5667/22088546514_621ce62694_z.jpg)](https://c2.staticflickr.com/6/5667/22088546514_621ce62694_z.jpg)
+![](/images/nagoya5k3.jpg)
 
 啤酒也好梅酒都好  
 就是沒有不喝酒的道理，right？  
 
-[![](https://c1.staticflickr.com/1/766/22088543644_01d30f1640_z.jpg)](https://c1.staticflickr.com/1/766/22088543644_01d30f1640_z.jpg)
+![](/images/nagoya5k4.jpg)
 
 啤酒**枝豆**好朋友  
 
-[![](https://c1.staticflickr.com/1/669/22711300205_c53e46a9bd_z.jpg)](https://c1.staticflickr.com/1/669/22711300205_c53e46a9bd_z.jpg)
+![](/images/nagoya5k.jpg)
 
 在風来坊，不會沒有了**元祖手羽先唐揚げ**  
-之前在香港吃過另一名古屋也有名的[世界の山ちゃん](http://www.hidie.net/2015/07/blog-post.html)  
+之前在香港吃過另一名古屋也有名的[世界の山ちゃん](https://hidie.net/yamachan/)  
 當時那隻味道不算很對味兒  
 但這隻這隻這隻，好食好食好食！  
 鹹甜脆口的連骨頭也炸得超香  
 必吃的東西就是了～（邊打字邊流口水）  
 
-[![](https://c1.staticflickr.com/1/722/22697735282_cc20f771ff_z.jpg)](https://c1.staticflickr.com/1/722/22697735282_cc20f771ff_z.jpg)
+![](/images/nagoya5k5.jpg)
 
 再來客**梅肉天ぷら**  
 是豬肉包覆住去了核的醃梅  
@@ -53,4 +53,4 @@ night～（閉眼）
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

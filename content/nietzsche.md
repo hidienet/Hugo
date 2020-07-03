@@ -9,7 +9,7 @@ tags : [amusement - books]
 懶人 x 懶天氣  
 自有一套懶人哲學  
 
-[![](https://farm9.staticflickr.com/8632/16048497774_be01b4d38b_z.jpg)](https://farm9.staticflickr.com/8632/16048497774_be01b4d38b_z.jpg)
+![](/images/nietzsche.jpg)
 
 真的是哲學喔！  
   

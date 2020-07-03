@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 我很討厭數學，也不喜歡背和記那些是質數  
 
-[![](https://4.bp.blogspot.com/-FHpS_684FUE/XCQ7pgQ01MI/AAAAAAAAB5o/8MqGP3OsVMY_CZHpX-gejBm9nIHJLROfQCLcBGAs/s640/6.jpg)](https://4.bp.blogspot.com/-FHpS_684FUE/XCQ7pgQ01MI/AAAAAAAAB5o/8MqGP3OsVMY_CZHpX-gejBm9nIHJLROfQCLcBGAs/s1600/6.jpg)
+![](/images/lasolitudinedeinumeriprimi.jpg)
 
 不懂意大利文的當然是讀中文譯本  
   

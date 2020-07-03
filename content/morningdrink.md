@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 石原結實一向推崇的是令身體和暖而瘦    
 
-[![](https://1.bp.blogspot.com/-zerpJLBRNx8/XCdiw4640jI/AAAAAAAACp0/3ieIe5AzADcvtj9zxGAwyxSKmWCZTHStACLcBGAs/s640/26.jpg)](https://1.bp.blogspot.com/-zerpJLBRNx8/XCdiw4640jI/AAAAAAAACp0/3ieIe5AzADcvtj9zxGAwyxSKmWCZTHStACLcBGAs/s1600/26.jpg)
+![](/images/morningdrink.jpg)
 
 「カラダ浄化大作戦」  
 ﹣石原結實  

@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 今天吃個百年老咖啡店早餐～  
  \* 創業於明治41年（1908年）  
 
-[![](https://c1.staticflickr.com/1/589/22617246949_95639fbfa2_z.jpg)](https://c1.staticflickr.com/1/589/22617246949_95639fbfa2_z.jpg)
+![](/images/nagoya6a.jpg)
 
 **Bセット**，沒甚麼就只是set B的意思   
 裡面有多士・目玉焼・salad  
@@ -24,7 +24,7 @@ salad的新鮮菜絲混了甜醋
 這杯啡香濃微苦沒有酸味  
 美好的早晨果然少不了一杯美味的咖啡！  
 
-[![](https://c2.staticflickr.com/6/5769/22388269053_c107c470d1_z.jpg)](https://c2.staticflickr.com/6/5769/22388269053_c107c470d1_z.jpg)
+![](/images/nagoya6a1.jpg)
 
 想吃飽一點？  
 有這種**厚切りトースト**  
@@ -35,4 +35,4 @@ salad的新鮮菜絲混了甜醋
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

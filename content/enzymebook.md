@@ -9,7 +9,7 @@ tags : [amusement - books]
 乳酪是我很喜愛的食物（只限無糖原味的）  
 水果也是，所以那又是適合我的減肥法吧！  
 
-[![](https://4.bp.blogspot.com/-XHrCw4tCpCs/XCdiKQ2mvgI/AAAAAAAACpg/n16q4LHhpXwCU9IE5iomIp2-64wfT62oQCLcBGAs/s640/23.jpg)](https://4.bp.blogspot.com/-XHrCw4tCpCs/XCdiKQ2mvgI/AAAAAAAACpg/n16q4LHhpXwCU9IE5iomIp2-64wfT62oQCLcBGAs/s1600/23.jpg)
+![](/images/enzymebook.jpg)
 
 「酵素ヨーグルトダイエット」  
 ﹣本橋 登  

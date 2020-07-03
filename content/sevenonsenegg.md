@@ -9,7 +9,7 @@ tags : [flavor - 小食部]
 不論在臺南臺中臺北旅行  
 也不能不去七仔掃這些溫泉蛋回家  
 
-[![](https://1.bp.blogspot.com/-q12DRa0zMkE/XExtP8uEuYI/AAAAAAAAG6s/J74RogSvmlEJvmQEYxMGriclxgg42gR3QCLcBGAs/s640/13893413009_8daa8a568c_z.jpg)](https://1.bp.blogspot.com/-q12DRa0zMkE/XExtP8uEuYI/AAAAAAAAG6s/J74RogSvmlEJvmQEYxMGriclxgg42gR3QCLcBGAs/s1600/13893413009_8daa8a568c_z.jpg)
+![](/images/sevenonsenegg.jpg)
 
 因為七仔哪裡都有  
 不用為找哪裡有那那那間店鋪而煩惱  

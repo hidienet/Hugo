@@ -12,7 +12,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 每朝落地下街都會經過呢間  
 今日終於坐低食到  
 
-[![](https://c1.staticflickr.com/9/8627/27590966443_fd8d695ca3_z.jpg)](https://c1.staticflickr.com/9/8627/27590966443_fd8d695ca3_z.jpg)
+![](/images/nagoya8a.jpg)
 
 **ベーコンエッグ&厚切りバタートースト**  
 每間珈琲店都有唔同特色  
@@ -29,4 +29,4 @@ salad菜新鮮爽脆；dressing油醋平衡唔錯唔錯
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

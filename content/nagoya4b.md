@@ -13,7 +13,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 「食飯係要排隊」！！！  
 雖然也只是大概二十分鐘等候時間（遠望）  
 
-[![](https://c1.staticflickr.com/1/680/21596293830_bef9ca4ef7_z.jpg)](https://c1.staticflickr.com/1/680/21596293830_bef9ca4ef7_z.jpg)
+![](/images/nagoya4b.jpg)
 
 **鉄板とんかつ**  
 熱辣辣鐵板鋪滿椰菜絲  
@@ -49,11 +49,11 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 有豬肉在中算不算是**豚汁**？  
 冰涼的綠茶的很好，日本就是綠茶，哈哈哈！  
 
-[![](https://c2.staticflickr.com/6/5793/21596465338_751f504410_z.jpg)](https://c2.staticflickr.com/6/5793/21596465338_751f504410_z.jpg)
+![](/images/nagoya4b1.jpg)
 
 其實栄也有分店  
 不過特意到本店感覺上更「豬」就是（哈！）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

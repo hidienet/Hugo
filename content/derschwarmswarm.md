@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 這是一本不能一口氣讀完的小說  
 
-[![](https://farm6.staticflickr.com/5513/11261516433_c5e1e609ec_z.jpg)](https://farm6.staticflickr.com/5513/11261516433_c5e1e609ec_z.jpg)
+![](/images/derschwarmswarm.jpg)
 
 不是情節過於不緊湊  
 只是它有九百多頁很難一次看完  

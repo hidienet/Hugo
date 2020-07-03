@@ -8,13 +8,13 @@ tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名
 
 一來洗散子二來上機要解渴  
 
-[![](https://c1.staticflickr.com/9/8715/27930135510_d4c1102635_z.jpg)](https://c1.staticflickr.com/9/8715/27930135510_d4c1102635_z.jpg)
+![](/images/nagoya8i.jpg)
 
 京都綠茶就係京都綠茶囉  
 香囉，樽裝當然唔及得現泡咁濃  
 不過都OK啦百幾円樽仲想點喎？  
 
-[![](https://c1.staticflickr.com/9/8572/28210810025_3e2a9523f3_z.jpg)](https://c1.staticflickr.com/9/8572/28210810025_3e2a9523f3_z.jpg)
+![](/images/nagoya8i1.jpg)
 
 水囉！好清嘅清水  
 法官大人我無補充喇。  
@@ -23,4 +23,4 @@ tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

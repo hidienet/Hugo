@@ -15,7 +15,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 卻是名古屋的名物一種  
 哈哈哈～   
 
-[![](https://c1.staticflickr.com/1/699/21762485201_6c4a886b01_z.jpg)](https://c1.staticflickr.com/1/699/21762485201_6c4a886b01_z.jpg)
+![](/images/nagoya1a1.jpg)
 
 先來一杯... **冰水**！  
 雖然在機上有飲水  
@@ -23,7 +23,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 而之後更是這杯非常非常重要～  
 就是因為這碗名物：  
 
-[![](https://c1.staticflickr.com/1/592/21727000066_317ea8d7c8_z.jpg)](https://c1.staticflickr.com/1/592/21727000066_317ea8d7c8_z.jpg)
+![](/images/nagoya1a.jpg)
 
 「**台湾ラーメン**」  
 日本的拉麵爽滑彈牙  
@@ -34,13 +34,13 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 面底變成拉麵的樣式  
 可能只是對日本人來說覺得特別吧  
 
-[![](https://c1.staticflickr.com/1/709/21130385734_5fdb701fcd_z.jpg)](https://c1.staticflickr.com/1/709/21130385734_5fdb701fcd_z.jpg)
+![](/images/nagoya1a2.jpg)
 
 反而這碟「**子袋**」－辣豬生腸  
 微酸加辣的爽口味道  
 不過吃不錯吃，但也說不上甚麼特別  
 
-[![](https://c2.staticflickr.com/6/5806/21565243508_ce3f700cb4_z.jpg)](https://c2.staticflickr.com/6/5806/21565243508_ce3f700cb4_z.jpg)
+![](/images/nagoya1a3.jpg)
 
 「**焼豚**」  
 吃拉麵好像不是配叉燒就是厚切豬肉  
@@ -52,7 +52,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 試一下就可以，真的沒有甚麼特別  
 不吃也沒有損失  
 
-[![](https://c1.staticflickr.com/1/666/21741472482_51cf28b963_z.jpg)](https://c1.staticflickr.com/1/666/21741472482_51cf28b963_z.jpg)
+![](/images/nagoya1a4.jpg)
 
 早知去對面吃「**ぼてや**」  
 至少衝著**河村隆一**的牌子進去呀！！！  
@@ -62,4 +62,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

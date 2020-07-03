@@ -14,11 +14,11 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
 也有想過去Aeon mall  
 不過還是去了大大間的アピタ Apita  
 
-[![](https://c1.staticflickr.com/1/753/23073736391_57af181d67_z.jpg)](https://c1.staticflickr.com/1/753/23073736391_57af181d67_z.jpg)
+![](/images/nagoya6d.jpg)
 
 哈哈哈～  
 還是喜歡多食物賣的超級市場（笑）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

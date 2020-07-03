@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 食肉類跟蛋白食到飽的方式   
 
-[![](https://3.bp.blogspot.com/-hNN3CmXpjcw/XCdpRjibMKI/AAAAAAAACsc/SkXIATroMroiIGzOYL0id5Q4QKvnho3cQCLcBGAs/s640/47.jpg)](https://3.bp.blogspot.com/-hNN3CmXpjcw/XCdpRjibMKI/AAAAAAAACsc/SkXIATroMroiIGzOYL0id5Q4QKvnho3cQCLcBGAs/s1600/47.jpg)
+![](/images/thedukandiet.jpg)
 
 「Je ne Sais Pas Maigrir」  
 ﹣Dr. Pierre Dukan   

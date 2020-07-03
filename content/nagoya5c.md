@@ -9,7 +9,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 掃街掃著和菓子！  
 「儀態？甚麼來的？」  
 
-[![](https://c1.staticflickr.com/1/639/22315094001_0159b58764_z.jpg)](https://c1.staticflickr.com/1/639/22315094001_0159b58764_z.jpg)
+![](/images/nagoya5c.jpg)
 
 （左上）綠茶凍もち  
 像雪糕糯米糍，皮層韌韌的裡面夠凍！  
@@ -19,21 +19,21 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
   
 然而這是入秋的季節...  
 
-[![](https://c1.staticflickr.com/1/686/21681789634_ee8edc2839_z.jpg)](https://c1.staticflickr.com/1/686/21681789634_ee8edc2839_z.jpg)
+![](/images/nagoya5c1.jpg)
 
 （右下）紅豆栗子もち  
 皮層滑滑，有了栗子蓉令紅豆蓉不至超甜  
 
-[![](https://c1.staticflickr.com/1/661/22116504800_d81db0690c_z.jpg)](https://c1.staticflickr.com/1/661/22116504800_d81db0690c_z.jpg)
+![](/images/nagoya5c2.jpg)
 
 （左下）栗子茶巾  
 香・濃・滑的栗子栗子呀～  
 
-[![](https://c1.staticflickr.com/1/668/22116806198_cf1b7ce6ae_z.jpg)](https://c1.staticflickr.com/1/668/22116806198_cf1b7ce6ae_z.jpg)
+![](/images/nagoya5c3.jpg)
 
 簡約的包裝，但我也是邊走邊吃  
 （優雅的人士不要學啊！）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

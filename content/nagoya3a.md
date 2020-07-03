@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 來到名古屋第三日  
 終於跟當地人一樣：出街食早餐  
 
-[![](https://c1.staticflickr.com/1/644/21152319034_bdef0628c7_z.jpg)](https://c1.staticflickr.com/1/644/21152319034_bdef0628c7_z.jpg)
+![](/images/nagoya3a.jpg)
 
 這是名古屋的早餐文化  
 不是在家裡食白飯納豆麵豉湯  
@@ -37,11 +37,11 @@ iced latte沙冰，多奶 x 微微咖啡的味道
 麵包的牛油味跟雪糕一起，實在太美妙了（撒花）  
 **必試**就是，我說的！  
 
-[![](https://c2.staticflickr.com/6/5820/21775013515_335e67c638_z.jpg)](https://c2.staticflickr.com/6/5820/21775013515_335e67c638_z.jpg)
+![](/images/nagoya3a1.jpg)
 
 名古屋周街都是這家店（有百幾間！）  
 不需要特意記下啦～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

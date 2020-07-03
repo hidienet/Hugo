@@ -9,12 +9,12 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 魔鬼的化身總是美好  
 邪惡的宵夜總是美味  
 
-[![](https://c1.staticflickr.com/1/613/21752958710_7ee17302e8_z.jpg)](https://c1.staticflickr.com/1/613/21752958710_7ee17302e8_z.jpg)
+![](/images/nagoya4h.jpg)
 
 連續三年的金賞？  
 應該不會死錯人吧！  
 
-[![](https://c2.staticflickr.com/6/5763/21752957260_56a96b130d_z.jpg)](https://c2.staticflickr.com/6/5763/21752957260_56a96b130d_z.jpg)
+![](/images/nagoya4h1.jpg)
 
 看看看！這焦糖雞蛋布甸的色澤多誘人  
 超濃郁的滑滑蛋  
@@ -30,4 +30,4 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

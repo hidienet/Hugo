@@ -9,7 +9,7 @@ tags : [amusement - books]
 如其脂肪分佈位置有問題  
 就把它們推至「歸位」～  
 
-[![](https://4.bp.blogspot.com/-KAzCJD0MPbM/XCdkXeozCiI/AAAAAAAACqo/upxEV3xcz9QUa5KvR6LFB2wsTYtfdnc4gCLcBGAs/s640/33.jpg)](https://4.bp.blogspot.com/-KAzCJD0MPbM/XCdkXeozCiI/AAAAAAAACqo/upxEV3xcz9QUa5KvR6LFB2wsTYtfdnc4gCLcBGAs/s1600/33.jpg)
+![](/images/kanonbook.jpg)
 
 「夜寝る前！なでるだけ☆ダイエット」  
 －蓮水カノン＊  

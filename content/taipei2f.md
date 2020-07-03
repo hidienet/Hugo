@@ -1,5 +1,5 @@
 ---
-title: '[臺北暴食遊] Day2：楊記—花生玉米冰@西門町'
+title: '[臺北暴食遊] Day2：楊記 - 花生玉米冰@西門町'
 date: 2014-04-23T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2_23.html" ]
@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
 
 我吃花生是一粒粒形態那種：不喜歡花生醬；更是討厭花生油！  
 
-[![](https://3.bp.blogspot.com/-Z5p3MA-zFMM/XDGfiX7P73I/AAAAAAAAEgE/XzwBqt4aXksIcBUOLwBRBD1E7jBaSvNOwCLcBGAs/s640/57.jpg)](https://3.bp.blogspot.com/-Z5p3MA-zFMM/XDGfiX7P73I/AAAAAAAAEgE/XzwBqt4aXksIcBUOLwBRBD1E7jBaSvNOwCLcBGAs/s1600/57.jpg)
+![](/images/taipei2f.jpg)
 
 看到這奶白色一pat的花生糊，其實有點抗拒  
 但本著「人一世物一世來到這裡不吃這個就笨」的心態  
@@ -27,4 +27,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

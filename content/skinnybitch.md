@@ -10,7 +10,7 @@ tags : [amusement - books]
 而「婊子」（bitch）嘛，一早已做到 XD  
 yeah～ 3分2，是一個好開始（白痴）  
 
-[![](/images/skinnybitch.jpg)
+![](/images/skinnybitch.jpg)
 
 "skinny bitch" - Rory Freedman, Kim Barnouin  
   

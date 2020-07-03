@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
 
 「掛鴨名賣鵝肉？」  
 
-[![](https://2.bp.blogspot.com/-EXv0pN93zbQ/XDGfAD1HAVI/AAAAAAAAEfs/LXnoBwx62yABqNpgkFKrOpfzwFgURcpvACLcBGAs/s640/54.jpg)](https://2.bp.blogspot.com/-EXv0pN93zbQ/XDGfAD1HAVI/AAAAAAAAEfs/LXnoBwx62yABqNpgkFKrOpfzwFgURcpvACLcBGAs/s1600/54.jpg)
+![](/images/taipei2c.jpg)
 
 清一色的只賣土鵝  
 這樣子平平無奇的鵝肉  
@@ -26,4 +26,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 呀大嬸，你只有22吋腰？（56cm）  
 
-[![](https://1.bp.blogspot.com/-t_stSXjwG1Y/XCiIdDBsKCI/AAAAAAAADNk/tXMC-wpPdFMBY4SloHDq_GteN9XCnsBwACLcBGAs/s640/58.jpg)](https://1.bp.blogspot.com/-t_stSXjwG1Y/XCiIdDBsKCI/AAAAAAAADNk/tXMC-wpPdFMBY4SloHDq_GteN9XCnsBwACLcBGAs/s1600/58.jpg)
+![](/images/shino.jpg)
 
 「腰回しダイエット」  
 － SHINO  

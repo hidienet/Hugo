@@ -8,7 +8,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 
 坐完巴士到機場，除咗check in當然又要搵食啦  
 
-[![](https://c2.staticflickr.com/8/7639/28174904756_de2e8c2acf_z.jpg)](https://c2.staticflickr.com/8/7639/28174904756_de2e8c2acf_z.jpg)
+![](/images/nagoya8d.jpg)
 
 **ぐるぐるウインナー**  
 波板糖形狀嘅脆皮腸  
@@ -17,10 +17,10 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 
 所以肉食呀牛奶呀菜呀都係新鮮直送  
 唔怪得咁好食啦  
 
-[![](https://c1.staticflickr.com/9/8886/27592929344_1586220aab_z.jpg)](https://c1.staticflickr.com/9/8886/27592929344_1586220aab_z.jpg)
+![](/images/nagoya8d1.jpg)
 
 個等食豬牌好鬼cute～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

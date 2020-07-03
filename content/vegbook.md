@@ -9,7 +9,7 @@ tags : [amusement - books]
 雖然吃肉類是件很殘忍的事  
 不過別忘記蔬菜（植物）本身都是有生命的  
 
-[![](https://4.bp.blogspot.com/-LfNxmetzriM/XExxlJ7Lk0I/AAAAAAAAG8o/pwgoJP4svBQ5Q5DgFJvRs8J8yv2gbnvxgCLcBGAs/s640/9736884932_9043ff503d_z.jpg)](https://4.bp.blogspot.com/-LfNxmetzriM/XExxlJ7Lk0I/AAAAAAAAG8o/pwgoJP4svBQ5Q5DgFJvRs8J8yv2gbnvxgCLcBGAs/s1600/9736884932_9043ff503d_z.jpg)
+![](/images/vegbook.jpg)
 
 所以對於吃下的任何東西  
 也需要存有感恩的心  

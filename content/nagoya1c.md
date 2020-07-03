@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名
 
 食完甜的就飲返啖茶  
 
-[![](https://c1.staticflickr.com/1/656/21755815785_4889a66a10_z.jpg)](https://c1.staticflickr.com/1/656/21755815785_4889a66a10_z.jpg)
+![](/images/nagoya1c.jpg)
 
 雖然是大大枝的1L樽裝  
 邊行邊飲一陣就飲清光  
@@ -19,4 +19,4 @@ tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

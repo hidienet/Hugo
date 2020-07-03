@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 潔牙粉跟牙膏一樣是刷牙用  
 只是不同方式跟不同界面而已  
 
-[![](https://1.bp.blogspot.com/-9u391iF3d0c/XDGnRL_H-HI/AAAAAAAAElk/jb5wJRBtmUUo4XPo3IxtRA6NDo_-XIEDgCLcBGAs/s640/5.jpg)](https://1.bp.blogspot.com/-9u391iF3d0c/XDGnRL_H-HI/AAAAAAAAElk/jb5wJRBtmUUo4XPo3IxtRA6NDo_-XIEDgCLcBGAs/s1600/5.jpg)
+![](/images/smiling.jpg)
 
 記得十多年前用過一盒印度牙粉  
 都是覺得味道有點怪怪  

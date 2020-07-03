@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 今日上晝食得兇狠  
 晚餐就清清地食個麵啦  
 
-[![](https://c2.staticflickr.com/8/7303/28114171381_3f0db1dddf_z.jpg)](https://c2.staticflickr.com/8/7303/28114171381_3f0db1dddf_z.jpg)
+![](/images/nagoya7d.jpg)
 
 **冷やし宮きしめん**  
 好熱呀今日梗係食冷麵啦！  
@@ -17,7 +17,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 麵條粗韌有嚼勁，好好咬（心）  
 凍食當然最爽，配埋超脆天ぷら好滿足～  
 
-[![](https://c1.staticflickr.com/9/8683/27576798773_3865e550d6_z.jpg)](https://c1.staticflickr.com/9/8683/27576798773_3865e550d6_z.jpg)
+![](/images/nagoya7d1.jpg)
 
 熱食宮きしめん配天丼聽講都好味  
 不過我飽喇一啖都無試過...  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

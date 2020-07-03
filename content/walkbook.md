@@ -12,7 +12,7 @@ tags : [amusement - books]
 就會發現很多人的步姿都很差  
 然後更看到腿都歪了不美  
 
-[![](https://4.bp.blogspot.com/-bJya4JFOM_w/XCdoYbPC0jI/AAAAAAAACsE/I74XolLI-0U5RHoHHjKx2BC6nRckT3JPQCLcBGAs/s640/44.jpg)](https://4.bp.blogspot.com/-bJya4JFOM_w/XCdoYbPC0jI/AAAAAAAACsE/I74XolLI-0U5RHoHHjKx2BC6nRckT3JPQCLcBGAs/s1600/44.jpg)
+![](/images/walkbook.jpg)
 
 「1日30秒ラクしてやせる! ダイエットウォーキング」  
 － 高岡よしみ  

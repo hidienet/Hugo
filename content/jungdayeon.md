@@ -9,7 +9,7 @@ tags : [amusement - books]
 四十多歲有前有後的火辣身型  
 我說我不想有肯定是騙你的！  
 
-[![](https://4.bp.blogspot.com/-LtndS7vrUU8/XCd3QYw-Y-I/AAAAAAAACt0/kg3wJyuHvYo1vX3GI76X6g-Ea45XPT4eACLcBGAs/s640/57.jpg)](https://4.bp.blogspot.com/-LtndS7vrUU8/XCd3QYw-Y-I/AAAAAAAACt0/kg3wJyuHvYo1vX3GI76X6g-Ea45XPT4eACLcBGAs/s1600/57.jpg)
+![](/images/jungdayeon.jpg)
 
 「モムチャンダイエット」  
 \- jung dayeon  

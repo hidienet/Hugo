@@ -13,7 +13,7 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 ...可惜，不是對我的味兒（淚）  
 
-[![](https://c2.staticflickr.com/6/5810/22477262092_63624a8179_z.jpg)](https://c2.staticflickr.com/6/5810/22477262092_63624a8179_z.jpg)
+![](/images/nagoya5g.jpg)
 
 熱騰騰上枱的砂鍋味噌烏冬  
 配料有蔥有魚板生雞蛋  
@@ -27,12 +27,12 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
 硬得吃不了多少胃就被頂住  
 要棄麵，棄前多喝兩啖湯差點鹹得患急性腎病死掉了  
 
-[![](https://c2.staticflickr.com/6/5641/22490670145_315697bb50_z.jpg)](https://c2.staticflickr.com/6/5641/22490670145_315697bb50_z.jpg)
+![](/images/nagoya5g1.jpg)
 
 雖然任添加的配菜是OK的  
 不過也彌補不到創傷  
 
-[![](https://c1.staticflickr.com/1/748/22490669285_63a01d14bc_z.jpg)](https://c1.staticflickr.com/1/748/22490669285_63a01d14bc_z.jpg)
+![](/images/nagoya5g2.jpg)
 
 幸好，苦盡甘來  
 飛驒牛奶 x 紅茶雪糕  
@@ -45,4 +45,4 @@ tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

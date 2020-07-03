@@ -9,7 +9,7 @@ tags : [amusement - books]
 作者以leek soup湯代兩天所有食物   
 這也算是這blog裡最終極的減肥方法    
 
-[![](https://4.bp.blogspot.com/-vnG66zQ1OwE/XCiJ-mclR-I/AAAAAAAADOQ/V8WOndjrEhAAKQFCFsTtzXk50OlUG7_QgCLcBGAs/s640/63.jpg)](https://4.bp.blogspot.com/-vnG66zQ1OwE/XCiJ-mclR-I/AAAAAAAADOQ/V8WOndjrEhAAKQFCFsTtzXk50OlUG7_QgCLcBGAs/s1600/63.jpg)
+![](/images/frenchwoman.jpg)
 
 “French Women Don't Get Fat”   
 ﹣Mireille Guiliano  

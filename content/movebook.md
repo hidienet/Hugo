@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 這種所謂運動的瘦身法，其實真的比懶更懶  
 
-[![](https://4.bp.blogspot.com/-ybbxyTVa2pA/XCdg03YXDpI/AAAAAAAACog/tL-QaEWBTFgAIw-iNy2Wt1hR-txKIUiwACLcBGAs/s640/16.jpg)](https://4.bp.blogspot.com/-ybbxyTVa2pA/XCdg03YXDpI/AAAAAAAACog/tL-QaEWBTFgAIw-iNy2Wt1hR-txKIUiwACLcBGAs/s1600/16.jpg)
+![](/images/movebook.jpg)
 
 「1分骨盤ダイエット」  
 －大庭史榔  

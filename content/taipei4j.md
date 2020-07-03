@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺北]
 
 樣子好可愛的河粉煎  
 
-[![](https://4.bp.blogspot.com/-OjDm5Z5jdHY/XDGkRwCtANI/AAAAAAAAEjs/vHBvWQ-4W1UdrRs1k-jYPHD-7OPy7D1MgCLcBGAs/s640/88.jpg)](https://4.bp.blogspot.com/-OjDm5Z5jdHY/XDGkRwCtANI/AAAAAAAAEjs/vHBvWQ-4W1UdrRs1k-jYPHD-7OPy7D1MgCLcBGAs/s1600/88.jpg)
+![](/images/taipei4j.jpg)
 
 表面微焦，但不是脆脆的  
 因為實在太滑了  
@@ -21,4 +21,4 @@ tags : [travel - 臺灣・臺北]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺北暴食遊（5D4N）](http://www.hidie.net/2014/05/5d4n.html)
+延伸閱讀：[臺北暴食遊（5D4N）](https://hidie.net/taipei5d4n/)

@@ -13,7 +13,7 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
 （好吧我的時間都是去食的）  
 所以要買就去了定價最便宜的就好了  
 
-[![](https://c1.staticflickr.com/1/601/21751141426_668a9c6f89_z.jpg)](https://c1.staticflickr.com/1/601/21751141426_668a9c6f89_z.jpg)
+![](/images/nagoya3d.jpg)
 
 **千里馬薬局**，一座五層樓高  
 地下至四樓都是買物  
@@ -31,4 +31,4 @@ tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

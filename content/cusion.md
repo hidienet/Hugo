@@ -8,7 +8,7 @@ tags : [amusement - books]
 
 懶到極點的借助外物來瘦之二：骨盤枕！  
 
-[![](https://4.bp.blogspot.com/-ul4YZUlScnI/XCiH3qr79EI/AAAAAAAADNE/7qLhAsqjLxQo4KYlirOxuiM2vjrNcOsZACLcBGAs/s640/54.jpg)](https://4.bp.blogspot.com/-ul4YZUlScnI/XCiH3qr79EI/AAAAAAAADNE/7qLhAsqjLxQo4KYlirOxuiM2vjrNcOsZACLcBGAs/s1600/54.jpg)
+![](/images/cusion.jpg)
 
 「寝るだけ骨盤枕ダイエット」  
 － 福辻鋭記  

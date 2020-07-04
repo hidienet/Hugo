@@ -6,26 +6,48 @@ images: ["/images/kanagawa2g.jpg"]
 tags : [flavor-行膳積腹, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
-
-![](/images/kanagawa2g1.jpg)
-
-しぐれ煮
-
-![](/images/kanagawa2g.jpg)
-
-うなぎ 蒲焼き
-
-![](/images/kanagawa2g2.jpg)
-
-白焼き
-
-![](/images/kanagawa2g3.jpg)
-
-肝焼き
+一般嚟講，去横浜講去「街道」  
+應該先會諗起「横浜中華街」  
+但點解我係會無啦啦嚟咗[横浜橋商店街](https://hidie.net/kanagawa2f/)而唔係中華街呢？  
 
 ![](/images/kanagawa2g4.jpg)
 
-紀州備長炭
+當然係為咗食嘢啦！（呵呵呵）   
+仲要係紀州備長炭燒嘅鰻魚！鰻魚！鰻魚！呢呢呢～
+...廚師夫婦同間鋪以至條商店街都好vintage吖！
 
+![](/images/kanagawa2g1.jpg)
+
+**しぐれ煮**  
+汁煮切碎咗嘅鰻魚  
+濃濃味細細粒送酒送飯都一流  
+不過啱先飲飽食醉就空口食咗先
+
+![](/images/kanagawa2g.jpg)
+
+**うなぎ 蒲焼き**  
+炭燒鰻魚就係炭燒鰻魚  
+魚身厚厚芳香美味嘅炭香令鰻油唔太漏  
+汁係冇咁甜嗰種味  
+哎吔真係食唔到飯呢...
+
+![](/images/kanagawa2g2.jpg)
+
+**白焼き**  
+炭燒鹽燒白鱔  
+食出厚肉魚身最原始嘅味道  
+鰻魚真係一種非常美味嘅食材啊！
+
+![](/images/kanagawa2g3.jpg)
+
+**肝焼き**  
+見到燒鰻魚膶又點會唔嗌返串？  
+（就算已經好很飽）
+新鮮膶連腸一啲苦味都冇  
+膶軟腍腸爽口蒲焼汁夠鹹香
+如果唔係今朝唔係已經飲咗[9杯啤酒](https://hidie.net/kanagawa2e/)就一定會飲番杯囉...  
+
+
+好滿足，又起行搭個地下鉄再繼續玩玩先！
 
 {{<kanagawa>}}

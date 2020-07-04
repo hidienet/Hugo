@@ -205,26 +205,26 @@ premium啤係用聚泡聚香氣嘅杯裝住
 
 唔買屎水屎啡屎茶啦～  
 
-![](https://af1xqq.ch.files.1drv.com/y4m_-fIt91FFoB7sqy6RGVfM3EftMyGz4wCelLfsOHZxoCZIT5WtiC4K_TKbHc8NIC5BtwJTmJ8DI3QtHBCa6NRoi0k-yd3gRXUVakEXYSBAi-B8_nZ_j9bjtsVzm_fsZQWEw9Sq40ZSZU3-ouQtrLKcbZ5RJ-c8HiflRLZ_hNRnTJyxu5D13G_g3KwzF44M6nFL1I7CqI8Uu2u4R0Ib1Krew?width=371&height=660&cropmode=none)
+![](/images/kanagawa2i1.jpg)
 
-行呀行有啲口渴，有人要飲啖「茶」（**宝焼酎のお茶割り**）  
+行呀行有啲口渴，有人要[飲啖「茶」](https://hidie.net/kanagawa2i/) @**宝焼酎のお茶割り**  
 
-![](https://av1sqq.ch.files.1drv.com/y4mlECHtkjFWH0GQeYCV714Q_AH0ErRz9DaN3roJY1eiSHQqBb9IAxU_IO4LsRoSUTiqtS9LdjxmihtYzRI39uXwD4MOzLM3-UUM21IFvkJ3Y6h1wZYB_x8CFzBHJQMyThJakDtymRArp0pgsfLhmFaNGtpnLzT0OPUQIR1jFL_AXWcAHlGjgaRmCXM0Po2p_X8Y6rJQXEYZdLD2lpvgtvOdQ?width=371&height=660&cropmode=none)
+![](/images/kanagawa2i.jpg)
 
 **アサヒ クリアクーラー 沖縄産シークァーサーサワー**  
 呢款asahi clear cooler啱我口味啲，清爽又夠氣（呀～）  
 
-![](https://bf3ezw.ch.files.1drv.com/y4mXHyi9L5qmDIoCgF7IgS5vazLtx-M5bCl5-PkkzhW5rl0lqMHXZtnTtJXWwfxodL0Znj7hVZDH-uHTlpYUqgnVzW6QuKq-2mJTUeLQSh9q-T_shlECzObAW4pi0JvzNq-R0bx1RIG8flpdXY4EW5rgripKZlHqCCMSAGAo6E5RVB5VrSikuoHDPg8TohZ1zFx-i-f41xHsbp_MflFgJ6ERQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa2j1.jpg)
 
 地下鉄again to馬車道  
 
-![](https://qfxqqq.ch.files.1drv.com/y4myCLM6euztRH1I5jDiavc6HYRTWxqixUVFJKVluvBCICKs8eF9J9KvE7JMZi-2J3Bbs49bGOyfqS6POMhrzoB1UywoHOWhVnePNQnkhj1jIa86xuHpr_BIdhyf4BrJo0zI-wyaYlgDkerm0DzmSt8uOJYymQEZ4bM1E3XBORMm-4MXFQxzSKi2SMqhc5j9k4ZdAP8hKdhRqD8t3OP865wag?width=660&height=371&cropmode=none)
+![](/images/kanagawa2j11.jpg)
 
-行去**横浜赤レンガ倉庫**  
+行去[横浜赤レンガ倉庫](https://hidie.net/kanagawa2j/)  
 
-![](https://qfxuqq.ch.files.1drv.com/y4mRgNQ5Tp5wLIEYEPGo2TNydTFaiiltipuXlRlxtxKVQqHH_FtHH_a7trVKqbA29Q654h7LDPo9TS8RCAAIrCZdPwj0rBopIUjQSVjM9ZCbcFklzK959G_BqB_vLIbyMaHJC2PRmxlo52mDgGA1Kp0phs7EyOc5bzwHc9ZBUqf2-p0VYbs1TT4AKXTmMs8iThZh-0W9YE36r-nXBFW-RZEWA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2k.jpg)
 
-先去**崎陽軒**食横浜名物 **シウマイ**  
+先去[崎陽軒](https://hidie.net/kanagawa2k/)食横浜名物 **シウマイ**  
 呢隻口味嘅燒賣係紅磚倉庫限定啊  
 
 ![](https://bf0icg.ch.files.1drv.com/y4mvoD7SPNAAiRFlvZc9K2oO1fi5sI5fXrraiw-EyAvYMxWfNeikpJf7IA9NshxDbgx-iK0pM4a2iU_REqtyW0eeKPlsK6jSGohNcohvOfKYeiO6mVcD68ZxYNK4xdClCn8Zht-kOcGl8XFm8XdkJF0QYtgtEkQk84tFqPuiKe9Qib2pnflIS5waElTAyqADtiN1tcVVUcUTFqQT1lr79R5og?width=660&height=371&cropmode=none)

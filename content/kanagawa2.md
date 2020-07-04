@@ -154,54 +154,54 @@ premium啤係用聚泡聚香氣嘅杯裝住
 食～鰻～魚～ @[うなぎ 八舟](https://hidie.net/kanagawa2g/)  
 煮鰻魚浦燒白燒同肝串燒都好好食（流口水）  
 
-![](https://a12plq.ch.files.1drv.com/y4mqDvuxiqtfsewaElf6t9lpmkK2AqPBWUQNijE2N64Tnk1Db8eAnoi4Oeh8oWzjTI5a_vJyE_QyNqQKKaRHjMGHXdquVx3H2xmfh9A6O_Hlqvjwy1gIZJSGi_nHkFax7tp5QwNUWQcaIzzTq7zAiXJrHlsPde9TzW6ogAiUFX6PD5ouzaM4ihiLftH7hrQXN00t5xRv0NUk1mu17K3NhJ7jw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2h0.jpg)
 
 行過舊式商店街又食咗嘢然後搭地下鉄  
 
-![](https://av1cww.ch.files.1drv.com/y4mlLoE87vojF2wwMCksMxyf1BcdbqjPfAvNUycxSmDxUOjFxvurjpYsBmTlol9Z7riNZoRErkncvxl00RtfYadU4MwcLRPqt2qE7YAafvheNrsFCpkyqw96jUnQJs9nN7ZIDpn5TceQ8fXfvkXES3K0OoHjBeRCsES61gx8ti1FGS-3BnljY6ymXn3egGwwYzTBHPCpOrzl2tOo1Y-0HQZjA?width=371&height=660&cropmode=none)
+![](/images/kanagawa2h1.jpg)
 
-去**アソビル: ASOBUILD**睇屎  
+去[アソビル: ASOBUILD](https://hidie.net/kanagawa2h/)睇屎  
 
-![](https://al07ww.ch.files.1drv.com/y4mgMuDOfs7VO-mFYk4xky8eqMJQ74rRbJe4wCr2jrCAR_6MAwxk05cc82j4fVFOfUsf8pe7YAt9Ld7DMHMOWHZxNxmY3xj8ifY_eJhLmd4Yfa55UTQ__wgSkh0eBDX1pTDf5S8caH8em4AWddhvGiayDW05WMP1h_uMXifH_kRT4B7xJLmWAD1xQ5pMsyQ9OlyfuEF3_7tGdhg3iEl43hJ4Q?width=371&height=660&cropmode=none)
+![](/images/kanagawa2h2.jpg)
 
 屎都好有型！  
-（之前去[小倉TOTO睇廁所](https://www.hidie.net/2018/01/cmon-day5.html)；今朝拜撚；而家玩屎，鑊鑊都咁重口味～）  
+（之前去[小倉TOTO睇廁所](https://hidie.net/kanmon5/)；今朝拜撚；而家玩屎，鑊鑊都咁重口味～）  
 
-![](https://av1dww.ch.files.1drv.com/y4mUm7ihG6RAF0-VgWJ40Lw3eacWn1aHcUgn5pmtgZFzO2TVteExfNI3RycR7IlY7pBtNkoFiFNCODA02Dwmy90pbdc9JkbHFItRWWmH6sb3wVmL3Uhsj-rO_pCu5mjkvrGSyifOyHCBcHCZ6nrPiV23fWTtbdA0VpvKsp1wQNVxC4uSUf-Ov0VpyVjCSv9-7qS_7q0pg5eND-D7Rf9kR0wTQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa2h4.jpg)
 
 有得睇有得玩...  
 
-![](https://al1bww.ch.files.1drv.com/y4mm6Cm33G7D0Z2O6Vwt0rwFCKnIuW47gzs47r_umCaNt5hJk1aNgo9IXK_GyTS4pq2ZhDJoIyqm68cCxSNz78JsibJJbHdfXPs4s4j7KIUi5wb-dj6OmCmLWhYc9zaN4VVQECE3DNj41Mzv-9-apfGRTeW_oMo701L_JA7_KVUJWHgIPq9T4ltaeHOX5FlR-MdJ7ZRm_AMlUcIeSVJffrEgw?width=371&height=660&cropmode=none)
+![](/images/kanagawa2h10.jpg)
 
 仲一嚟就自己「屙」紀念品 XD  
 
-![](https://a13bzw.ch.files.1drv.com/y4mu9XCPYa4xBEttvB76PzVu6Y6hfcGEmw1KJJ4gl2e4zDpP-gKi8YfMnyLiIYsyapUL7wDctsDaC124tFeXyM6X1xBEP3H6rsUPzS6r32ECsqjA_Py8lSnadCzDIN-daF8VjIlXWRrVCAKgkoe1Z6njRGLQq6b-wuT8GG9zgNFZbdPZJtZadcDvMc9tMl0FFqtyAjikvRsEACqykIe9zpmJQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa2h18.jpg)
 
 好屎多影相位  
 大人細路男男女女都啱玩同好興奮  
 
-![](https://a11xqq.ch.files.1drv.com/y4m2Vx3NXIIUGfKodVCa0gDM30RnOZwjrU14BZStaDdBSC4jXRwkNgFoOzito__mWJ5dsvg5ZHP-3Ysbl28G7eiqucbfyYVCh2DG-VA3nCLqubrpkx2Bcj-6Z7WVI5QQlZDmPlMA9TjawMkJOlj0aGOy9LEK9ksdYUCKfaNQnHHnBtZRkGw3QLQnScx7iU5mB8WeK_IgQOyFt9B1seWRi11Lw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2h20.jpg)
 
 大便在我腳下，我要踩多幾吓  
 踩屎都踩得靚過人  
 
-![](https://bf3yzw.ch.files.1drv.com/y4mV1q7F_tkyTOnRVf_mJRmvrkfvbfnzoXtPWqPBmYnChxGG33IxH0VtrbLZ5qp9oFSrDGUphWRKIxozDovgdsJKhqP_i9BtE0mScQrkRdFH87dxF4dKK5WrPbjWazXITtC0n20mBRpblYhu0C5rne_hfGGw1e7nEXwJhgSAwuGLzcbnyq0jN6YpTuc7wryd1gM3nKuq4JD_ex0zh9_Vt2m5g?width=660&height=371&cropmode=none)
+![](/images/kanagawa2h31.jpg)
 
 世屎嘅世史  
 
-![](https://q1xrqq.ch.files.1drv.com/y4mbUlyazfVUmU1eJ6fZYDFvtjg2tg2Pj_1gT6wRfENhGFUjToWsUxxaAJ-GkH8m9vUBdrJeEoiK3jEtPWT-wNworOrwQj8aWjeqOF7zfLvafeXuVR16wi3cvdRN_TECoJnLmgStWpVPv6MpvPwOZ_HcxJZ7GS54t_4tH0ejFQEDWnYGBis19DVsvz_Wb3sX4PEPCFvpkBtZSZyC8keZ-B67g?width=371&height=660&cropmode=none)
+![](/images/kanagawa2h30.jpg)
 
 射屎mini game  
 
-![](https://af1pqq.ch.files.1drv.com/y4mNKwYSXR38MliuvrJqfgSE91pFZr1aYn_GnPWZuYInHKMz4KH-tN2OQqiORrz6F1JAhnhe1u76bxZadafuVP7_EXKjMzqRP85UOW7Ruq_iU5NnjF4Q1yP6UAq8FIM223A7vrVnzeXUmDGih4eUiv4i_I1tN0dcrO0eTOEX3W9aV9LeJcjQGfQ6hWM6j8Leo-mbnnFb2mThw8quWV0OGnIjg?width=660&height=371&cropmode=none)
+![](/images/kanagawa2h40.jpg)
 
 玩夠  
 
-![](https://af1sqq.ch.files.1drv.com/y4mbEduOHIO0YbY_0a9qexiLQLec6O-kfXilNSmOiohErxUocgjaam69u2Tw6oQtQylJCDf-TDqsNzYnZ7fj-EoXNmoavZZ_6hmoByEWhtKGqauin3g-hB7ucJ3AdVQ38bIxD-OQEs-ohf7b6jKpqUeYc7KaEvn_JLmhPG6_vZ0gS-CVkBqAvDu4gytqSLtwTu1nxZiLQrgSy47hr6w60px3g?width=660&height=371&cropmode=none)
+![](/images/kanagawa2h42.jpg)
 
 諗買嘢  
 
-![](https://av1rqq.ch.files.1drv.com/y4mQj2RtceoSON0q00DJzRBIod1gx-LDlyAp61OzKBGf6wtDElGeNS5gFjvR8rwbS5McBqAa0ihtZTnj0bBXehfOhpP3Ih9taLKFFAKaBCYjgD-Ofw2TUcxagsbl_OcVRsGTRuGY8elUgY9p_sfkj70BInrw7Kynr58AAnczs95zz_Go0lLkVZkosipkbit6ukucUZKOlk67I7GyLoHHkAS7Q?width=660&height=371&cropmode=none)
+![](/images/kanagawa2h43.jpg)
 
 唔買屎水屎啡屎茶啦～  
 

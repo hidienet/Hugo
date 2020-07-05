@@ -227,55 +227,55 @@ premium啤係用聚泡聚香氣嘅杯裝住
 先去[崎陽軒](https://hidie.net/kanagawa2k/)食横浜名物 **シウマイ**  
 呢隻口味嘅燒賣係紅磚倉庫限定啊  
 
-![](https://bf0icg.ch.files.1drv.com/y4mvoD7SPNAAiRFlvZc9K2oO1fi5sI5fXrraiw-EyAvYMxWfNeikpJf7IA9NshxDbgx-iK0pM4a2iU_REqtyW0eeKPlsK6jSGohNcohvOfKYeiO6mVcD68ZxYNK4xdClCn8Zht-kOcGl8XFm8XdkJF0QYtgtEkQk84tFqPuiKe9Qib2pnflIS5waElTAyqADtiN1tcVVUcUTFqQT1lr79R5og?width=660&height=371&cropmode=none)
+![](/images/kanagawa2l.jpg)
 
 **リコッタパンケーキ**  
 然後再食有「世界一の朝食」美譽嘅[bills](https://hidie.net/kanagawa2l/)  
 充滿住ricotta cheese香味嘅浮雲pancake，好食到飆屎呀（喂）  
 
-![](https://a10icg.ch.files.1drv.com/y4mRy6mAyB9O-gOFjckysSXR3eW7wqxkG8TYT6MOEZyHPrNpJXheU3vJXZMDUdpi9owvxJiRCWibhFUHwMtII8ntNMdEsdghNdYmZ6GkF2BPFab-MsobHoxhJDbUpUu-ZU7n6Ct4-ShKcnBJx6SXtOfuImP5C3yDem9Ie-0qKlTO9-L4ebNip7NoXOAMWDn_QpyC2GM8ViXaPqHQT3fw1vj-Q?width=371&height=660&cropmode=none)
+![](/images/kanagawa2l2.jpg)
 
 **キリン ハートランド 生 | Kirin Heartland Beer**  
 先嚟杯draft，又係kirin...   
 今日飲左10杯kirin喇哈哈哈～  
 
-![](https://a10lcg.ch.files.1drv.com/y4m8ZLjIXLfOhafpVkE6UbICYx9WYkDUKBpAyg5iczfj_dW_dZ9gHzydRfWW0TkvCqk1BSqELNLAXkQV3CkcnwVXDAuKZIrwCSXjnAxbVKNzdTyVyxxhJNLwfUN8PZXCwJhCvMw7L1Joj3F81chOm83pY09NStP1fq1rMjVFoavR7SeMw5UhISmX8vXse3HZ7xIE3VYZOanY2U1qe67yFjWzA?width=371&height=660&cropmode=none)
+![](/images/kanagawa2l3.jpg)
 
 除咗draft仲有craft！  
 **ウィークエンド ジャーニー ホワイトエール**  
 weekend梗係要飲**WEEKEND JOURNEY**  
 仲要係横浜＆鎌倉発，夠地道  
 
-![](https://bl3dzw.ch.files.1drv.com/y4mF78_kkzY_M6FZEwvPZZ5DfnMv8AlehAmyEqiEaotJHaZdOQaBOs3tO2m3QQ3bV3PmSsJY6iWRmu7DOCJcPPov6eqJ2c3fknJx7UBRPiUeGQX43Luce0nP87aOTZAkug3sNRpivlvzfEk4SYDWEHTwpQy6JuuRBUB04SKDgjtt-ZCMXC65caRHfd8jyp7Up1EfO4JMHP1joWnRrW64j2rXw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2m.jpg)
 
 慢慢嘆完再行吓裡面嘅舖頭們  
 哎吔吔又話咁快入黑喇  
 
-![](https://bl0gcg.ch.files.1drv.com/y4mcY0wLeH79V-H-eXmOGaKgjedKzpABPGNY4oNTrI9t2X5nfPplBFh8MfGRG2V3QJa6RnXuJA5m3-bGlXuA3wkphU0VnDt4vOjct0yTxVK2FW0gMWm_FB5mcuTeQtyRxSVkLbcKhh4rn3p1JJarMFNjEtswGEzqrfSG0O1rEXpDQV34VYk3y1dBHbQTOt1y2BRchJuFGlPEUK3ITBZVDvX-A?width=660&height=371&cropmode=none)
+![](/images/kanagawa2m10.jpg)
 
-穿過**Marine & Walk Yokohama**  
+穿過[Marine & Walk Yokohama](https://hidie.net/kanagawa2m/)  
 
-![](https://bl0jcg.ch.files.1drv.com/y4m4cpGh9dCIdEQNdiW1VdluMS-oW5c7yRQ1wDVFtMiLzMromcTfcli10G51MsiET2Fu8YLMnGgEaN5woh14nI19zpQU-u48fWFQngO40-6AltmerOuqvHe1C-qvTHJk9bXJjp0A9CCXQBkYcXbilYeDT-duZhRMkm9mUti3lq2-PuCJHM-5Ji1IpEzCPmEnVuioSOoJczMoqXODZbWnaF6tA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2n1.jpg)
 
-**橫濱 COSMOWORLD | よこはまコスモワールド**  
+[橫濱 COSMOWORLD | よこはまコスモワールド](https://hidie.net/kanagawa2n/)  
 
-![](https://q1wfcg.ch.files.1drv.com/y4m30wuQS7t_hlqTvVX3Nzeh0zT6HzPa-XHfSpnln0CwPsCjlI9MxIwIUg3PuIBYmxvOgv9xNjRQKn29-Jss5nexXT7RDWeON94nQT4zxm192RVJPD1nO5xgsIrxldJi4NLmKFEdIaQirPCnasmnZWqjG7pX9rfzI4KcmstjbUH-KqHr_LZoHjzFejIQBQUy3gEOsV4n4Iu_jbYc3SLDfbUhw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2n2.jpg)
 
 嚟**ワンダーアミューズ・ゾーン**轉圈轉圈哈姆伴你  
 
-![](https://q1wicg.ch.files.1drv.com/y4mJEuuwkOpY8qCksW02zU0JJ34q71vz2aqUAnXWVQDqeJRLTo3pmP9by1kgAUR8Z11v6zAwRPN1gRmvSXtdcT61_Dgs7WoqEpPp2CyWIpLWF-9CzCaexxMOFUWEeya3Mr3KvGgkXRmjLtKaKCrXshH5LHKZGgrasvpdF4F_fEiUDOfIJznJh4yXtcIxf4mFgpzFm9MahkLcUG15yDDnwCGlw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2n6.jpg)
 
 全日本第一個响屋頂嘅旋轉過山車  
 高25米，左轉右轉兜兜彎揈揈吓再俯衝  
 都幾好玩只係太快玩完啫  
 
-![](https://q1wlcg.ch.files.1drv.com/y4mVnzFDhaGLDtDphy5bB_98ZE1OaLCSml36P3hVktn6QbMN3W7GGdnc_GBqv5VP4dSU7HsGy3sTJ1uTPbHyfIvdvYi2NqnlgjFZcrihmvaS6qIgOuhjDtxvHW2yUxNMiAt2Xw7i25vzGM83EUG_QKQlGKo05AY0pIsOpo5ebrdqvxUt84FNhZceT9y8zNSEhGHw1DmbC1Zgh8YsrJ5SYqipg?width=371&height=660&cropmode=none)
+![](/images/kanagawa2n8.jpg)
 
 玩完就去食嘢喇  
 
-![](https://p1zwzw.ch.files.1drv.com/y4mV8XPb9D1rQhikNl2aopNW6bmIO18RQ17CAteHAzDtOSChEHY34X8Wb9lXXgUy7VOfC7yTcsSo3oPjpLshPxclWZ8qe4oqUf9hWsuaabm6PZEzGZymqlHKyvcB9teDel-_QyYSEaTPq31XiqWrhfvjGUA0vIYi0wN4w5q0z2A0oQDxbsPnJP_Ed2qNbqydWyQaaSUui7f7zJQzQFraWiB7A?width=371&height=660&cropmode=none)
+![](/images/kanagawa2o1.jpg)
 
-**野毛小路**覓食去～  
+[野毛小路](https://hidie.net/kanagawa2o/)覓食去～  
 
 ![](https://af0kcg.ch.files.1drv.com/y4mW0KboTUB18le1x8GNZdTTQZhBJZZhU8V8Q9pbE08uOn8pFSi2mCSS_4FzTJ0jpOlr2TotG_C5x0dDM7R6UeEXAmyUTWbq2WNMHvMPOpSW5p9Ore1uresdiSvgUQN-QIwALEUinShOumbrPeJ48mtIpDd--8DF8hp_p5hz3pocjpU71dk1A9tiQTrHzqQ_uDc2r1F1-oumZzisw50jyWPdA?width=660&height=371&cropmode=none)
 
@@ -284,7 +284,7 @@ weekend梗係要飲**WEEKEND JOURNEY**
 
 ![](https://af0mcg.ch.files.1drv.com/y4mfuTnxaXhO0JszGDsHilxsHiFFv3i_1-K87_MGUFTCd1Btcg2q9WC6aubv4Z5VQAEt4YrE6vUl7I1vwAiCjYSQiwLf1zNse0qIu_WiDvwjH9D72CjSQzaGhizeEBdoyZG1OmXGskoKWSATjJ5NshbJ598Wx9ST-kNsWUY5NEFy8ZU6I4kPukjsTnEn-x8dMQW57shvpvwvpkaVcXbKUKoBA?width=660&height=371&cropmode=none)
 
-@**野毛居酒屋 ヤマヤ鮮魚店**  
+@[野毛居酒屋 ヤマヤ鮮魚店](https://hidie.net/kanagawa2p/)  
 
 ![](https://av0icg.ch.files.1drv.com/y4m_5vjX1iMKvYTeht9pnD2LhwEQGfEQ56ulrf0e4NWMUdizSiONhmg6ummi1oPaecacCO_Dz32LD1IbirhNbkWcEkeKMxSTAuaVsuV58IdYowT0StRTyN4jvEOYPwVEXzEhdtf_GMlgLEqmiTSn7DUaigoZ1EsXziCx9kAJsx3x8d9I-kQm1oS3XqTKr1mt7Ig7cP65wC1qyO4uj9nvZ3bkA?width=660&height=371&cropmode=none)
 

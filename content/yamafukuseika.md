@@ -8,16 +8,18 @@ tags : [flavor - 螞蟻族]
 
 鹿児島、黒豚、さつま芋...
 
-[![](https://c1.staticflickr.com/5/4277/35516036401_4b995dcc77_z.jpg)](https://c1.staticflickr.com/5/4277/35516036401_4b995dcc77_z.jpg)
+![](/images/yamafukuseika.jpg)
 
-左邊黃番薯右邊紫番薯（紅芋）
-
-黃軟甜；紫實香
-
-食落成口番薯味連after taste都係咁薯
-
+左邊黃番薯右邊紫番薯（紅芋）  
+黃軟甜；紫實香  
+食落成口番薯味連after taste都係咁薯  
 個樣仲要得得意意咁
 
   
 
 唔錯唔錯！呢款值得推薦（拇指）
+
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

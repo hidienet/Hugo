@@ -10,7 +10,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - 日本（九州西海道�
 所以要飲綠茶去冷靜  
 再食返啲甜嘢去cheer up吓先得  
 
-[![](https://c1.staticflickr.com/5/4228/34386343024_acc30b5526_z.jpg)](https://c1.staticflickr.com/5/4228/34386343024_acc30b5526_z.jpg)
+![](/images/kojkmi8e.jpg)
 
 **アイスのせ ぜんざい（緑茶付）**  
 雲尼拿雪糕配甜死無命賠嘅紅豆蓉  
@@ -29,7 +29,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - 日本（九州西海道�
 可惜同時又會令個甜味更甜  
 係呀，個甜味又係源自於嗰碗紅豆（無限輪迴）  
 
-[![](https://c1.staticflickr.com/5/4268/34386343594_b82c12dcae_z.jpg)](https://c1.staticflickr.com/5/4268/34386343594_b82c12dcae_z.jpg)
+![](/images/kojkmi8e1.jpg)
 
 **ぜんざい（緑茶付）**  
 有凍嘅雪糕set  
@@ -45,16 +45,16 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - 日本（九州西海道�
 佢OK好食嘅，中規中矩嗰隻  
 無咩特別咁樣  
 
-[![](https://c1.staticflickr.com/5/4241/35100361221_af0409f1d3_z.jpg)](https://c1.staticflickr.com/5/4241/35100361221_af0409f1d3_z.jpg)
+![](/images/kojkmi8e2.jpg)
 
 除咗就咁堂食  
 仲可以揀吓茶返屋企慢慢泡  
 
-[![](https://c1.staticflickr.com/5/4232/35100361901_151bc6f197_z.jpg)](https://c1.staticflickr.com/5/4232/35100361901_151bc6f197_z.jpg)
+![](/images/kojkmi8e3.jpg)
 
 慢慢聞，揀啱先買～  
 
-[![](https://c1.staticflickr.com/5/4264/35064417652_7af4eaa3e6_z.jpg)](https://c1.staticflickr.com/5/4264/35064417652_7af4eaa3e6_z.jpg)
+![](/images/kojkmi8e4.jpg)
 
 間舖座落响住宅區  
 個設計又簡約  
@@ -75,7 +75,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - 日本（九州西海道�
   
   
 
-[![](https://c1.staticflickr.com/5/4284/34386342334_8956fb9da5_z.jpg)](https://c1.staticflickr.com/5/4284/34386342334_8956fb9da5_z.jpg)
+![](/images/kojkmi8e5.jpg)
 
 **一番街商店街**  
 食完甜嘢要消化吓啲糖分  
@@ -88,4 +88,4 @@ tags : [flavor - 飲！, flavor - 螞蟻族, travel - 日本（九州西海道�
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

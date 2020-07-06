@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 好大嘅一個袋，可以放好很多污糟衫  
 
-[![](https://2.bp.blogspot.com/-OweV0EeZXnY/XChxtFwhRuI/AAAAAAAAC_E/bt81xKfJ-O8MAGFbAerL_XlY7rfY4GodwCLcBGAs/s640/14.jpg)](https://2.bp.blogspot.com/-OweV0EeZXnY/XChxtFwhRuI/AAAAAAAAC_E/bt81xKfJ-O8MAGFbAerL_XlY7rfY4GodwCLcBGAs/s1600/14.jpg)
+![](/images/minnanotabo140106.jpg)
 
 上面一大個口（不是大口仔的口）  
 下面的是拉鍊可以把東西一次拿出  

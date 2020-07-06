@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 沒有看錯，我沒有將門簾置放門框而是櫃子上  
 
-[![](https://1.bp.blogspot.com/-4W6eFmwuP_Q/XCRUAGfNtEI/AAAAAAAACDQ/0y-gGs0MfYAKVT7n6xz2VHkU_FmvN0TmQCLcBGAs/s640/6.jpg)](https://1.bp.blogspot.com/-4W6eFmwuP_Q/XCRUAGfNtEI/AAAAAAAACDQ/0y-gGs0MfYAKVT7n6xz2VHkU_FmvN0TmQCLcBGAs/s1600/6.jpg)
+![](/images/minnanotabo131024.jpg)
 
 因為 (1) 尺寸剛好；  
 (2) 免得櫃內東西封塵；  

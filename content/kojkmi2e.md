@@ -8,21 +8,21 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 
 食飽飯仔就沿住條橘通り行到去大淀川  
 
-[![](https://c1.staticflickr.com/1/426/31374848913_6850e672fe_z.jpg)](https://c1.staticflickr.com/1/426/31374848913_6850e672fe_z.jpg)
+![](/images/kojkmi2e.jpg)
 
 好寫意係咪？至少我咁覺得...  
 條河好～ 闊～，感覺上闊過條維多利亞溪港  
 
-[![](https://c1.staticflickr.com/1/686/32067169511_b04bcda7e3_z.jpg)](https://c1.staticflickr.com/1/686/32067169511_b04bcda7e3_z.jpg)
+![](/images/kojkmi2e1.jpg)
 
 除咗行吓消化吓  
-特登嚟，係有「任務」在身！  
+特登嚟，係有「[任務](https://hidie.net/kojkmi3c/)」在身！  
 
-[![](https://c1.staticflickr.com/1/317/32067152871_19ee51dace_z.jpg)](https://c1.staticflickr.com/1/317/32067152871_19ee51dace_z.jpg)
+![](/images/kojkmi2e2.jpg)
 
 其實唔係好夜㗎咋  
 不過係日落早D啫～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

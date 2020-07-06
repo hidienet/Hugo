@@ -9,12 +9,12 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 食飽飯，抖陣之後當然係去浸溫泉啦  
 浸完舒舒服服，然後飲返之嘢先...  
 
-[![](https://c1.staticflickr.com/1/736/31211471674_7608cbb659_z.jpg)](https://c1.staticflickr.com/1/736/31211471674_7608cbb659_z.jpg)
+![](/images/kojkmi1d.jpg)
 
 牛乳、ブルガリアヨーグルト、コーヒー  
-明治牛乳嘛，應該同[之前飲](http://www.hidie.net/2013/11/day5mse.html)嘅無分別啩...  
+明治牛乳嘛，應該同[之前飲](https://hidie.net/tokyo5a/)嘅無分別啩...  
 明治ブルガリアのむヨーグルト（meiji Bulgaria drink yogurt）  
-都應該同[之前嘅](http://www.hidie.net/2013/11/day4.html)唔大分別嘛？  
+都應該同[之前嘅](https://hidie.net/tokyo4a/)唔大分別嘛？  
 最多咪稀D囉... 或者...  
 咁咪試吓未試過嘅明治コーヒー囉  
 吖～ 甜甜地嘅iced latte  
@@ -26,4 +26,4 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

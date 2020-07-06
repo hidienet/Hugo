@@ -8,14 +8,12 @@ tags : [collections - みんなのたあ坊]
 
 可放入微波爐的食物盒  
 
-[![](https://1.bp.blogspot.com/-uHf1fMInvlg/XC4OngXWT_I/AAAAAAAAD5c/Hhb5CJnIMdAQuSNcKtLa52BqjtRTZ8DEgCLcBGAs/s640/89.jpg)](https://1.bp.blogspot.com/-uHf1fMInvlg/XC4OngXWT_I/AAAAAAAAD5c/Hhb5CJnIMdAQuSNcKtLa52BqjtRTZ8DEgCLcBGAs/s1600/89.jpg)
+![](/images/minnanotabo140214.jpg)
 
-05‘日版，情人節系列
+05‘日版，情人節系列  
+硬膠盒裡面還有兩個小分隔  
+心形的盒子好漂亮  
 
-硬膠盒裡面還有兩個小分隔
 
-心形的盒子好漂亮
-
-但盒子較細，不能用來戴午餐
-
+但盒子較細，不能用來戴午餐  
 只能放零食而已～

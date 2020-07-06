@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 熱死辣辣，最好都係食雪糕！  
 
-[![](https://c1.staticflickr.com/5/4255/34388988804_cc3cdcc59b_z.jpg)](https://c1.staticflickr.com/5/4255/34388988804_cc3cdcc59b_z.jpg)
+![](/images/tenrensoft.jpg)
 
 個茶base夠濃郁  
 雪糕唔太甜又OK滑  
@@ -20,4 +20,4 @@ tags : [flavor - 螞蟻族]
   
 \-----------------------------------------------  
   
-延伸閱讀：[\[臺北暴食遊\] Day3：天仁茗茶 珍珠奶茶](https://www.hidie.net/2014/04/day3_5990.html)
+延伸閱讀：[\[臺北暴食遊\] Day3：天仁茗茶 珍珠奶茶](https://hidie.net/taipei3h/)

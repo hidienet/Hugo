@@ -8,14 +8,14 @@ tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩
 
 一次過 (差唔多)就試晒鹿児島嘅郷土料理  
 
-[![](https://c1.staticflickr.com/3/2699/32744064052_81ef66d68b_z.jpg)](https://c1.staticflickr.com/3/2699/32744064052_81ef66d68b_z.jpg)
+![](/images/kojkmi5b1.jpg)
 
 show一show酒店拎嘅地圖  
 就有杯free drink，好抵！  
 左邊有酒精 (sour)嘅右邊係juice  
 唔錯啊～  
 
-[![](https://c1.staticflickr.com/3/2255/32054982654_58eafc0a92_z.jpg)](https://c1.staticflickr.com/3/2255/32054982654_58eafc0a92_z.jpg)
+![](/images/kojkmi5b2.jpg)
 
 **きびなごの刺身、さつま揚げ、小鉢**  
   
@@ -34,7 +34,7 @@ show一show酒店拎嘅地圖
 再配埋自家調配嘅酸醋みそ（橙色嗰兜）  
 真係就咁為呢個組合就飛嚟鹿児島都值得呀！！！  
 
-[![](https://c2.staticflickr.com/4/3816/32897413205_9350dd11f1_z.jpg)](https://c2.staticflickr.com/4/3816/32897413205_9350dd11f1_z.jpg)
+![](/images/kojkmi5b3.jpg)
 
 **黒豚のとんこつ**  
 貴為鹿児島之寶嘅黒豚  
@@ -46,7 +46,7 @@ show一show酒店拎嘅地圖
 但都唔夠件蒟蒻  
 韌啦香啦彈彈吓啦好過癮  
 
-[![](https://c1.staticflickr.com/3/2203/32517295560_d8a9b0fd2a_z.jpg)](https://c1.staticflickr.com/3/2203/32517295560_d8a9b0fd2a_z.jpg)
+![](/images/kojkmi5b.jpg)
 
 **季節御飯と酒ずしの2種盛**  
 實不相瞞，我完全係為咗呢兜**酒ずし**嚟呢度㗎  
@@ -58,7 +58,7 @@ show一show酒店拎嘅地圖
 唔係求求其其俾少少料理酒嗰種  
 簡直好食到喊出嚟（醉咗？）  
 
-[![](https://c1.staticflickr.com/1/402/32897427055_3d5ed1449f_z.jpg)](https://c1.staticflickr.com/1/402/32897427055_3d5ed1449f_z.jpg)
+![](/images/kojkmi5b4.jpg)
 
 **さつま汁、香の物**  
 用當地雞骨熬成嘅薩摩式みそ  
@@ -67,7 +67,7 @@ show一show酒店拎嘅地圖
 後面兜香の物碎濕濕鹹鹹爽爽好送飯  
 一條條浅漬け爽口又唔算太鹹，都好OK呀  
 
-[![](https://c1.staticflickr.com/1/480/32054973294_4fab2bf83e_z.jpg)](https://c1.staticflickr.com/1/480/32054973294_4fab2bf83e_z.jpg)
+![](/images/kojkmi5b5.jpg)
 
 最後當然有**デザート**啦  
 芋ようかん，估佢唔到嘅唔太甜  
@@ -76,4 +76,4 @@ show一show酒店拎嘅地圖
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

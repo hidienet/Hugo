@@ -7,7 +7,7 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 ---
 
 講吓今日响市內周圍去嘅觀光巴士先  
-用[welcome cute](http://www.hidie.net/2017/03/happy-days-day-6welcome-cute-2.html)就可以免費坐到  
+用[welcome cute](https://hidie.net/kojkmi6b/)就可以免費坐到  
 基本上咩所謂旅人必去隱世紫薯芝士拉絲排隊店嘅景點都去到  
   
 線，有三條：  
@@ -17,15 +17,15 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
   
 日頭行陸路同『水』路嘅車係唔同樣：  
 
-[![](https://c1.staticflickr.com/5/4243/34602183930_a93d1a8960_z.jpg)](https://c1.staticflickr.com/5/4243/34602183930_a93d1a8960_z.jpg)
+![](/images/kojkmi7f.jpg)
 
 陸路嘅「城山・磯コース」**レトロな路面電車風バス**有**紅黃綠**色；  
 
-[![](https://c1.staticflickr.com/5/4203/34179442323_8c38333ea8_z.jpg)](https://c1.staticflickr.com/5/4203/34179442323_8c38333ea8_z.jpg)
+![](/images/kojkmi7f1.jpg)
 
 或者**藍白**色呢兩種好似火柴盒嘅樣嘅車  
 
-[![](https://c1.staticflickr.com/5/4221/34857818281_4b42a6dc0d_z.jpg)](https://c1.staticflickr.com/5/4221/34857818281_4b42a6dc0d_z.jpg)
+![](/images/kojkmi7f2.jpg)
 
 沿海嘅「ウォーターフロントコース」就海豚咁樣樣  
 （**海とイルカをモチーフに青空を基調としたバス**）  
@@ -39,34 +39,34 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 鹿児島中央駅　≫　維新ふるさと館前　≫  天文館  ≫　ドルフィンポート　≫　かごしま水族館前(桜島桟橋)　≫　石橋記念公園前　≫　仙巌園(磯庭園)前　≫　祇園之洲公園前　≫　南洲公園入口　≫　西郷南洲顕彰館前　≫　薩摩義士碑前　≫　西郷銅像前　≫　天文館　≫　鹿児島中央駅  
   
 
-[![](https://c1.staticflickr.com/5/4270/34179443983_a5932ae7ef_z.jpg)](https://c1.staticflickr.com/5/4270/34179443983_a5932ae7ef_z.jpg)
+![](/images/kojkmi7f3.jpg)
 
 差唔多落車嗰陣都天黑喇  
 但係唔代表就咁完呢個旅程喎  
 
-[![](https://c1.staticflickr.com/5/4250/34826447092_36be04594a_z.jpg)](https://c1.staticflickr.com/5/4250/34826447092_36be04594a_z.jpg)
+![](/images/kojkmi7f4.jpg)
 
 因為响鹿児島中央駅落完車  
 就即刻晌同一個車站上第一班「**夜景コース**」  
 其實我主要去嘅地方只有一個地方：  
 鹿児島中央駅　≫　天文館　≫　ドルフィンポート　≫　市役所前　≫　城山（15分間停車）　≫　城山　≫　西郷銅像前　≫　天文館　≫　鹿児島中央駅  
 
-[![](https://c1.staticflickr.com/5/4249/34147118904_ce2756e0db_z.jpg)](https://c1.staticflickr.com/5/4249/34147118904_ce2756e0db_z.jpg)
+![](/images/kojkmi7f5.jpg)
 
 呢程車同日頭嘅車最最最大嘅分別係  
 有位導遊姨姨响車度講解（全日文）  
 
-[![](https://c1.staticflickr.com/5/4201/34857819721_e7616ca8e5_z.jpg)](https://c1.staticflickr.com/5/4201/34857819721_e7616ca8e5_z.jpg)
+![](/images/kojkmi7f6.jpg)
 
 夜晚course嘅車係三種其中一種冇特定  
 所以只係咁啱又坐海豚車  
 
-[![](https://c1.staticflickr.com/5/4243/34179439713_ac0aa8ea05_z.jpg)](https://c1.staticflickr.com/5/4243/34179439713_ac0aa8ea05_z.jpg)
+![](/images/kojkmi7f7.jpg)
 
 仲有！成日都見到呢架篤姬 x 西鄉隆盛巴士  
 （上面呢架係まち巡りバス - せごどん号）  
 
-[![](https://c1.staticflickr.com/5/4197/34989982985_03b395aca9_z.jpg)](https://c1.staticflickr.com/5/4197/34989982985_03b395aca9_z.jpg)
+![](/images/kojkmi7f8.jpg)
 
 （呢架呢就叫まち巡りバス - あっちゃん号）  
 都係旅遊車不過welcome cute唔包囉係**另外畀錢**嘅  
@@ -80,4 +80,4 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

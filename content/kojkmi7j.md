@@ -8,13 +8,13 @@ tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩
 
 等等等食咗十世，終於有得食喇～（好滾動）  
 
-[![](https://c1.staticflickr.com/5/4257/35003113621_8736ed283f_z.jpg)](https://c1.staticflickr.com/5/4257/35003113621_8736ed283f_z.jpg)
+![](/images/kojkmi7j.jpg)
 
 **鶏飯丼**  
 奄美島嘅鶏飯  
 話說呢個島近係沖縄  
 之前話去屋久島已經已經好L遠  
-時間同去[宮崎](https://www.hidie.net/2017/01/happy-days-day-3_25.html)差唔多  
+時間同去[宮崎](https://hidie.net/kojkmi3c/)差唔多  
 奄美島仲要再再再南啲囉（翻白眼）  
 好啦呢間有正宗嘅奄美鶏飯  
 唔駛坐船去就有得食都幾好吖  
@@ -34,7 +34,7 @@ but but but其實點講佢都只係一碗好出色嘅湯飯
   
 ～鶏飯，完～  
 
-[![](https://c1.staticflickr.com/5/4217/34323856953_14f6783ddf_z.jpg)](https://c1.staticflickr.com/5/4217/34323856953_14f6783ddf_z.jpg)
+![](/images/kojkmi7j1.jpg)
 
 **おでん**  
 呢個反而特別啲喎  
@@ -47,7 +47,7 @@ but but but其實點講佢都只係一碗好出色嘅湯飯
 見到其他人人都嗌  
 可惜已經叫太多嘢所以冇再點lu  
 
-[![](https://c1.staticflickr.com/5/4208/34289195714_f890bb3a38_z.jpg)](https://c1.staticflickr.com/5/4208/34289195714_f890bb3a38_z.jpg)
+![](/images/kojkmi7j2.jpg)
 
 **西郷庵 本格芋焼酎**  
 睇同影都唔清唔楚嘅西郷隆盛  
@@ -63,4 +63,4 @@ but but but其實點講佢都只係一碗好出色嘅湯飯
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

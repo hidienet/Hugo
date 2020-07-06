@@ -3,13 +3,13 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：仙巌園 御殿'
 date: 2017-05-08T10:00:00.000+08:00
 draft: false
 aliases: [ "/2017/05/happy-days-day-7_8.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 螞蟻族, flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
 ---
 
 呢張「入場卷」係加多少少銀両嘅「御殿共通券」  
 因為咁先可以入到御殿呀  
 
-[![](https://c1.staticflickr.com/5/4163/33721945103_8b8fe46951_z.jpg)](https://c1.staticflickr.com/5/4163/33721945103_8b8fe46951_z.jpg)
+![](/images/kojkmi7d14.jpg)
 
 呢個殿係明治時代第29代島津忠義住過嘅  
 雖然間嘢只係剩返三分一但係都唔算細  
@@ -34,46 +34,46 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 上面都講過 ① ～ ⑨ 嘅裡面無得影  
 而 ⑨ 呢無得影入面但影得出面  
 
-[![](https://c1.staticflickr.com/5/4156/34402472811_6ac7855e7b_z.jpg)](https://c1.staticflickr.com/5/4156/34402472811_6ac7855e7b_z.jpg)
+![](/images/kojkmi7d14a.jpg)
 
 可以見到桜島  
 
-[![](https://c1.staticflickr.com/5/4180/33689762944_f6b90aaccc_z.jpg)](https://c1.staticflickr.com/5/4180/33689762944_f6b90aaccc_z.jpg)
+![](/images/kojkmi7d14b.jpg)
 
 加上仙巌園嘅景色  
 
-[![](https://c1.staticflickr.com/5/4169/34402481461_33af3937fa_z.jpg)](https://c1.staticflickr.com/5/4169/34402481461_33af3937fa_z.jpg)
+![](/images/kojkmi7d14c.jpg)
 
 ⑩ 號仔中庭，其中一面就睇到千尋巌  
 
-[![](https://c1.staticflickr.com/5/4163/33689768664_bf3d688d1d_z.jpg)](https://c1.staticflickr.com/5/4163/33689768664_bf3d688d1d_z.jpg)
+![](/images/kojkmi7d14d.jpg)
 
 篤信中國風水嘅忠義  
 係會响池底挖個八角形池仔嘅  
 
-[![](https://c1.staticflickr.com/5/4156/34402459891_3b041f41fa_z.jpg)](https://c1.staticflickr.com/5/4156/34402459891_3b041f41fa_z.jpg)
+![](/images/kojkmi7d14e.jpg)
 
 最後到 ⑪ 茶室  
 
-[![](https://c1.staticflickr.com/5/4173/34146959270_b648fa18bc_z.jpg)](https://c1.staticflickr.com/5/4173/34146959270_b648fa18bc_z.jpg)
+![](/images/kojkmi7d14f.jpg)
 
 横樑上有武器！  
 
-[![](https://c1.staticflickr.com/5/4174/33689753234_9daca77965_z.jpg)](https://c1.staticflickr.com/5/4174/33689753234_9daca77965_z.jpg)
+![](/images/kojkmi7d14g.jpg)
 
 食茶菓子時間，呢舊嘢叫飛龍頭（ひりゅうず ）  
 面頭上壓有丸十の家紋  
 證明係島津家嘅菓子  
 
-[![](https://c1.staticflickr.com/5/4172/34146953130_a7817d6c1c_z.jpg)](https://c1.staticflickr.com/5/4172/34146953130_a7817d6c1c_z.jpg)
+![](/images/kojkmi7d14h.jpg)
 
 白豆 x 橘子類嘅味道，唔算非常甜  
 
-[![](https://c1.staticflickr.com/5/4169/33721940983_f1d4797f6f_z.jpg)](https://c1.staticflickr.com/5/4169/33721940983_f1d4797f6f_z.jpg)
+![](/images/kojkmi7d14i.jpg)
 
 配埋微苦嘅抹茶就啱啱好  
 
-[![](https://c1.staticflickr.com/5/4192/34532548645_1743a6095e_z.jpg)](https://c1.staticflickr.com/5/4192/34532548645_1743a6095e_z.jpg)
+![](/images/kojkmi7d14j.jpg)
 
 幾～ 梳～ 肝～  
   
@@ -82,23 +82,23 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
   
   
 
-[![](https://c1.staticflickr.com/5/4188/34532555635_9109c1db81_z.jpg)](https://c1.staticflickr.com/5/4188/34532555635_9109c1db81_z.jpg)
+![](/images/kojkmi7d14k.jpg)
 
 大花樽，唔sure咁鬼大可以裝咩花  
 
-[![](https://c1.staticflickr.com/5/4170/34402478491_2a22625117_z.jpg)](https://c1.staticflickr.com/5/4170/34402478491_2a22625117_z.jpg)
+![](/images/kojkmi7d14l.jpg)
 
 左邊  
 
-[![](https://c1.staticflickr.com/5/4194/34532560715_6fe1fb0a8a_z.jpg)](https://c1.staticflickr.com/5/4194/34532560715_6fe1fb0a8a_z.jpg)
+![](/images/kojkmi7d14m.jpg)
 
 右邊，呢邊係居間同謁見の間嗰頭  
 
-[![](https://c1.staticflickr.com/5/4167/34492085746_790e4d6af7_z.jpg)](https://c1.staticflickr.com/5/4167/34492085746_790e4d6af7_z.jpg)
+![](/images/kojkmi7d14n.jpg)
 
 出面嘅水池  
 
-[![](https://c1.staticflickr.com/5/4188/34492090006_f556669317_z.jpg)](https://c1.staticflickr.com/5/4188/34492090006_f556669317_z.jpg)
+![](/images/kojkmi7d14o.jpg)
 
 都係有八角形㗎，呢個仲有係突起嘅  
   
@@ -108,4 +108,4 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

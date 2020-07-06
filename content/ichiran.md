@@ -14,7 +14,7 @@ tags : [flavor - 行膳積腹]
 道頓崛嗰間仲要幾時都係排排排隊  
 （轉角仲有間唔駛排啦但啲人就係鐘意排隊...）  
 
-[![](https://c1.staticflickr.com/5/4477/23657646338_6a47db7b8e_z.jpg)](https://c1.staticflickr.com/5/4477/23657646338_6a47db7b8e_z.jpg)
+![](/images/ichiran.jpg)
 
 冇錯！夜一夜當然係去食一蘭  
 元祖一蘭拉麵「**天然とんこつラーメン**」  
@@ -30,7 +30,7 @@ tags : [flavor - 行膳積腹]
 一碗客人專屬拉麵～  
 （唔少得係自閉位but我冇坐過）  
 
-[![](https://c1.staticflickr.com/5/4476/37251516610_133ab27450_z.jpg)](https://c1.staticflickr.com/5/4476/37251516610_133ab27450_z.jpg)
+![](/images/ichiran1.jpg)
 
 呀～ 個**チャーシュー**睇落幾肥但食落唔會好漏  
 滲有又香又濃嘅鮮豬味，唔錯唔錯  

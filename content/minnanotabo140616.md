@@ -10,7 +10,7 @@ tags : [collections - みんなのたあ坊]
 總不能用大大個mug去喝吧  
 （強調再強調鄙人不是酒鬼）  
 
-[![](https://4.bp.blogspot.com/-CuHlM8Ltyas/XEMhpuYgE0I/AAAAAAAAFtw/2Ddju2i8aZIJOFm4IBxWa7vfmx-Ml8JuwCLcBGAs/s640/14350075106_18ec15bd13_z.jpg)](https://4.bp.blogspot.com/-CuHlM8Ltyas/XEMhpuYgE0I/AAAAAAAAFtw/2Ddju2i8aZIJOFm4IBxWa7vfmx-Ml8JuwCLcBGAs/s1600/14350075106_18ec15bd13_z.jpg)
+![](/images/minnanotabo140616.jpg)
 
 可愛的港版09‘出品大口仔小杯子  
 紅黃色的看到已經熱血沸騰  

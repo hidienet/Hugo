@@ -6,10 +6,10 @@ aliases: [ "/2015/11/blog-post_11.html" ]
 tags : [flavor - 小食部]
 ---
 
-試咗機場買嘅平價[海老せんべい](http://www.hidie.net/2015/11/blog-post.html)  
+試咗機場買嘅平價[海老せんべい](https://hidie.net/ebisato/)  
 點少得食返D貴嘢溝吓貨呀  
 
-[![](https://c1.staticflickr.com/9/8709/28591916611_7023a03af1_z.jpg)](https://c1.staticflickr.com/9/8709/28591916611_7023a03af1_z.jpg)
+![](/images/bankaku.jpg)
 
 由江戶時代傳承嘅古早味道  
 材料離唔開蝦呀小麦粉呀でん粉呀糖呀塩同調味料咁樣  
@@ -27,4 +27,4 @@ tags : [flavor - 小食部]
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

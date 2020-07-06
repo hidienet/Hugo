@@ -10,7 +10,7 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 話近唔近話遠又唔算好遠嘅四個車站1.4公里啫  
 天晴有D風沿途有嘢睇吓都幾舒服吖～  
 
-[![](https://c2.staticflickr.com/4/3949/33254251195_b7a55d7077_z.jpg)](https://c2.staticflickr.com/4/3949/33254251195_b7a55d7077_z.jpg)
+![](/images/kojkmi5c1.jpg)
 
 **大久保利通像**，好高呀  
 呢個人响鹿児島出世  
@@ -20,7 +20,7 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 然後再然後... 俾人刺殺咗，完。  
 （好完整嘅故事係咪？哈，真係要知咪自己wiki吓囉）  
 
-[![](https://c1.staticflickr.com/1/736/33254246775_304d54c96f_z.jpg)](https://c1.staticflickr.com/1/736/33254246775_304d54c96f_z.jpg)
+![](/images/kojkmi5c.jpg)
 
 **高見橋（たかみばし）**  
 下面條河好靚呀  
@@ -28,11 +28,11 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 隻紅色好光鮮，真係有D衝動瘋狂跑返次  
 著緊牛津鞋嘅我決定今日唔跑  
 
-[![](https://c1.staticflickr.com/1/640/33254249375_77a83e5c2c_z.jpg)](https://c1.staticflickr.com/1/640/33254249375_77a83e5c2c_z.jpg)
+![](/images/kojkmi5c2.jpg)
 
 係呀，向住個摩天輪前往**Amu Plaza**  
 行完路就繼續行吓... 街～（耶！）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

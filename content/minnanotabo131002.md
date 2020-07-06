@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 從小就喜歡人類，不是貓貓狗狗  
 
-[![](https://2.bp.blogspot.com/-Nii49XJti_g/XCONgUk9VFI/AAAAAAAAB04/UvaGD3J_4PEFfnxEt5bF1dhOjP2BYoBpwCLcBGAs/s640/6.jpg)](https://2.bp.blogspot.com/-Nii49XJti_g/XCONgUk9VFI/AAAAAAAAB04/UvaGD3J_4PEFfnxEt5bF1dhOjP2BYoBpwCLcBGAs/s1600/6.jpg)
+![](/images/minnanotabo131002.jpg)
 
 連卡通公仔的也是大口仔  
 家中堆滿了這個人物的東西用具（這只是一小部分）  

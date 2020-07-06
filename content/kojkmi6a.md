@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 
 哇哇哇！呢杯好嘢呀！！！（極力推薦）  
 
-[![](https://c1.staticflickr.com/1/688/33216528666_0cbbbbf827_z.jpg)](https://c1.staticflickr.com/1/688/33216528666_0cbbbbf827_z.jpg)
+![](/images/kojkmi6a.jpg)
 
 牛奶 x 乳製品 x 三温糖  
 奶味超～～～ 濃～～  
@@ -17,10 +17,10 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 質地仲要好濃郁順滑  
 簡直係飲用乳酪界嘅極品，我話嘅！  
 
-[![](https://c2.staticflickr.com/4/3874/33102064682_a4c8dcc3bb_z.jpg)](https://c2.staticflickr.com/4/3874/33102064682_a4c8dcc3bb_z.jpg)
+![](/images/kojkmi6a1.jpg)
 
 個蓋已經講出我嘅心聲（嘻）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

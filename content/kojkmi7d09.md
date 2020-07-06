@@ -8,43 +8,39 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 
 。。。睇水。。。  
 
-[![](https://c1.staticflickr.com/3/2877/34152051261_9379ecf872_z.jpg)](https://c1.staticflickr.com/3/2877/34152051261_9379ecf872_z.jpg)
+![](/images/kojkmi7d09.jpg)
 
-條人工河彎彎曲曲
-
-就直接叫**曲水の庭**囉
-
-（唔係我亂改，真係叫呢個名㗎）
-
+條人工河彎彎曲曲  
+就直接叫**曲水の庭**囉  
+（唔係我亂改，真係叫呢個名㗎）  
 分埋岔呢～
 
-[![](https://c1.staticflickr.com/5/4175/33440914624_5131d6d6ff_z.jpg)](https://c1.staticflickr.com/5/4175/33440914624_5131d6d6ff_z.jpg)
+![](/images/kojkmi7d09a.jpg)
 
 今次嘅一地黃
 
-[![](https://c1.staticflickr.com/3/2835/33440912584_85788e0152_z.jpg)](https://c1.staticflickr.com/3/2835/33440912584_85788e0152_z.jpg)
+![](/images/kojkmi7d09b.jpg)
 
 係由「亦要花氣力」嘅杏仁（葉）提供
 
-[![](https://c1.staticflickr.com/3/2853/34152049471_a7820893bf_z.jpg)](https://c1.staticflickr.com/3/2853/34152049471_a7820893bf_z.jpg)
+![](/images/kojkmi7d09c.jpg)
 
-唔知係水閘定係D咩
-
+唔知係水閘定係D咩  
 反正宜家唔係水漲就當橋咁過啦
 
-[![](https://c1.staticflickr.com/3/2852/33440921764_73ec82c264_z.jpg)](https://c1.staticflickr.com/3/2852/33440921764_73ec82c264_z.jpg)
+![](/images/kojkmi7d09d.jpg)
 
 影吓上游上路
 
-[![](https://c1.staticflickr.com/5/4186/33440919094_25339f912a_z.jpg)](https://c1.staticflickr.com/5/4186/33440919094_25339f912a_z.jpg)
+![](/images/kojkmi7d09e.jpg)
 
 再影埋條下路
 
-[![](https://c1.staticflickr.com/5/4167/33440916704_6825ae233e_z.jpg)](https://c1.staticflickr.com/5/4167/33440916704_6825ae233e_z.jpg)
+![](/images/kojkmi7d09f.jpg)
 
 仲有條水嘅水尾：水池同最鍾意嘅桜島（嘻）
 
-[![](https://c1.staticflickr.com/3/2876/33441396954_ac70c45d1a_z.jpg)](https://c1.staticflickr.com/3/2876/33441396954_ac70c45d1a_z.jpg)
+![](/images/kojkmi7d09g.jpg)
 
 遠D睇～～～
 
@@ -57,4 +53,4 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

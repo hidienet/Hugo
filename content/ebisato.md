@@ -9,7 +9,7 @@ tags : [flavor - 小食部]
 唔單止「唔駛急有咩手信機場買就得」；  
 而係「你唔宅配嘛，只有機場先有得買喎～」。  
 
-[![](https://c1.staticflickr.com/9/8871/28669686065_a1f60c726a_z.jpg)](https://c1.staticflickr.com/9/8871/28669686065_a1f60c726a_z.jpg)
+![](/images/ebisato.jpg)
 
 名古屋呢個蝦city嘛  
 臨走當然唔可以唔買返包えびせんべい送禮自用啱啱好啦  
@@ -22,9 +22,9 @@ tags : [flavor - 小食部]
 佢夠硬淨又zip得夠實，裝嘢一流  
 （防潮都好Q大包，用得返唔好徒）  
   
-去名古屋機場浸個[風の湯](http://www.hidie.net/2015/11/go-go-nagoya-day8_3.html)  
+去名古屋機場浸個[風の湯](https://hidie.net/nagoya8g/)  
 然後個門口隊出就係佢，買啦買啦買啦～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

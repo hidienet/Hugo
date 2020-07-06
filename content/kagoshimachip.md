@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 鹿児島紫蕃薯嘅蕃薯片  
 
-[![](https://c1.staticflickr.com/5/4205/35640882292_5b247b4447_z.jpg)](https://c1.staticflickr.com/5/4205/35640882292_5b247b4447_z.jpg)
+![](/images/kagoshimachip.jpg)
 
 就係又香又硬又脆帶少少甜咁囉  
   
@@ -18,3 +18,7 @@ tags : [flavor - 小食部]
 紫薯冇黃薯個甜味咁濃郁  
 呢隻薯個鄉土味重身啲  
 清香啲咁，唔錯唔錯
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

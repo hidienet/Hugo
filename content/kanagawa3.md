@@ -9,9 +9,9 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 就算擒晚夜少少瞓  
 今朝都仲係會早起身（旅行嘅魅力）  
 
-![](https://al3vzw.ch.files.1drv.com/y4mraAY5-UTf9xNuW13gcOuyzt0nE7KaW8encl_7RN9Hjn_OiO4MN1x_ChcjtPJeC_CvqJxJff6JRHluj6OEc-YwlTNuP8neRpEmtlRQ8h8C-lpLAk8fWKSXswz1T10CZ6TZwXOva8NvhJYCyubVlML1hWpuZII2rNW1nEYw20wokY3Lkuh46W4WFnnUCNsj3t-_3Hvl8-TO4LsTBhFOnLlXg?width=371&height=660&cropmode=none)
+![](/images/kanagawa3a.jpg)
 
-**ローソン ダブルエスプレッソラテ**  
+[ローソン ダブルエスプレッソラテ](https://hidie.net/kanagawa3a/)  
 見咗籮神呢杯Double Espresso Latte幾日㗎喇  
 次次兜過都話要飲  
 不過鑊鑊都坐餐廳居酒屋  
@@ -20,7 +20,7 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 ![](https://al3azw.ch.files.1drv.com/y4mi9WLySfWY01Hekk0E_f6_XzMz2W-Q41FytC-ICgT5oLAoJTWEZlDRGeqDevAhgvS9FxO_eOkCCc8CB6xf5eUnpmSzCUinCk5E1bhP26U1m0BEQjeKylbqdc5eBnzpvuBNxkxKKmEaZFrSjAN6X_Tlj9h3InEGT4mdg2bcFcB_ZFci4pRm9y3cLultPj2lT6EoBCjzTT08Ajii9wwKSEPZw?width=660&height=371&cropmode=none)
 
-買好pass，搭車去**鎌倉**～  
+買好[pass](https://hidie.net/kanagawa3b/)，搭車去**鎌倉**～  
 
 ![](https://af07ww.ch.files.1drv.com/y4mwo-XYC5n3d1j8-x_8IT0MoVJkFercLYHi4ZE6m41usl_PC18_oFrpKdbj8fIIrHLb0OoHEkAUtkzw-Q3i6flD0V8F4bdSvmQFh5j-atE_FjgYk-rWWO0UEQFaewy-oSgoPks1llD4lAzoMMP-G4dzbq_7NQik9z4kdnSQBX0MA4YiDEigeMzxtellmptEMo9wCUYsiIoxRL6udFE5AbejA?width=660&height=371&cropmode=none)
 

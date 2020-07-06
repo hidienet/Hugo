@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食]
 既然冇得去屋久島  
 咁都買吓特產當去咗啦 XD  
 
-[![](https://c1.staticflickr.com/5/4224/34996742830_9f71264670_z.jpg)](https://c1.staticflickr.com/5/4224/34996742830_9f71264670_z.jpg)
+![](/images/yakushimacane.jpg)
 
 日本南面就會有嘅黒糖  
 呢隻係屋久島產嘅  
@@ -17,3 +17,7 @@ tags : [flavor - 揀飲宅食]
 好似會香啲咁  
   
 不過講真吖，食落其實係同沖縄嘅無咩大分別～（哈哈）
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

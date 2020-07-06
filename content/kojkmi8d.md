@@ -11,7 +11,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 
 ↓↓↓
 
-[![](https://c1.staticflickr.com/5/4224/34419933393_26fb513f7c_z.jpg)](https://c1.staticflickr.com/5/4224/34419933393_26fb513f7c_z.jpg)
+![](/images/kojkmi8d.jpg)
 
 **指宿のたまて箱**  
 個「たまて箱」（玉手箱）  
@@ -22,50 +22,50 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 個箱一開仲要出煙  
 然後佢就變咗做個阿伯  
 
-[![](https://c1.staticflickr.com/5/4282/34419930873_7a0e7c785c_z.jpg)](https://c1.staticflickr.com/5/4282/34419930873_7a0e7c785c_z.jpg)
+![](/images/kojkmi8d1.jpg)
 
 架車嘅logo，同平時聖誕啲禮物盒差唔多  
 
-[![](https://c1.staticflickr.com/5/4225/34385020454_ba26426c0b_z.jpg)](https://c1.staticflickr.com/5/4225/34385020454_ba26426c0b_z.jpg)
+![](/images/kojkmi8d2.jpg)
 
 1号車 客室  
 由後面影返轉頭嘅車廂內部  
 啲燈啲木色呀凳呀個感覺好懷舊咁  
 
-[![](https://c1.staticflickr.com/5/4242/34419932773_79f15408e4_z.jpg)](https://c1.staticflickr.com/5/4242/34419932773_79f15408e4_z.jpg)
+![](/images/kojkmi8d3.jpg)
 
 2号車 客室  
 右手邊啲凳係回転椅子  
 有埋枱嘅  
 
-[![](https://c1.staticflickr.com/5/4275/34419932443_163876eb52_z.jpg)](https://c1.staticflickr.com/5/4275/34419932443_163876eb52_z.jpg)
+![](/images/kojkmi8d4.jpg)
 
 門簾都係有logo  
 仲有啲古怪海洋生物嘅公仔  
 
-[![](https://c1.staticflickr.com/5/4249/34385020304_a3ba3b16d8_z.jpg)](https://c1.staticflickr.com/5/4249/34385020304_a3ba3b16d8_z.jpg)
+![](/images/kojkmi8d5.jpg)
 
 2号車 **本棚のあるソファコーナー**  
 訂唔到轉轉凳  
 所以坐離海景位遠少少嘅小型圖書角嘅位  
 有張枱同側跟都可以擺袋擺嘢飲  
 
-[![](https://c1.staticflickr.com/5/4251/34385020404_b16afc2c6c_z.jpg)](https://c1.staticflickr.com/5/4251/34385020404_b16afc2c6c_z.jpg)
+![](/images/kojkmi8d6.jpg)
 
 2号車 **キッズチェア**  
 最車頭位置俾細路坐嘅凳仔  
 同房BB嘅「籠」  
 
-[![](https://c1.staticflickr.com/5/4231/34419931583_e701ffb292_z.jpg)](https://c1.staticflickr.com/5/4231/34419931583_e701ffb292_z.jpg)
+![](/images/kojkmi8d7.jpg)
 
 金logo  
 
-[![](https://c1.staticflickr.com/5/4237/35228893285_09c081c162_z.jpg)](https://c1.staticflickr.com/5/4237/35228893285_09c081c162_z.jpg)
+![](/images/kojkmi8d8.jpg)
 
 出發回程返鹿児島lu  
 有山有海咁囉  
 
-[![](https://c1.staticflickr.com/5/4198/34385020594_1c932ab45a_z.jpg)](https://c1.staticflickr.com/5/4198/34385020594_1c932ab45a_z.jpg)
+![](/images/kojkmi8d9.jpg)
 
 **指宿温泉サイダー**  
 用指宿唐船峡嘅湧水造嘅  
@@ -73,7 +73,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 味道係甜囉，平日冇飲開汽水  
 所以唔識分好唔好飲呀  
 
-[![](https://c1.staticflickr.com/5/4199/34419933793_06b217a15d_z.jpg)](https://c1.staticflickr.com/5/4199/34419933793_06b217a15d_z.jpg)
+![](/images/kojkmi8d10.jpg)
 
 包裝紙幾vintage  
 對夫婦著住夏威夷衫  
@@ -86,7 +86,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 原本想試埋呢度嘅**いぶたまプリン**  
 不過今日賣晒喇冇得食  
 
-[![](https://c1.staticflickr.com/5/4252/35241793876_8a61922515_z.jpg)](https://c1.staticflickr.com/5/4252/35241793876_8a61922515_z.jpg)
+![](/images/kojkmi8d11.jpg)
 
 **乗車記念証**  
 响車度出咗睇景  
@@ -94,15 +94,15 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 同埋揼印仔  
 好夠墨水，完美！  
 
-[![](https://c1.staticflickr.com/5/4244/34419929133_3263d625b5_z.jpg)](https://c1.staticflickr.com/5/4244/34419929133_3263d625b5_z.jpg)
+![](/images/kojkmi8d12.jpg)
 
 一路望住個**錦江湾**  
 就知道個指宿之行話咁快就完咗  
 
-[![](https://c1.staticflickr.com/5/4214/35188936076_faf3204238_z.jpg)](https://c1.staticflickr.com/5/4214/35188936076_faf3204238_z.jpg)
+![](/images/kojkmi8d13.jpg)
 
 吖！佢出煙得嗰少少嘅？？？  
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 
 放咗工，有咩比飲少少德國啤更順氣？  
 
-[![](https://c1.staticflickr.com/5/4776/38877777320_4e8457d1b4_z.jpg)](https://c1.staticflickr.com/5/4776/38877777320_4e8457d1b4_z.jpg)
+![](/images/hackerpshorr.jpg)
 
 梗係飲一～ 大～ 杯～ 啤～ 啦啦啦  
 成Lit(er)上咁先最爽㗎嘛！  
@@ -22,7 +22,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 兩杯都好正喎老細  
 （不過硬係要我揀就會揀Kellerbier，嘻）  
 
-[![](https://c1.staticflickr.com/5/4790/38877777400_3f072dded4_z.jpg)](https://c1.staticflickr.com/5/4790/38877777400_3f072dded4_z.jpg)
+![](/images/hackerpshorr1.jpg)
 
 嗱～ 去德國餐廳呢有啲嘢就唔食唔得嘅  
 好似呢隻**脆皮鹹豬手** (**Pork Knuckle**)咁  
@@ -35,7 +35,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 而個薯蓉味香質地滑  
 唔錯吖～  
 
-[![](https://c1.staticflickr.com/5/4786/25816907797_a93379b87a_z.jpg)](https://c1.staticflickr.com/5/4786/25816907797_a93379b87a_z.jpg)
+![](/images/hackerpshorr2.jpg)
 
 而另一樣食德國嘢又唔少得嘅  
 就係食洋腸喇 (**Beerliner Sausage**)  
@@ -48,7 +48,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 過濾得好清好清嘅啤酒  
 都唔錯嘅如果冇飲過上面嗰兩杯嘅話...  
 
-[![](https://c1.staticflickr.com/5/4788/38877776530_d16ebccbc6_z.jpg)](https://c1.staticflickr.com/5/4788/38877776530_d16ebccbc6_z.jpg)
+![](/images/hackerpshorr3.jpg)
 
 呢隻炸**meatballs**上面咗淋啲芝士  
 出面酥脆肉丸彈彈牙  
@@ -57,7 +57,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
   
 啲**Sauerkraut**有夠酸仲好爽，唔錯唔錯  
 
-[![](https://c1.staticflickr.com/5/4789/25816907467_1216e6ffd8_z.jpg)](https://c1.staticflickr.com/5/4789/25816907467_1216e6ffd8_z.jpg)
+![](/images/hackerpshorr4.jpg)
 
 有豬手有腸仔有肉丸  
 仲有都係啖啖肉嘅**Meatloaf Potato Cake**  

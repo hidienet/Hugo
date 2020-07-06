@@ -10,12 +10,12 @@ tags : [flavor - 螞蟻族]
 去FamilyMart咪得囉，反正24小時都開  
 鍾意幾點排幾點買幾點食都得～～～（我直頭買返香港食啦）  
 
-[![](https://c1.staticflickr.com/9/8586/28051155293_4e5869b4c5_z.jpg)](https://c1.staticflickr.com/9/8586/28051155293_4e5869b4c5_z.jpg)
+![](/images/familymartsweetplus.jpg)
 
 （左上）**フィナンシェ** financier  
 （左下）**フロランタン** florentins  
 （右）**プレミアムバウム** premium baum  
-三款到拎咗2015年嘅monde selection金獎（[之前食過拎呢個獎嘅零食](http://www.hidie.net/2014/12/fritolay-mike-popcorn.html)）  
+三款到拎咗2015年嘅monde selection金獎（[之前食過拎呢個獎嘅零食](https://hidie.net/mikepopcorn/)）  
 件フィナンシェ仲拎埋最高金賞  
 好，就食佢先！  
 淡淡杏仁味配上焦香牛油味  
@@ -27,7 +27,7 @@ tags : [flavor - 螞蟻族]
 令甜味多咗份大人味道嘅層次  
 買得一塊我只可以承認係買少咗（扁嘴）  
   
-嗱我自己呢就不嬲都好鍾意食[年輪蛋糕](http://www.hidie.net/2013/10/cake-juchheim.html)  
+嗱我自己呢就不嬲都好鍾意食[年輪蛋糕](https://hidie.net/juchheim/)  
 呢件プレミアムバウム我當然不會放過！  
 而且佢仲用埋發酵牛油加上北海道cream  
 日本乳製品就是香滑濃郁重奶香  
@@ -40,4 +40,4 @@ tags : [flavor - 螞蟻族]
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

@@ -9,7 +9,7 @@ tags : [collections - みんなのたあ坊]
 將垃圾統統byebye  
 地方乾淨了當然很happy啦～  
 
-[![](https://farm8.staticflickr.com/7305/16282168958_a9b93235bd_z.jpg)](https://farm8.staticflickr.com/7305/16282168958_a9b93235bd_z.jpg)
+![](/images/minnanotabo150216.jpg)
 
 02'年makes me happy!系列  
 整個都是紅噹噹的非常有活力  

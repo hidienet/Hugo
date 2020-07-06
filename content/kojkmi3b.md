@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩
 無買酒店D早餐  
 所以肚餓咪落樓搵個早餐食  
 
-[![](https://c1.staticflickr.com/1/613/32169577766_765cf028dc_z.jpg)](https://c1.staticflickr.com/1/613/32169577766_765cf028dc_z.jpg)
+![](/images/kojkmi3b.jpg)
 
 **朝うどんセット**  
 早餐set有**たねきうどん**＋**ごはん**＋**玉子**＋**漬物**  
@@ -35,4 +35,4 @@ tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

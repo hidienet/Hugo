@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 新年當然要行個好運求枝好籤  
 
-[![](https://2.bp.blogspot.com/-2OWHS0QblHY/XCiwSUY9YFI/AAAAAAAADcE/a6YBrPw2DwUiZPyazySwDfCxTMuH364tACLcBGAs/s640/02.jpg)](https://2.bp.blogspot.com/-2OWHS0QblHY/XCiwSUY9YFI/AAAAAAAADcE/a6YBrPw2DwUiZPyazySwDfCxTMuH364tACLcBGAs/s1600/02.jpg)
+![](/images/minnanotabo140201.jpg)
 
 這是港版的14‘賀年造型  
 深藍色加點點金的服裝  

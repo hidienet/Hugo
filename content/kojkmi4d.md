@@ -9,13 +9,13 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
 哇！呢隻嘢好好食！  
 真係好好食！！！  
 
-[![](https://c1.staticflickr.com/1/771/31941309024_197486bbc0_z.jpg)](https://c1.staticflickr.com/1/771/31941309024_197486bbc0_z.jpg)
+![](/images/kojkmi4d.jpg)
 
 温州みかんjuice x 65%  
 仲要「期間限定」喎  
 唔買會對自己唔住囉～  
 
-[![](https://c1.staticflickr.com/1/504/32404305750_7be6b02255_z.jpg)](https://c1.staticflickr.com/1/504/32404305750_7be6b02255_z.jpg)
+![](/images/kojkmi4d1.jpg)
 
 個包裝真係好貼心  
 一邊可以打開成個袋  
@@ -34,4 +34,4 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

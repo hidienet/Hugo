@@ -6,24 +6,18 @@ aliases: [ "/2015/11/blog-post_16.html" ]
 tags : [flavor - 揀飲宅食]
 ---
 
-名古屋味噌真係好\_\_好味
-
+名古屋味噌真係好\_\_好味  
 唔買返屋企慢慢食絕對係對唔住自己（握拳）
 
-[![](https://c1.staticflickr.com/9/8357/28618895151_da4863bac9_z.jpg)](https://c1.staticflickr.com/9/8357/28618895151_da4863bac9_z.jpg)
+![](/images/nakamomiso.jpg)
 
-呢枝正呀！味。噌。調。味。醬。
-
-唧唧裝超～ 方～ 便～
-
-就咁唧落D嘢度食又得
-
-唧D落去一齊煮亦得
-
-拎去醃嘢當然都唔難度
-
+呢枝正呀！味。噌。調。味。醬。  
+唧唧裝超～ 方～ 便～  
+就咁唧落D嘢度食又得  
+唧D落去一齊煮亦得  
+拎去醃嘢當然都唔難度  
 味道香甜嘅赤味噌，簡直係點食都會上癮（心心眼）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

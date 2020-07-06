@@ -9,19 +9,19 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 响庭園，有山有水有建築有花有竹  
 當然唔少得宜家呢個天氣特有嘅紅 x 黃 x 綠葉啦  
 
-[![](https://c1.staticflickr.com/5/4170/33989435583_b0cc81f59a_z.jpg)](https://c1.staticflickr.com/5/4170/33989435583_b0cc81f59a_z.jpg)
+![](/images/kojkmi7d24.jpg)
 
 呢張就一次過集齊晒  
 
-[![](https://c1.staticflickr.com/5/4193/33989433113_5317b6737d_z.jpg)](https://c1.staticflickr.com/5/4193/33989433113_5317b6737d_z.jpg)
+![](/images/kojkmi7d24a.jpg)
 
 親近D，有呢種  
 
-[![](https://c1.staticflickr.com/5/4186/33989430173_317448c807_z.jpg)](https://c1.staticflickr.com/5/4186/33989430173_317448c807_z.jpg)
+![](/images/kojkmi7d24b.jpg)
 
 除咗柔和色系，仲有呢種好深好實嘅色  
 
-[![](https://c1.staticflickr.com/5/4225/34636576992_1503d2f2ff_z.jpg)](https://c1.staticflickr.com/5/4225/34636576992_1503d2f2ff_z.jpg)
+![](/images/kojkmi7d24c.jpg)
 
 紅葉 x 竹嘅組合，好大對比呢～  
   
@@ -33,4 +33,4 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

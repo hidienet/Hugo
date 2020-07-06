@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 有冇人會感受到我有幾激動呢？  
 
-[![](https://c1.staticflickr.com/5/4553/38333584281_aaff441bc3_z.jpg)](https://c1.staticflickr.com/5/4553/38333584281_aaff441bc3_z.jpg)
+![](/images/minnanotabo171202.jpg)
 
 等咗好多好多年都冇見過日版大口仔嘅嘢  
 竟然突然間今年 (17')有一兩件流出！！！  

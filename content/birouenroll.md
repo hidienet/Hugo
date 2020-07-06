@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 雖然當時好唔情願咁去咗知覽  
 不過無可否認知覽茶真係好好飲  
 
-[![](https://c1.staticflickr.com/5/4206/34573022123_7cfb412818_z.jpg)](https://c1.staticflickr.com/5/4206/34573022123_7cfb412818_z.jpg)
+![](/images/birouenroll.jpg)
 
 美老園係當地嘅靚茶舖  
 有茶嘅舖頭通常都有茶糕點  
@@ -22,3 +22,7 @@ tags : [flavor - 螞蟻族]
 裡面啲cream軟軟滑滑  
   
 好好味呀～（心）
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

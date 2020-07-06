@@ -8,11 +8,11 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 
 又一個神社，適合喵氏剷屎官參拜  
 
-[![](https://c1.staticflickr.com/5/4187/33692184114_896223a377_z.jpg)](https://c1.staticflickr.com/5/4187/33692184114_896223a377_z.jpg)
+![](/images/kojkmi7d17.jpg)
 
 meow～ **猫神神社**！  
 
-[![](https://c1.staticflickr.com/5/4169/34149629430_7e988abe24_z.jpg)](https://c1.staticflickr.com/5/4169/34149629430_7e988abe24_z.jpg)
+![](/images/kojkmi7d17a.jpg)
 
 連繪馬都係有貓樣㗎  
   
@@ -24,4 +24,4 @@ meow～ **猫神神社**！
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

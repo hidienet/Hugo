@@ -6,10 +6,10 @@ aliases: [ "/2017/07/blog-post_12.html" ]
 tags : [flavor - 揀飲宅食]
 ---
 
-將宮崎嘅[炭火烤地雞](https://www.hidie.net/2017/02/happy-days-day-3.html)抽真空拎返屋企～  
+將宮崎嘅[炭火烤地雞](https://hidie.net/kojkmi3f/)抽真空拎返屋企～  
   
 
-[![](https://c1.staticflickr.com/5/4241/35650752275_524535c1cd_z.jpg)](https://c1.staticflickr.com/5/4241/35650752275_524535c1cd_z.jpg)
+![](/images/miyazakichicken.jpg)
 
 咁就梗係冇即食咁好味㗎喇  
 不過炭火味都係有嘅  
@@ -17,3 +17,8 @@ tags : [flavor - 揀飲宅食]
 鹹味足，從酒一流！！！  
   
 都算係輕微地解吓「鄉愁」啦（咦？）
+
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

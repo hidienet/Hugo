@@ -12,7 +12,7 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
 加上其實之前都shortlist咗要去食  
 入去坐低慢慢歎啦  
 
-[![](https://c1.staticflickr.com/5/4257/34423484703_eba0c6af49_z.jpg)](https://c1.staticflickr.com/5/4257/34423484703_eba0c6af49_z.jpg)
+![](/images/kojkmi9b.jpg)
 
 **焼どうなつ**  
 啱啱焗起熱辣辣香噴噴（lucky）  
@@ -22,13 +22,13 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
   
   
 
-[![](https://c1.staticflickr.com/5/4241/35192167306_01c9231277_z.jpg)](https://c1.staticflickr.com/5/4241/35192167306_01c9231277_z.jpg)
+![](/images/kojkmi9b1.jpg)
 
 **かすたどん**  
 呢舊嘢係呢間菓子屋嘅名物  
 圓碌碌淡黃色好鬼得意  
 
-[![](https://c1.staticflickr.com/5/4239/34423485053_2236154f37_z.jpg)](https://c1.staticflickr.com/5/4239/34423485053_2236154f37_z.jpg)
+![](/images/kojkmi9b2.jpg)
 
 （咬～～～）  
 裡面係唔太甜嘅custard  
@@ -41,4 +41,4 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

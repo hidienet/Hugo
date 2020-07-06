@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
 顧名思義係以兩枝棒拮入去嘅餅  
 （餅 ＝ 年糕質地嘅米糕）  
 
-[![](https://c1.staticflickr.com/3/2879/33238172203_3bf5082d25_z.jpg)](https://c1.staticflickr.com/3/2879/33238172203_3bf5082d25_z.jpg)
+![](/images/kojkmi7d02.jpg)
 
 左邊**味噌味**右邊**醤油味**  
 配以桜島大根形嘅碟  
@@ -18,11 +18,11 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
 兩種味都好vintage  
 個餅又夠韌，真係好好食（心）  
 
-[![](https://c1.staticflickr.com/3/2940/33892952452_7d516b4bb1_z.jpg)](https://c1.staticflickr.com/3/2940/33892952452_7d516b4bb1_z.jpg)
+![](/images/kojkmi7d02a.jpg)
 
 間舖係咪真係改建㗎？咁新淨嘅？！  
 
-[![](https://c1.staticflickr.com/3/2916/33238170813_2543f813dd_z.jpg)](https://c1.staticflickr.com/3/2916/33238170813_2543f813dd_z.jpg)
+![](/images/kojkmi7d02b.jpg)
 
 食飽飽就開始行喇～  
   
@@ -30,4 +30,4 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

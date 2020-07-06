@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 不論春夏秋冬，也要多多喝水喔  
 
-[![](https://1.bp.blogspot.com/-hI-QTokUD4I/XExrRV2AW8I/AAAAAAAAG5Q/Z1t_ru_dRAo_B9U-c-YFeUu5hIv4jo75QCLcBGAs/s640/14977398497_23162ea1d4_z.jpg)](https://1.bp.blogspot.com/-hI-QTokUD4I/XExrRV2AW8I/AAAAAAAAG5Q/Z1t_ru_dRAo_B9U-c-YFeUu5hIv4jo75QCLcBGAs/s1600/14977398497_23162ea1d4_z.jpg)
+![](/images/minnanotabo140913.jpg)
 
 07'年日本產的2.1L大大個水壺  
 耐熱至140度厚膠（耐冷到-20度）  

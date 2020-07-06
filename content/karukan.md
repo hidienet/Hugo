@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 軽羹（かるかん），薩摩傳統菓子  
 
-[![](https://c1.staticflickr.com/5/4213/35380829855_ba23f2fb08_z.jpg)](https://c1.staticflickr.com/5/4213/35380829855_ba23f2fb08_z.jpg)
+![](/images/karukan.jpg)
 
 鬆軟嘅白色糕，係用霧島山麓嘅天然山芋造  
 裡面夾有紅豆蓉  
@@ -18,3 +18,7 @@ tags : [flavor - 螞蟻族]
 仲要冇白糖糕咁鬆  
   
 普普通通啦，叫做試過吓咁囉...
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

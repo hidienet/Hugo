@@ -12,27 +12,27 @@ tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩
 呢一刻真係好肚餓  
 餓到個胃好L痛 (´-﹏-\`；)  
 
-[![](https://c1.staticflickr.com/3/2896/32848492103_7e1d7cc7f5_z.jpg)](https://c1.staticflickr.com/3/2896/32848492103_7e1d7cc7f5_z.jpg)
+![](/images/kojkmi6m.jpg)
 
 食牛啦，牛快熟D嘛  
 加上鹿児島除咗最出名嘅黒豚  
 鹿児島黒和牛都好似好正咁㗎嘛  
 
-[![](https://c1.staticflickr.com/3/2816/32848490783_b0325f52c3_z.jpg)](https://c1.staticflickr.com/3/2816/32848490783_b0325f52c3_z.jpg)
+![](/images/kojkmi6m1.jpg)
 
 仲要一大個煎pan一鑊熟  
 裡面有菜呀芽菜呀咁  
 
-[![](https://c1.staticflickr.com/3/2842/33661868315_6c63ec78e4_z.jpg)](https://c1.staticflickr.com/3/2842/33661868315_6c63ec78e4_z.jpg)
+![](/images/kojkmi6m2.jpg)
 
 再加埋啤酒啦，多D營養到肚  
 但係個kimchi係想點呢？勁唔咩廚  
 
-[![](https://c1.staticflickr.com/3/2924/33532280231_839ffdf352_z.jpg)](https://c1.staticflickr.com/3/2924/33532280231_839ffdf352_z.jpg)
+![](/images/kojkmi6m3.jpg)
 
 點埋個汁就食得喇  
 
-[![](https://c2.staticflickr.com/4/3847/32848494573_06462985e2_z.jpg)](https://c2.staticflickr.com/4/3847/32848494573_06462985e2_z.jpg)
+![](/images/kojkmi6m4.jpg)
 
 食到七七八八店員就落個うどん  
   
@@ -61,10 +61,10 @@ D友仔放工同上司同事三五知己
   
 哼～  
   
-等我突然諗起响釜山間[콩불（豆火）](http://www.hidie.net/2014/01/day7_21.html)  
+等我突然諗起响釜山間[콩불（豆火）](https://hidie.net/busanjj7f/)  
 嗰兜一鑊熟就真係可惡難食嘅經歷  
 好在呢餐只係普通，唔係難食啫（呼～）  
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

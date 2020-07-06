@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 
 係呀我知呀，呢盒嘢香港周街D超市都有  
 
-[![](https://c1.staticflickr.com/3/2783/32897080395_81133e96a9_z.jpg)](https://c1.staticflickr.com/3/2783/32897080395_81133e96a9_z.jpg)
+![](/images/kojkmi5a.jpg)
 
 味道當然無分別啦  
 咪甜嘅乳酸飲料咁嘅味囉  
@@ -29,4 +29,4 @@ Good Morning :)
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

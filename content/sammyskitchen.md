@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 不過嚟森美餐廳又唔可以唔食佢啲牛喎  
 點算？  
 
-[![](https://c1.staticflickr.com/1/889/26234368747_923232ff1e_z.jpg)](https://c1.staticflickr.com/1/889/26234368747_923232ff1e_z.jpg)
+![](/images/sammyskitchen.jpg)
 
 嗱～ 下午茶有**招牌牛柳三文治**  
 仲要烘埋底呀！  
@@ -25,7 +25,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 呢種咁薄嘅就啱啱好good fit  
 好好味呀，仲好夠飽！  
 
-[![](https://c1.staticflickr.com/1/802/27233069688_92fac08349_z.jpg)](https://c1.staticflickr.com/1/802/27233069688_92fac08349_z.jpg)
+![](/images/sammyskitchen1.jpg)
 
 呢杯叫**檸檬特飲**  
 成世人都未見過未飲過咪試吓囉  

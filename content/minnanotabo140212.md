@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 不開口笑的粉紅色大口仔  
 
-[![](https://2.bp.blogspot.com/-9MybftMq7Co/XC4QIk34LsI/AAAAAAAAD6c/pjTxc1MtUk87MALRJY5V4FhUdX5h7i5BgCLcBGAs/s640/97.jpg)](https://2.bp.blogspot.com/-9MybftMq7Co/XC4QIk34LsI/AAAAAAAAD6c/pjTxc1MtUk87MALRJY5V4FhUdX5h7i5BgCLcBGAs/s1600/97.jpg)
+![](/images/minnanotabo140212.jpg)
 
 05‘日版貨，粉紅色情人節系列  
 小小的指甲鉗（OK好剪）  

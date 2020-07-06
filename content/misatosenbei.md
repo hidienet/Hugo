@@ -10,7 +10,7 @@ tags : [flavor - 小食部]
 仲有栗子呢樣咁正嘅嘢  
   
 
-[![](https://c1.staticflickr.com/5/4204/34997134410_d42ba1425c_z.jpg)](https://c1.staticflickr.com/5/4204/34997134410_d42ba1425c_z.jpg)
+![](/images/misatosenbei.jpg)
 
 宮崎県美郷町西郷区嘅「西郷栗」  
 味道唔係似平日食mont blanc嗰堆栗蓉咁濃郁  
@@ -22,6 +22,10 @@ vintage嘅食物加簡約設計貼紙
 呢種新舊交融有種將味道傳承落去嘅感覺  
 好嘢千祈唔好消失呀～  
   
-不過呢包嘢响[喜入](http://www.hidie.net/2017/06/happy-days-day-8.html)已經瓦解咗  
+不過呢包嘢响[喜入](https://hidie.net/kojkmi8b/)已經瓦解咗  
 連香港都返唔到 XDDD  
 無計啦，煎餅配茶真係一絕㗎嘛...
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

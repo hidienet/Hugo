@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
 十一二點舒舒服服咁去瞓  
 竟然三點幾俾個被舖熱醒咗  
 
-[![](https://c1.staticflickr.com/1/596/31211916774_2b4a38ee2f_z.jpg)](https://c1.staticflickr.com/1/596/31211916774_2b4a38ee2f_z.jpg)
+![](/images/kojkmi1e.jpg)
 
 好啦，悶悶地又好似餓餓地咁  
 食吓舊酒店送嘅和菓子  
@@ -25,4 +25,4 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

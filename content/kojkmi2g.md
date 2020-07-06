@@ -9,9 +9,10 @@ tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩
 南蠻雞（チキン南蛮）係宮崎名物之一  
 呢間更係南蠻雞發源地，試啦試吓啦～  
 
-[![](https://c1.staticflickr.com/1/444/32207236345_b7fbf819c1_z.jpg)](https://c1.staticflickr.com/1/444/32207236345_b7fbf819c1_z.jpg)
+![](/images/kojkmi2g.jpg)
 
-**おぐらのチキン南蛮**啊！兩塊炸雞扒大大塊（每塊大概大半隻手掌咁上下大）  
+**おぐらのチキン南蛮**啊！  
+兩塊炸雞扒大大塊（每塊大概大半隻手掌咁上下大）  
 好vintage嘅日式洋食  
 雞啦醬啦椰菜沙律同意粉  
 炸雞個炸位唔係乾身  
@@ -47,4 +48,4 @@ Mmm... 對我嚟講呢餐好普通
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

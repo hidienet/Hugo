@@ -257,7 +257,7 @@ weekend梗係要飲**WEEKEND JOURNEY**
 
 ![](/images/kanagawa2n1.jpg)
 
-[橫濱 COSMOWORLD | よこはまコスモワールド](https://hidie.net/kanagawa2n/)  
+[橫浜 COSMOWORLD | よこはまコスモワールド](https://hidie.net/kanagawa2n/)  
 
 ![](/images/kanagawa2n2.jpg)
 
@@ -277,21 +277,21 @@ weekend梗係要飲**WEEKEND JOURNEY**
 
 [野毛小路](https://hidie.net/kanagawa2o/)覓食去～  
 
-![](https://af0kcg.ch.files.1drv.com/y4mW0KboTUB18le1x8GNZdTTQZhBJZZhU8V8Q9pbE08uOn8pFSi2mCSS_4FzTJ0jpOlr2TotG_C5x0dDM7R6UeEXAmyUTWbq2WNMHvMPOpSW5p9Ore1uresdiSvgUQN-QIwALEUinShOumbrPeJ48mtIpDd--8DF8hp_p5hz3pocjpU71dk1A9tiQTrHzqQ_uDc2r1F1-oumZzisw50jyWPdA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2p1.jpg)
 
 入杯酒；食枝豆  
 係**sapporo**唔係kirin喇  
 
-![](https://af0mcg.ch.files.1drv.com/y4mfuTnxaXhO0JszGDsHilxsHiFFv3i_1-K87_MGUFTCd1Btcg2q9WC6aubv4Z5VQAEt4YrE6vUl7I1vwAiCjYSQiwLf1zNse0qIu_WiDvwjH9D72CjSQzaGhizeEBdoyZG1OmXGskoKWSATjJ5NshbJ598Wx9ST-kNsWUY5NEFy8ZU6I4kPukjsTnEn-x8dMQW57shvpvwvpkaVcXbKUKoBA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2p.jpg)
 
 @[野毛居酒屋 ヤマヤ鮮魚店](https://hidie.net/kanagawa2p/)  
 
-![](https://av0icg.ch.files.1drv.com/y4m_5vjX1iMKvYTeht9pnD2LhwEQGfEQ56ulrf0e4NWMUdizSiONhmg6ummi1oPaecacCO_Dz32LD1IbirhNbkWcEkeKMxSTAuaVsuV58IdYowT0StRTyN4jvEOYPwVEXzEhdtf_GMlgLEqmiTSn7DUaigoZ1EsXziCx9kAJsx3x8d9I-kQm1oS3XqTKr1mt7Ig7cP65wC1qyO4uj9nvZ3bkA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2p3.jpg)
 
 非！常！美！味！嘅**金河豚のレア天**（金河豚天麩羅）  
 外脆內軟滑滑滑，點解有咁好食嘅魚㗎？！  
 
-![](https://p1zzzw.ch.files.1drv.com/y4mANSpVeHT_TKwbX-ok82r41gOGLGXIsRy3bwm4TSh-QhdNUMcc_OyGJanK8Fx2PghaCVxotierUYXIil56mdWBsDB8j8TcP8XCPAnmzSgbmhUlHuW1m9o200Nu78grtgsN-GSsBf6KUDTz8ZFl_HpluxWvT2Q3U8PM6TFlqx2fe3Gp0hMPXGLr6AHz7Bs5Kpts20H3uq7gcFb975Wv5e1Zg?width=371&height=660&cropmode=none)
+![](/images/kanagawa2p4.jpg)
 
 呢間居酒屋嘅嘢飲名物：**氷結レモンサワー**  
 好飲㗎！  

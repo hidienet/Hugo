@@ -6,9 +6,9 @@ aliases: [ "/2017/03/happy-days-day-5_9.html" ]
 tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
 ---
 
-因為[擒晚個蜜柑味](http://www.hidie.net/2017/02/happy-days-day-4_10.html)實在太太太好食  
+因為[擒晚個蜜柑味](https://hidie.net/kojkmi4d/)實在太太太好食  
 
-[![](https://c1.staticflickr.com/1/664/32442951173_3147c20861_z.jpg)](https://c1.staticflickr.com/1/664/32442951173_3147c20861_z.jpg)
+![](/images/kojkmi5g.jpg)
 
 加上呢隻café au lait味又寫住期間限定喎  
 嗱呢嘢真係逼我買嚟食啫！  
@@ -31,4 +31,4 @@ caffè latte同café au lait都係牛奶咖啡
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

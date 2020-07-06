@@ -15,7 +15,7 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
 可惜芒果base嘅黃熊間嘢已經收咗檔  
 無計啦都係死死地氣嚟返古早味呢間食啦  
 
-[![](https://c1.staticflickr.com/5/4263/34473049233_4b92916ed7_z.jpg)](https://c1.staticflickr.com/5/4263/34473049233_4b92916ed7_z.jpg)
+![](/images/kojkmi9d.jpg)
 
 **白熊の冬ごもり**  
 係㗎喇，死都唔嗌經典白熊  
@@ -26,26 +26,26 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
 極濃嘅香味加上唔會好甜  
 配埋啲白朱古力波呀小枝咁脆脆口  
 
-[![](https://c1.staticflickr.com/5/4264/34895527200_5167c8f04f_z.jpg)](https://c1.staticflickr.com/5/4264/34895527200_5167c8f04f_z.jpg)
+![](/images/kojkmi9d1.jpg)
 
 熊仔餅乾呀莓呀白朱古力碎响個窿度  
 home sweet home  
 
-[![](https://c1.staticflickr.com/5/4206/35282862845_9cb0d6a1b8_z.jpg)](https://c1.staticflickr.com/5/4206/35282862845_9cb0d6a1b8_z.jpg)
+![](/images/kojkmi9d2.jpg)
 
 所以就算又凍又飽都剷～ 得～ 晒～  
 好好味！  
 
-[![](https://c1.staticflickr.com/5/4257/35116662212_d5422f991b_z.jpg)](https://c1.staticflickr.com/5/4257/35116662212_d5422f991b_z.jpg)
+![](/images/kojkmi9d3.jpg)
 
 **ベビー宇治金時**  
 3B嘅baby size綠茶紅豆刨冰  
 都好似好好食咁喎  
 
-[![](https://c1.staticflickr.com/5/4230/35116664952_e729eb1920_z.jpg)](https://c1.staticflickr.com/5/4230/35116664952_e729eb1920_z.jpg)
+![](/images/kojkmi9d4.jpg)
 
 間嘢cute得嚟又簡約地悠悠閒咁，幾靚吖～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

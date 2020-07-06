@@ -11,19 +11,19 @@ tags : [flavor - 小食部, travel - 日本（九州西海道）・ 大隅薩摩
 配搭唔同食材就變化出好多種味道  
 當中以揚立屋同月揚庵名氣最響  
 
-[![](https://c1.staticflickr.com/5/4235/35284128665_d43e818e27_z.jpg)](https://c1.staticflickr.com/5/4235/35284128665_d43e818e27_z.jpg)
+![](/images/kojkmi10b.jpg)
 
 先講即買即食嘅**月揚庵**  
 （左）**さつま揚げ**、（右）**ぎょにぎり 魚握**  
 魚肉彈牙，雜錦盒就咩都有得試  
 熱辣辣即食味道更香  
 
-[![](https://c1.staticflickr.com/5/4275/35117825162_3ac3790ef9_z.jpg)](https://c1.staticflickr.com/5/4275/35117825162_3ac3790ef9_z.jpg)
+![](/images/kojkmi10b1.jpg)
 
 **ぎょにぎり 魚握**  
 天文館限定嘅魚握  
 魚係鹿児島嘅特產きびなご  
-之前响[熊襲亭](https://www.hidie.net/2017/02/happy-days-day-5_15.html)食到爽滑刺身  
+之前响[熊襲亭](https://hidie.net/kojkmi5b/)食到爽滑刺身  
 呢隻熟嘅就肉實帶濃甜魚香味  
 波波形嘅魚飯糰已經含醬油  
 調味足鮮味濃好好食呀～  
@@ -41,11 +41,11 @@ tags : [flavor - 小食部, travel - 日本（九州西海道）・ 大隅薩摩
 最重要係：又平又好食仲要係雪硬晒嘅急凍包裝  
 唔賣比自己拎返屋企真係對唔住自己！  
 
-[![](https://c1.staticflickr.com/5/4195/35284124825_1ccc09c445_z.jpg)](https://c1.staticflickr.com/5/4195/35284124825_1ccc09c445_z.jpg)
+![](/images/kojkmi10b2.jpg)
 
 by the way，點為之即買即食  
 就係响搭緊機場巴士去鹿児島空港已經開嚟食，哈～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

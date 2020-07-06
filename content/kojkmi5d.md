@@ -9,7 +9,7 @@ tags : [flavor - 小食部, travel - 日本（九州西海道）・ 大隅薩摩
 今次去唔到種子島  
 都要試吓島特產  
 
-[![](https://c1.staticflickr.com/1/652/33254800395_d601703f5b_z.jpg)](https://c1.staticflickr.com/1/652/33254800395_d601703f5b_z.jpg)
+![](/images/kojkmi5d.jpg)
 
 熱辣辣嘅番薯  
 又香又軟又甜真係好L好味！  
@@ -19,4 +19,4 @@ tags : [flavor - 小食部, travel - 日本（九州西海道）・ 大隅薩摩
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

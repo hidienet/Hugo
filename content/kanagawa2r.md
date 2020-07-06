@@ -1,5 +1,5 @@
 ---
-title: '[神奈川衝撞旅] Day2：SEVEN & i クリームチーズ マカロンアイス | LOTTE ロッテ 雪見だいふく 涼み抹茶'
+title: '[神奈川衝撞旅] Day2：SEVEN & i クリームチーズ マカロンアイスLOTTE ロッテ 雪見だいふく 涼み抹茶'
 date: 2020-07-14T14:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa2r.jpg"]

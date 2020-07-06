@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 係呀，又係栗子呀，秋天嘛...  
 
-[![](https://c1.staticflickr.com/9/8486/28593515952_fda73a59bc_z.jpg)](https://c1.staticflickr.com/9/8486/28593515952_fda73a59bc_z.jpg)
+![](/images/keithmanhattancake.jpg)
 
 栗甘露煮入りのチョコレートパウンドケーキ  
 （CODE C POUND CAKE CHOCOLATE AND MARRON）  
@@ -29,4 +29,4 @@ tags : [flavor - 螞蟻族]
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

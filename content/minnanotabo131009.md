@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 左邊那對人字拖會夾著腳趾，不太好受  
 
-[![](https://2.bp.blogspot.com/-dGMjrXQ5arE/XCOUXvWVEdI/AAAAAAAAB4A/S9NGCJtf6gIxTc9_CYmK80-m7WTnBJMJwCLcBGAs/s640/31.jpg)](https://2.bp.blogspot.com/-dGMjrXQ5arE/XCOUXvWVEdI/AAAAAAAAB4A/S9NGCJtf6gIxTc9_CYmK80-m7WTnBJMJwCLcBGAs/s1600/31.jpg)
+![](/images/minnanotabo131009.jpg)
 
 加上是日本受權的港版貨，我不算太喜愛就是  
 愛穿的是右邊的拖鞋，01年日版貨仔  

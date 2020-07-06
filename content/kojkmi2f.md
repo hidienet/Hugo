@@ -10,7 +10,7 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 原來呢度D人比起行街買嘢  
 會鍾意一家大細一起走去浸溫泉多D  
 
-[![](https://c1.staticflickr.com/1/571/31375185183_14b945c6fb_z.jpg)](https://c1.staticflickr.com/1/571/31375185183_14b945c6fb_z.jpg)
+![](/images/kojkmi2f.jpg)
 
 宮崎嘅宮崎市  
 一係就去貴D嘅大淀川D酒店浸  
@@ -18,7 +18,7 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 當然要嚟**極・楽・湯**！  
 如其名真係爆極樂  
 
-[![](https://c1.staticflickr.com/1/509/31830175290_88c4f7cc1d_z.jpg)](https://c1.staticflickr.com/1/509/31830175290_88c4f7cc1d_z.jpg)
+![](/images/kojkmi2f1.jpg)
 
 不過嘛，居民式浸係要自己帶毛巾  
 無咪買囉都OK嘅，反正唔貴...  
@@ -40,12 +40,12 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 莫講話帶去溫泉；連酒店房門都無出過囉（唉～）  
 咁樣買毛巾真係好唔抵㗎嘛 TT  
 
-[![](https://c1.staticflickr.com/1/310/31395586683_f996889384_z.jpg)](https://c1.staticflickr.com/1/310/31395586683_f996889384_z.jpg)
+![](/images/hakutowel.jpg)
 
-條 (pack)毛巾响名古屋買㗎  
+條 (pack)毛巾响[名古屋](https://hidie.net/nagoya8d7n/)買㗎  
 日本製㗎，薄薄地size又啱啱好帶去溫泉  
 真係好perfect㗎，如果有帶嘅話... ... ... ... ... ...  
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

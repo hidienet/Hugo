@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 點知見到個招紙寫住奄美名產  
 再睇吓裡面D嘢白白哋就當係...  
 
-[![](https://c2.staticflickr.com/4/3940/32905931213_0f11209a12_z.jpg)](https://c2.staticflickr.com/4/3940/32905931213_0f11209a12_z.jpg)
+![](/images/kojkmi7da.jpg)
 
 其實**みき**係米漿（汗）  
 仲要係好杰撻撻嗰種  
@@ -26,4 +26,4 @@ KO完成枝好L飽
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

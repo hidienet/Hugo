@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 既然胃痛過，腸胃唔好就隊D乳酸菌嘢飲啦  
 有鬼死咁多款可以揀  
 
-[![](https://c1.staticflickr.com/3/2881/33532923931_0c8492233e_z.jpg)](https://c1.staticflickr.com/3/2881/33532923931_0c8492233e_z.jpg)
+![](/images/kojkmi6n.jpg)
 
 就揀隻未試過又夠吸引㗎啦  
 **ピルクル**平日見容和D日巡嘅時候呀  
@@ -27,4 +27,4 @@ ff完喇我返出去做嘢早抖先喇bye～
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

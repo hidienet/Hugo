@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 十津川農場同鹿児島大学一同研發  
 呢隻茶究竟有咩咁厲害？  
 
-[![](https://c1.staticflickr.com/5/4067/35493564372_77ab866f25_z.jpg)](https://c1.staticflickr.com/5/4067/35493564372_77ab866f25_z.jpg)
+![](/images/loquattea1.jpg)
 
 先講茶葉，枇杷葉  
 作用係聲稱可以抑制癌細胞、對抗炎症、改善肝機能解脂肪等等  
@@ -27,8 +27,12 @@ tags : [flavor - 飲！]
 功效有定冇都仲係未知數  
 不過好飲嘅嘢一飲就飲得出（笑）  
 
-[![](https://c1.staticflickr.com/5/4149/35532181891_5c6d2df2b4_z.jpg)](https://c1.staticflickr.com/5/4149/35532181891_5c6d2df2b4_z.jpg)
+![](/images/loquattea.jpg)
 
 賣埋車身廣告  
 盲毛都會讚好  
 （哈哈）
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

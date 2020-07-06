@@ -8,15 +8,15 @@ tags : [collections - みんなのたあ坊]
 
 merry x'mas～～～  
 
-[![](https://farm8.staticflickr.com/7522/15822820759_148197e762_z.jpg)](https://farm8.staticflickr.com/7522/15822820759_148197e762_z.jpg)
+![](/images/minnanotabo141225.jpg)
 
 今年的新版(14')聖誕吊飾  
 拿著大袋禮物去派  
 
-[![](https://farm8.staticflickr.com/7573/15823073527_7110190fa8_z.jpg)](https://farm8.staticflickr.com/7573/15823073527_7110190fa8_z.jpg)
+![](/images/minnanotabo141225a.jpg)
 
 另一面人格分裂地收禮物  
-中間[依舊](http://www.hidie.net/2013/12/blog-post_22.html)可以打開放東西進去  
+中間[依舊](https://hidie.net/minnanotabo131222/)可以打開放東西進去  
   
 沒有朋友仔在身邊的他只有雪人陪伴  
 lonely christmas嗎？  

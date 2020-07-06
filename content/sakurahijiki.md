@@ -8,7 +8,7 @@ tags : [flavor - 揀飲宅食]
 
 有海嘅地方就有海帶呀昆布呀紫菜呀嗰啲海藻㗎啦  
 
-[![](https://c1.staticflickr.com/5/4285/35811872535_febcd2126f_z.jpg)](https://c1.staticflickr.com/5/4285/35811872535_febcd2126f_z.jpg)
+![](/images/sakurahijiki.jpg)
 
 桜島嘅ひじき（鹿尾菜）  
 細細條細細條咁  
@@ -18,3 +18,7 @@ tags : [flavor - 揀飲宅食]
 爽滑濃郁嘅海藻味  
 味道好營養價值又高  
 呵呵真係好～（拇指）
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

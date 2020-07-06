@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
 
 今朝就鯨吞我個早餐啦！  
 
-[![](https://c1.staticflickr.com/1/283/31795601223_25f52ea115_z.jpg)](https://c1.staticflickr.com/1/283/31795601223_25f52ea115_z.jpg)
+![](/images/kojkmi4a.jpg)
 
 真係吞落去肯定會啃死  
 鯨ようかん，承傳咗三百幾年嘅糕點  
@@ -22,4 +22,4 @@ tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

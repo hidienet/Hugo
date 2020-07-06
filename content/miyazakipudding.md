@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 以宮崎盛產嘅芒果同日向夏柑製作嘅布甸  
 
-[![](https://c1.staticflickr.com/5/4262/35382271345_0f2731e2fd_z.jpg)](https://c1.staticflickr.com/5/4262/35382271345_0f2731e2fd_z.jpg)
+![](/images/miyazakipudding.jpg)
 
 不過相比起叫佢哋做布甸  
 我覺得質地似啫喱多啲  
@@ -20,3 +20,7 @@ tags : [flavor - 螞蟻族]
 如果硬係要俾個缺點、罪名佢：  
 有啲重量，唔可以帶好多返屋企  
 同埋貴咗啲（不過值呢個價嘅）
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

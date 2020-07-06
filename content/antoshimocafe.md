@@ -11,7 +11,7 @@ C/P值很高的沖縄料理！
 當地只買炸包（揚げパン）  
 香港店就有餐食～  
 
-[![](https://farm1.staticflickr.com/322/19983403412_9a3dc0f193_z.jpg)](https://farm1.staticflickr.com/322/19983403412_9a3dc0f193_z.jpg)
+![](/images/antoshimocafe.jpg)
 
 所以一次過叫了我的沖縄回憶  
 有苦瓜菠蘿そば水雲花生豆腐黑糖呢  

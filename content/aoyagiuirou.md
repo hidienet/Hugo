@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 聽講名古屋嘅和菓子無其他地區咁甜  
 買嚟試吓囉反正我個肚有位  
 
-[![](https://c1.staticflickr.com/9/8897/28638518146_866f782abf_z.jpg)](https://c1.staticflickr.com/9/8897/28638518146_866f782abf_z.jpg)
+![](/images/aoyagiuirou.jpg)
 
 五件裝四隻味：さくら、抹茶、しろ、さくら(again)、上がり  
 さくら - 淡淡櫻花葉味  
@@ -25,7 +25,7 @@ tags : [flavor - 螞蟻族]
 即係，食幾種味都係同一個口淡淡嘅結果  
 （抹茶已經係最突出自己隻味喇陰功）  
 
-[![](https://c1.staticflickr.com/9/8581/28665674376_29bd69d843_z.jpg)](https://c1.staticflickr.com/9/8581/28665674376_29bd69d843_z.jpg)
+![](/images/aoyagiuirou1.jpg)
 
 期間限定嘅**青柳ういろう おいも**、**青柳生ういろうくり**  
 淡淡「秋天」味，好淡... 好淡...  
@@ -34,4 +34,4 @@ tags : [flavor - 螞蟻族]
   
 \-----------------------------------------------  
   
-延伸閱讀：[GO! GO! NaGoYa～（8D7N）](http://www.hidie.net/2015/11/go-go-nagoya8d7n.html)
+延伸閱讀：[GO! GO! NaGoYa～（8D7N）](https://hidie.net/nagoya8d7n/)

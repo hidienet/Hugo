@@ -296,10 +296,10 @@ weekend梗係要飲**WEEKEND JOURNEY**
 呢間居酒屋嘅嘢飲名物：**氷結レモンサワー**  
 好飲㗎！  
 
-![](https://al0icg.ch.files.1drv.com/y4mtuDlIaBX_B6FnhC4ATmXC5e3rh7HXtsuZKYkXDik6D81R60ZRvLLJD8zUGEH3jeiu8c_YgnfAT94tb3c5hZY7uPDCMg9SSNPnnphRkLJrRTvu0bP0ZXS6v1iVQoe_HJ0e9SuoKX1UeM4jvQRFG9ZJJliUyH8T7ybAh3usRkH4Xo4jVu9pOifKroq6Zwy0ClBKSnHSS82OiffX4AiS-JGCg?width=660&height=371&cropmode=none)
+![](/images/kanagawa2q.jpg)
 
 食完飲完就搭京急返川崎  
-行行吓條地下街見到**YEBISU BAR（ヱビスバー）**  
+行行吓條地下街見到[YEBISU BAR（ヱビスバー）](https://hidie.net/kanagawa2q/)  
 只可以承認我對Yebisu毫無抵抗力  
 左邊有塊葉嘅係**キウイモヒートビヤ（mojito beer）**  
 清爽嘅味道，話時話好似第一次飲用啤酒做嘅cocktail  
@@ -307,26 +307,26 @@ weekend梗係要飲**WEEKEND JOURNEY**
 係我未出世1972年嘅味道喎！  
 而且係限定釀造點到我唔試呢？  
 
-![](https://p1wicg.ch.files.1drv.com/y4mPCLjmO1CaPs6wOhS-X9pGeyABtIRvS7pYlcxUL4PqdJ2Qd7_RQ5leoHmEj2LkCscj_lxU5d5mrwthavIsPDQ0cBHfzAWdKkozTeY-2XJKe5flwFqtL94tarXoYH9s98MnmBPeIYzRCGagXqPV3JzXgvertve4b3caCC-LwQAy4BwWrWbSaPf_k58jVIU3Xf2RuQquhQHQIj8-nBrG6j2Sw?width=660&height=371&cropmode=none)
+![](/images/kanagawa2r.jpg)
 
-返到酒店又係雪糕時間  
+返到酒店又係[雪糕時間](https://hidie.net/kanagawa2r/)  
 **SEVEN & i PREMIUM CREAM CHEESE MACARON ICE**  
 **クリームチーズ マカロンアイス**  
 有少少芝士味嘅，不過個macaron太太太甜喇  
 
-![](https://p1wlcg.ch.files.1drv.com/y4mr0RZyqFahucp4Xt0jDnQfLFlVcRvL3XF-WEZ619KhWM_5vaDeX6laSMruVLQs5ualJhvSQB61ReWPAYRyh5Fn98jEes9wCf_cgFmRLfBeyaLbVQyEzwBO2LlunjCFuu8gxLVxzcLMCYfL3gzG1A6QLfAddLjbo5LnureLQIfn7w4nuHOvkvz4gSCkGbenz76oNPoEsPbvG0OC7KS1l6q2A?width=660&height=371&cropmode=none)
+![](/images/kanagawa2r2.jpg)
 
 **LOTTE ロッテ 雪見だいふく 涼み抹茶**  
 好彩仲有呢隻內含啫喱嘅綠茶雪糕大福清返吓喉嚨  
 
-![](https://qfwlcg.ch.files.1drv.com/y4mP3pM_wctk2W3-55rzvT1J-QoECyaOmVyXLK18CUe6TiJabOellxOx17-poNZU7m9hhtBP7Na1qzFSnE0mi2KSnNRiLoh1phiYTDn1TvhfClQ9_sgCuDUFZ7FnGUT4t-FAQojaJMkXNuSCj_gYp80R-gaFunHHLqHOm5T0_780mIoJPHQqv2RPWaKDJ7E4Joq8e6kWbUZ6QQEemwy7DE6VA?width=660&height=371&cropmode=none)
+![](/images/kanagawa2s1.jpg)
 
 食完甜品又未想瞓住  
-落街食宵夜（酒店後面係食街呀頂！）@**磯丸水産**  
+落街食宵夜（酒店後面係食街呀頂！）@[磯丸水産](https://hidie.net/kanagawa2s/)  
 **赤ハイ**同**バリキング**  
 得微微酒精啫唔飲太多喇  
 
-![](https://a10muq.ch.files.1drv.com/y4mWVDtjLZ7OfyHy2HDR8Po_LklXA2ze3_wnyDzZRKjr-VQN0rb55u387nTsqVofQ2aylhoMga2c0y9CcOLEOmOyDKvjZ04oQmMBloDaiQknXRbBlruZVghkp0lV2qTF7k2g8DAaS7Lk0woWD0AVIVJhL1ua7xAWcRnOb8NUCqhQqCc3OWjTxbgoB5xI2qfmd4nStInhHfLaF83rTNk84pPkQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa2s3.jpg)
 
 **蟹味噌甲羅焼**  
 勁好送酒嘅鮮味嘢～  

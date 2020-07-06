@@ -8,14 +8,14 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 
 習慣咗朝早灌一灌水  
 
-[![](https://c1.staticflickr.com/1/461/32059324322_a26ef22815_z.jpg)](https://c1.staticflickr.com/1/461/32059324322_a26ef22815_z.jpg)
+![](/images/kojkmi3a.jpg)
 
 APA酒店水，係富士川源流天然水  
 （水都拎monde selection金獎...）  
 清囉，完全無雜質味仲帶微微清甜味道  
 飲完完全覺得身體健康咗囉  
 
-[![](https://c1.staticflickr.com/1/607/32170039416_40de33fa1f_z.jpg)](https://c1.staticflickr.com/1/607/32170039416_40de33fa1f_z.jpg)
+![](/images/kojkmi3a1.jpg)
 
 不過社長呢家嘢發生咩事？！（笑噴）  
 差D水都噴返晒出嚟 XDDD  
@@ -29,4 +29,4 @@ APA酒店水，係富士川源流天然水
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

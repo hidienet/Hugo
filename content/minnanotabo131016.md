@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 很可愛粉藍色主調的磅，有連環小格的漫畫  
 
-[![](https://1.bp.blogspot.com/-LN33-kbaLSc/XCRAq64mGSI/AAAAAAAAB7Q/Byx8IpAMQLIcTqTn9blYItxMRPJTtHIRQCLcBGAs/s640/18.jpg)](https://1.bp.blogspot.com/-LN33-kbaLSc/XCRAq64mGSI/AAAAAAAAB7Q/Byx8IpAMQLIcTqTn9blYItxMRPJTtHIRQCLcBGAs/s1600/18.jpg)
+![](/images/minnanotabo131016.jpg)
 
 20周年日版貨仔，真漂亮  
 雖然只看到圖，不太讀到漫畫裡的字  

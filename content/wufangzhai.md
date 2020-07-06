@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹]
 五芳齋嘛，唔係間齋鋪  
 江浙菜，有肉食而且出名食稯  
 
-[![](https://c2.staticflickr.com/8/7432/27880193756_2418d19550_z.jpg)](https://c2.staticflickr.com/8/7432/27880193756_2418d19550_z.jpg)
+![](/images/wufangzhai.jpg)
 
 糭從外層的米到餡料的肉也充滿肉汁  
 黏黏不鬆散加上味道香濃不太鹹  

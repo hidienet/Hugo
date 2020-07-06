@@ -3,12 +3,12 @@ title: '[Happy Days！鹿児島宮崎！] Day 2：さくらさくら温泉 & 朝
 date: 2017-01-11T10:00:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-2.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
 ---
 
 我・愛・溫・泉  
 
-[![](https://c1.staticflickr.com/1/487/31212129024_d960036c56_z.jpg)](https://c1.staticflickr.com/1/487/31212129024_d960036c56_z.jpg)
+![](/images/kojkmi2a.jpg)
 
 日浸夜浸真爽皮，啦啦啦～  
   
@@ -23,7 +23,7 @@ D泥充滿硫磺味
 又舒服又可以靚～～～  
 （係呀！敷完隻泥皮膚乾乾淨淨白白滑滑！）  
 
-[![](https://c1.staticflickr.com/1/632/32052904705_61d9394491_z.jpg)](https://c1.staticflickr.com/1/632/32052904705_61d9394491_z.jpg)
+![](/images/kojkmi2a1.jpg)
 
 浸完喇，梗係要食早餐啦  
 呢度係自助式  
@@ -33,7 +33,7 @@ D泥充滿硫磺味
 個豆渣salad好好食，好想試吓自己整  
 溫泉蛋溫泉蛋溫泉蛋！！！  
 
-[![](https://c1.staticflickr.com/1/574/31678068200_d88dc292dc_z.jpg)](https://c1.staticflickr.com/1/574/31678068200_d88dc292dc_z.jpg)
+![](/images/kojkmi2a2.jpg)
 
 但係最最最正係呢度自家製甘酒（！）  
 超～ 好～ 味～！  
@@ -45,4 +45,4 @@ D泥充滿硫磺味
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

@@ -14,7 +14,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 鬼叫露天同室內都有好多種浸  
 鬼叫...  
 
-[![](https://c1.staticflickr.com/1/340/31508473283_fcb5552194_z.jpg)](https://c1.staticflickr.com/1/340/31508473283_fcb5552194_z.jpg)
+![](/images/kojkmi3e1.jpg)
 
 有100円off嘅優惠劵，哈哈哈！  
   
@@ -22,7 +22,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 除咗最普通遊客式芒果曲奇、蕃薯脆粒同出面一樣價錢之外  
 農產品呢度買得平好多又新鮮  
 
-[![](https://c1.staticflickr.com/1/714/31942261090_7b6c41e989_z.jpg)](https://c1.staticflickr.com/1/714/31942261090_7b6c41e989_z.jpg)
+![](/images/kojkmi3e.jpg)
 
 **宮崎県の白水舎乳業 | 牛乳甘酒 百白糀**  
 首先，浸完溫泉飲牛奶甘酒  
@@ -30,11 +30,11 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 標榜「 遊離アミノ酸は牛乳の１００倍。ヨーグルトの２５倍以上。」  
 完全適合浸完溫泉飲用補充養分  
 味道都幾濃郁，天然甜但甜咗少少  
-都香嘅，不過擒日朝隻[自家製甘酒](http://www.hidie.net/2017/01/happy-days-day-2.html)實在太驚豔  
+都香嘅，不過擒日朝隻[自家製甘酒](https://hidie.net/kojkmi2a/)實在太驚豔  
 係有D比下去，所以唔應該拎嚟比較  
 都好味就係，值得買嚟試吓嘅  
 
-[![](https://c1.staticflickr.com/1/361/32280462696_2e0ef9f393_z.jpg)](https://c1.staticflickr.com/1/361/32280462696_2e0ef9f393_z.jpg)
+![](/images/kojkmi3e2.jpg)
 
 **長野県産 巨峰**  
 甜，但唔係爆濃甜味嘅巨峰  
@@ -43,7 +43,7 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
 果肉滑滑似韌身jelly  
 好抵食  
 
-[![](https://c1.staticflickr.com/1/512/32169531802_750acb8119_z.jpg)](https://c1.staticflickr.com/1/512/32169531802_750acb8119_z.jpg)
+![](/images/kojkmi3e3.jpg)
 
 **甲州名產 あんぽ柿**  
 半乾嘅柿，爆甜  
@@ -53,4 +53,4 @@ tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

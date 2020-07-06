@@ -9,7 +9,7 @@ tags : [collections - みんなのたあ坊]
 雖然愛用電腦  
 不過也有寫字同繪畫 (!)的時候  
 
-[![](https://farm1.staticflickr.com/453/18108532159_81d5a643d6_z.jpg)](https://farm1.staticflickr.com/453/18108532159_81d5a643d6_z.jpg)
+![](/images/minnanotabo150606.jpg)
 
 把筆好好擺放當然要有個美觀的筆筒  
 90‘年的出品，硬膠筆筒  

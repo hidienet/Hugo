@@ -8,16 +8,16 @@ tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向�
 
 石建築時間  
 
-[![](https://c1.staticflickr.com/5/4182/34244089086_616fb13497_z.jpg)](https://c1.staticflickr.com/5/4182/34244089086_616fb13497_z.jpg)
+![](/images/kojkmi7d12a.jpg)
 
 個樣似石棺不過又有窗size仲好大喎  
 濾過池嚟㗎啫  
 
-[![](https://c1.staticflickr.com/3/2882/34284584955_fccf8667f2_z.jpg)](https://c1.staticflickr.com/3/2882/34284584955_fccf8667f2_z.jpg)
+![](/images/kojkmi7d12.jpg)
 
 塚嘛，有筆塚囉  
 
-[![](https://c1.staticflickr.com/5/4158/34284590375_b0b600673c_z.jpg)](https://c1.staticflickr.com/5/4158/34284590375_b0b600673c_z.jpg)
+![](/images/kojkmi7d12b.jpg)
 
 係喇知道咁講好Q無聊喇  
 post返D正常相囉  
@@ -28,4 +28,4 @@ post返D正常相囉
   
 \-----------------------------------------------  
   
-延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](http://www.hidie.net/2017/06/happy-days10d9n.html)
+延伸閱讀：[Happy Days！鹿児島宮崎！ (10D9N)](https://hidie.net/kojkmi10d9n/)

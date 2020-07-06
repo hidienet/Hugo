@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 啊！好耐冇去過臺灣喇  
 好掛住啲牛肉麵呀～  
 
-[![](https://c1.staticflickr.com/5/4766/40544538092_61807a404c_z.jpg)](https://c1.staticflickr.com/5/4766/40544538092_61807a404c_z.jpg)
+![](/images/ironcow.jpg)
 
 每次行經都見到坐滿人  
 咁啱呢個時間冇乜人  
@@ -49,7 +49,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 只係食落係一碗普通牛肉麵  
 有少少唔太台灣 (紅燒)牛肉麵咁囉  
 
-[![](https://c1.staticflickr.com/5/4764/25716134987_64ecd6bfae_z.jpg)](https://c1.staticflickr.com/5/4764/25716134987_64ecd6bfae_z.jpg)
+![](/images/ironcow1.jpg)
 
 另外叫咗碟小食**芝士花枝丸**  
 哎吔食開港式嘅芝士嘢  
@@ -63,7 +63,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 所以，其實粒嘢係冇乜味  
 就算有味都可能係俾個芝士醬搶晒  
 
-[![](https://c1.staticflickr.com/5/4606/40586768271_bd64e49119_z.jpg)](https://c1.staticflickr.com/5/4606/40586768271_bd64e49119_z.jpg)
+![](/images/ironcow2.jpg)
 
 唔係嘅，間舖啲嘢唔係真係好差嘅  
 好似呢杯**黑糖薑母茶**咁吖  
@@ -85,6 +85,6 @@ I miss you so much～～～
   
   
 延伸閱讀：  
-[\[臺東瘋食遊\] Day7：湘琪牛肉麵](http://www.hidie.net/2016/02/day7_24.html)  
-[\[臺北暴食遊\] Day3：舊道口牛肉麵](http://www.hidie.net/2014/04/day3_2367.html)  
-[\[臺北暴食遊\] Day1：老董牛肉麵](http://www.hidie.net/2014/04/day1.html)
+[\[臺東瘋食遊\] Day7：湘琪牛肉麵](https://hidie.net/taitung7b/)  
+[\[臺北暴食遊\] Day3：舊道口牛肉麵](https://hidie.net/taipei3g/)  
+[\[臺北暴食遊\] Day1：老董牛肉麵](https://hidie.net/taipei1a/)

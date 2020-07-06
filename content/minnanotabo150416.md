@@ -8,7 +8,7 @@ tags : [collections - みんなのたあ坊]
 
 在家裡的晚上，還是喜歡較暗的燈具  
 
-[![](https://farm9.staticflickr.com/8792/16980910189_4657e8432d_z.jpg)](https://farm9.staticflickr.com/8792/16980910189_4657e8432d_z.jpg)
+![](/images/minnanotabo150416.jpg)
 
 06'年的出品，兩塊膠片的走馬燈式檯燈  
 黃燈膽，令整個空間都很柔和舒服  

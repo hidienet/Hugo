@@ -8,11 +8,11 @@ tags : [collections - みんなのたあ坊]
 
 聖誕節還是有點裝飾才有點氣氛  
 
-[![](https://2.bp.blogspot.com/-z5w-Qc8jE2k/XCiOhB--EhI/AAAAAAAADQY/_LET3NAr-AEHDBWiEf4cZE_qcFBn-ALrwCLcBGAs/s640/80.jpg)](https://2.bp.blogspot.com/-z5w-Qc8jE2k/XCiOhB--EhI/AAAAAAAADQY/_LET3NAr-AEHDBWiEf4cZE_qcFBn-ALrwCLcBGAs/s1600/80.jpg)
+![](/images/minnanotabo131222.jpg)
 
 一面是大大個頭拿住禮物  
 
-[![](https://1.bp.blogspot.com/-QZtMQSUjxos/XCiOm8DBF7I/AAAAAAAADQc/BjBO42CuPDka8fIRSid_gszwT8ClGoS2ACLcBGAs/s640/81.jpg)](https://1.bp.blogspot.com/-QZtMQSUjxos/XCiOm8DBF7I/AAAAAAAADQc/BjBO42CuPDka8fIRSid_gszwT8ClGoS2ACLcBGAs/s1600/81.jpg)
+![](/images/minnanotabo131222a.jpg)
 
 另一面是跟朋友在一起  
   

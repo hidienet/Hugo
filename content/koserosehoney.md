@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 
 讓身體每個角落都帶有甜蜜的玫瑰味（飄香～）  
 
-[![](https://farm8.staticflickr.com/7377/16461809925_9cf9ccd75b_z.jpg)](https://farm8.staticflickr.com/7377/16461809925_9cf9ccd75b_z.jpg)
+![](/images/koserosehoney.jpg)
 
 上下兩層的身體用精華油  
 塗抹在身上很清爽，連半點油分都沒有  

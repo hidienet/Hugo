@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂, made by H - 愛膚�
 含有豐富營養，又可以去角質  
 更能有美白功效，不敷敷不行喔～  
 
-[![](https://1.bp.blogspot.com/-xYdILwefRy8/XEMmyMmADbI/AAAAAAAAFwY/ozZHKPVxUJgkwzhCs1d5emdWZNWR951JQCLcBGAs/s640/14390051226_9bc3c8d1f6_z.jpg)](https://1.bp.blogspot.com/-xYdILwefRy8/XEMmyMmADbI/AAAAAAAAFwY/ozZHKPVxUJgkwzhCs1d5emdWZNWR951JQCLcBGAs/s1600/14390051226_9bc3c8d1f6_z.jpg)
+![](/images/riceyogurtmask.jpg)
 
 最重要是簡單：  
 米糠粉+乳酪，份量是1:1  
@@ -33,4 +33,4 @@ mix好後放上面5-10分鐘
   
 太簡單又有效，本小姐超愛敷喔～  
   
-ps, 米糠粉我在韓國買；[乳酪是自家製的](http://www.hidie.net/2014/06/x-honey-walnut-yogurt.html) :p
+ps, 米糠粉我在韓國買；[乳酪是自家製的](https://hidie.net/yogurtmachine/) :p

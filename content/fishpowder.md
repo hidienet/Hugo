@@ -10,7 +10,7 @@ tags : [made by H - 開伙]
 就自己動手吧！  
 充滿海鮮風味的魚仔粉  
 
-[![](https://farm8.staticflickr.com/7465/15569544484_6d97afec8d_z.jpg)](https://farm8.staticflickr.com/7465/15569544484_6d97afec8d_z.jpg)
+![](/images/fishpowder.jpg)
 
 海水味足帶有鹹鹹的味道  
 材料只是鰹魚片加上小魚乾仔  
@@ -23,11 +23,11 @@ tags : [made by H - 開伙]
 旅行的時候很愛買這些魚毛蝦毛  
 因為又平又新鮮又多選擇  
 
-[![](https://farm8.staticflickr.com/7482/16190050001_7baeb474be_z.jpg)](https://farm8.staticflickr.com/7482/16190050001_7baeb474be_z.jpg)
+![](/images/fishpowder1.jpg)
 
-（from沖縄）  
+（from[沖縄](https://hidie.net/okinawa6d5n/)）  
 
-[![](https://farm8.staticflickr.com/7561/16191156842_48055fd529_z.jpg)](https://farm8.staticflickr.com/7561/16191156842_48055fd529_z.jpg)
+![](/images/fishpowder2.jpg)
 
-（from釜山）  
+（from[釜山](https://hidie.net/busanjj8d7n/)）  
 純天然的東西感覺也吃得很安心呢（笑）

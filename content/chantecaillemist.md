@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, lifestyle - rosy rosy]
 
 我噴我噴我噴，貴婦級五月玫瑰水  
 
-[![](https://1.bp.blogspot.com/-o_3Nt6Vrhss/XEMrvx6aBuI/AAAAAAAAFyE/Qcxsz7lJ-WkltudG6lF6B2Q2pAWKl0BNQCLcBGAs/s640/14417430055_7b9868785c_z.jpg)](https://1.bp.blogspot.com/-o_3Nt6Vrhss/XEMrvx6aBuI/AAAAAAAAFyE/Qcxsz7lJ-WkltudG6lF6B2Q2pAWKl0BNQCLcBGAs/s1600/14417430055_7b9868785c_z.jpg)
+![](/images/chantecaillemist.jpg)
 
 純法國五月的玫瑰水  
 特意提月份是因為只會用五月採集的玫瑰  

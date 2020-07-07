@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外, made by H - 愛膚堅]
 hydrogel mask比不織布mask會貴少少  
 所以一定要用到盡（握拳）  
 
-[![](https://2.bp.blogspot.com/-npFSm0c2-uY/XC3rbUQM1SI/AAAAAAAADvQ/0p08mbbdoeoSslVIxRiLbGkSqvghC9vzACLcBGAs/s640/03.jpg)](https://2.bp.blogspot.com/-npFSm0c2-uY/XC3rbUQM1SI/AAAAAAAADvQ/0p08mbbdoeoSslVIxRiLbGkSqvghC9vzACLcBGAs/s1600/03.jpg)
+![](/images/diyhydrogel.jpg)
 
 這一舊的jelly就是用hydrogel mask製成  
 相比在面膜袋裡喪抹的精華  

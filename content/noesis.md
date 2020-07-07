@@ -12,7 +12,7 @@ tags : [lifestyle - 廚娘育成配件]
 亦不喜歡戴著那些臭膠味手套  
   
 
-[![](https://farm9.staticflickr.com/8664/15704823379_15ee512583_z.jpg)](https://farm9.staticflickr.com/8664/15704823379_15ee512583_z.jpg)
+![](/images/noesis.jpg)
 
 可是有這塊布的出現  
 就輕鬆地解決了以上問題  

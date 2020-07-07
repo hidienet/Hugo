@@ -18,7 +18,7 @@ tags : [glamorous - 蛋臉以外, made by H - 愛膚堅]
 乳木果油橄欖油葡萄籽油甜杏仁油等均可  
 拌勻後入瓶後即成  
 
-[![](https://1.bp.blogspot.com/-CM2po24DVbw/XDC0Wxb6f-I/AAAAAAAAESQ/Gbey0RNwXe0doQSCDJsSBwrSDFc1Y2w-ACLcBGAs/s640/85.jpg)](https://1.bp.blogspot.com/-CM2po24DVbw/XDC0Wxb6f-I/AAAAAAAAESQ/Gbey0RNwXe0doQSCDJsSBwrSDFc1Y2w-ACLcBGAs/s1600/85.jpg)
+![](/images/coffeescrub.jpg)
 
 用時只取需要份量加上磨呀磨便可  
 去死皮之餘又能滋潤肌膚  

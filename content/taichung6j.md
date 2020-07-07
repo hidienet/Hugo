@@ -8,31 +8,31 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
 
 超「蠔」的晚餐～  
 
-[![](https://4.bp.blogspot.com/-3eX5_BTSHxY/XExNdjikTGI/AAAAAAAAGyg/-Qf-QpLpEF8HBPNAbOeVY5Wocz3FL69rQCLcBGAs/s640/15091778625_08f0b6a253_z.jpg)](https://4.bp.blogspot.com/-3eX5_BTSHxY/XExNdjikTGI/AAAAAAAAGyg/-Qf-QpLpEF8HBPNAbOeVY5Wocz3FL69rQCLcBGAs/s1600/15091778625_08f0b6a253_z.jpg)
+![](/images/taichung6j1.jpg)
 
 （不要拿錯辣椒醬當啤酒來喝喔）  
 先來一份蚵仔煎  
 台式的蚵仔煎還是比潮式的腍身點  
 但蚵仔超鮮這點足以禰補一切  
 
-[![](https://3.bp.blogspot.com/-lFTHMtQJTv4/XExNhq_AVOI/AAAAAAAAGyo/kYmu3MJ9jNIYicJFK1UeSJZVZ_ZR4ceigCLcBGAs/s640/14905136920_735ca6a1ff_z.jpg)](https://3.bp.blogspot.com/-lFTHMtQJTv4/XExNhq_AVOI/AAAAAAAAGyo/kYmu3MJ9jNIYicJFK1UeSJZVZ_ZR4ceigCLcBGAs/s1600/14905136920_735ca6a1ff_z.jpg)
+![](/images/taichung6j2.jpg)
 
 蚵仔粥也是is a must  
 潮州粥的粥底  
 
-[![](https://1.bp.blogspot.com/-L7dv_FEeCNs/XExNmafb2cI/AAAAAAAAGys/r6Bghz6WazUZWAME0H8XvZ3zrtrbMndqQCLcBGAs/s640/14905228917_932108d037_z.jpg)](https://1.bp.blogspot.com/-L7dv_FEeCNs/XExNmafb2cI/AAAAAAAAGys/r6Bghz6WazUZWAME0H8XvZ3zrtrbMndqQCLcBGAs/s1600/14905228917_932108d037_z.jpg)
+![](/images/taichung6j3.jpg)
 
 有蚵粥就不選蚵仔湯  
 蛤仔湯很清甜的也不錯  
 
-[![](https://4.bp.blogspot.com/-VNnIrrTTeUs/XExNrrv7q6I/AAAAAAAAGyw/H8nwblgqtDAtfkfMnSS4RVBzjelVIlOywCLcBGAs/s640/14905199538_fb46acecee_z.jpg)](https://4.bp.blogspot.com/-VNnIrrTTeUs/XExNrrv7q6I/AAAAAAAAGyw/H8nwblgqtDAtfkfMnSS4RVBzjelVIlOywCLcBGAs/s1600/14905199538_fb46acecee_z.jpg)
+![](/images/taichung6j4.jpg)
 
 怕不夠飽肚就要了個炒米粉  
 當然是有蚵在中的  
 也有吃炒菜，飲食要均衡  
   
 
-[![](https://2.bp.blogspot.com/-41IcX1kWo1E/XExNv5Gc8MI/AAAAAAAAGy0/m6UbSOgzVc4bxA2IU2m8VBi3meqCXP7VgCLcBGAs/s640/14905137270_431eb19247_z.jpg)](https://2.bp.blogspot.com/-41IcX1kWo1E/XExNv5Gc8MI/AAAAAAAAGy0/m6UbSOgzVc4bxA2IU2m8VBi3meqCXP7VgCLcBGAs/s1600/14905137270_431eb19247_z.jpg)
+![](/images/taichung6j5.jpg)
 
 據說很有特色的蚵嗲  
 
@@ -44,7 +44,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
 就覺得這裡的味道太淡  
 （連我這個淡味人都認為淡呢）  
 
-[![](https://4.bp.blogspot.com/-A9eXwwEoXrA/XExN3OwzSdI/AAAAAAAAGy8/ZNHoc43aLpY-cIcX3Dk8m82casEo5SUUACLcBGAs/s640/14905227207_f3cfa320e2_z.jpg)](https://4.bp.blogspot.com/-A9eXwwEoXrA/XExN3OwzSdI/AAAAAAAAGy8/ZNHoc43aLpY-cIcX3Dk8m82casEo5SUUACLcBGAs/s1600/14905227207_f3cfa320e2_z.jpg)
+![](/images/taichung6j.jpg)
 
 這碟川燙醋蚵  
 我一粒接一粒吃吃吃入口  
@@ -54,4 +54,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

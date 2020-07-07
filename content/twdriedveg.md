@@ -8,7 +8,7 @@ tags : [flavor - 揀飲宅食]
 
 想不到午餐煮甚麼的話...  
 
-[![](https://2.bp.blogspot.com/-wgNvPG39sqk/XExSjZYwxAI/AAAAAAAAG4A/tGR4GFJ66UEWFHQOvSw2_dq0ewVhh6HowCLcBGAs/s640/15154622831_12f4e0a1d7_z.jpg)](https://2.bp.blogspot.com/-wgNvPG39sqk/XExSjZYwxAI/AAAAAAAAG4A/tGR4GFJ66UEWFHQOvSw2_dq0ewVhh6HowCLcBGAs/s1600/15154622831_12f4e0a1d7_z.jpg)
+![](/images/twdriedveg.jpg)
 
 就把一堆脫水菜放入飯裡面煮就好了  
 蔬菜的味道清甜  
@@ -23,3 +23,8 @@ tags : [flavor - 揀飲宅食]
   
 300公克大大包  
 可以吃上好一段日子呢（笑）
+
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

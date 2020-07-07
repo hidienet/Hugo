@@ -8,18 +8,18 @@ tags : [flavor - 揀飲宅食, made by H - 開伙]
 
 就算多懶也能極速完成的沙律/ 頭盤/ 配菜  
 
-[![](https://farm8.staticflickr.com/7503/16242429232_73f4cac8a5_z.jpg)](https://farm8.staticflickr.com/7503/16242429232_73f4cac8a5_z.jpg)
+![](/images/shiokoji1.jpg)
 
 車厘茄 + 塩麹 + 香草 = 完成！  
 多手殘也能做到  
 分量？塩麹是發酵的鹽加米麹  
 下的稍微多也不會很鹹  
 
-[![](https://farm8.staticflickr.com/7469/16242423542_3f1fa69ac8_z.jpg)](https://farm8.staticflickr.com/7469/16242423542_3f1fa69ac8_z.jpg)
+![](/images/shiokoji2.jpg)
 
 懶人就買現成塩麹  
 
-[![](https://farm8.staticflickr.com/7515/16241389421_d43e260549_z.jpg)](https://farm8.staticflickr.com/7515/16241389421_d43e260549_z.jpg)
+![](/images/shiokoji.jpg)
 
 袋裝更方便擠出  
   

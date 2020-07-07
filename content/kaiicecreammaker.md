@@ -9,7 +9,7 @@ tags : [lifestyle - 廚娘育成配件]
 好鍾意食雪糕嘛  
 咪買部機返屋企整囉  
 
-[![](https://c1.staticflickr.com/5/4377/36625283256_a87661a3b6_z.jpg)](https://c1.staticflickr.com/5/4377/36625283256_a87661a3b6_z.jpg)
+![](/images/kaiicecreammaker.jpg)
 
 圓碌碌好得意  
 冰種夠厚應該好易成功嘅  
@@ -25,7 +25,7 @@ tags : [lifestyle - 廚娘育成配件]
 要食傳統牛奶雪糕就用cream  
 唔同料就做出icecream或者gelato咁  
 食light啲嘅就honey + yogurt整froyo  
-（我有[乳酪機](https://www.hidie.net/2014/06/x-honey-walnut-yogurt.html)啱啱好乜都係自己整）  
+（我有[乳酪機](https://hidie.net/yogurtmachine/)啱啱好乜都係自己整）  
 用果汁做base就係sorbet  
 再加奶製品溝埋就變sherbet  
 連甘酒都做得到sherbet呀，太無敵喇！  

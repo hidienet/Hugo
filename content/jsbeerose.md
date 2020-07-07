@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食, lifestyle - rosy rosy]
 苗栗縣嘅蜂蜜，再配埋乾燥玫瑰嘅花釀  
 真係完全無辦法說服自己唔買囉！  
 
-[![](https://c1.staticflickr.com/1/519/31762187192_f3d8dbb756_z.jpg)](https://c1.staticflickr.com/1/519/31762187192_f3d8dbb756_z.jpg)
+![](/images/jsbeerose.jpg)
 
 玫瑰花浸响濃郁嘅油桐花蜜度  
 慢慢浸到成樽蜜糖都充滿玫瑰花香  

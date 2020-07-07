@@ -10,7 +10,7 @@ tags : [lifestyle - 嗨啲的極樂世界]
 即食麵，不健康  
 辣調味粉，不健康  
 
-[![](https://farm9.staticflickr.com/8625/16165071098_9178fc4ddf_z.jpg)](https://farm9.staticflickr.com/8625/16165071098_9178fc4ddf_z.jpg)
+![](/images/shinramyun.jpg)
 
 早點睡吧...  
   

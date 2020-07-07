@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 日式燒肉又好韓燒也好  
 
-[![](https://farm9.staticflickr.com/8711/16562138114_68de277cf4_z.jpg)](https://farm9.staticflickr.com/8711/16562138114_68de277cf4_z.jpg)
+![](/images/morihachi.jpg)
 
 肉新鮮不醃很好吃  
 醃了也又醃了的好吃  

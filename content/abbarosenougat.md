@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族, lifestyle - rosy rosy]
 以及微酸的紅梅乾  
 加上飄香玫瑰花味  
 
-[![](https://farm9.staticflickr.com/8740/17192157100_d2a01f458f_z.jpg)](https://farm9.staticflickr.com/8740/17192157100_d2a01f458f_z.jpg)
+![](/images/abbarosenougat.jpg)
 
 喔～ 要一邊吃一邊播Abba嗎？  
   

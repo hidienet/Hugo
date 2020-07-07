@@ -9,15 +9,15 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 RoooRoo什倆漉餅行  
 其實是與老店玉珍齋系出同源的餅技  
 
-[![](https://3.bp.blogspot.com/-T9RXi9BpkiM/XExM5zbjo5I/AAAAAAAAGx8/AanhLV0iP90x2IdlSw3FB5tN18ys1qMJwCLcBGAs/s640/14904780687_eb88e9405d_z.jpg)](https://3.bp.blogspot.com/-T9RXi9BpkiM/XExM5zbjo5I/AAAAAAAAGx8/AanhLV0iP90x2IdlSw3FB5tN18ys1qMJwCLcBGAs/s1600/14904780687_eb88e9405d_z.jpg)
+[![](/images/taichung6h1.jpg)
 
 看似包裝高級卻簡約...  
 
-[![](https://4.bp.blogspot.com/-8EH2EDT5JFc/XExM-hm8gkI/AAAAAAAAGyA/Qj6dIO3PfusDWArgBPHYxM8drwqWqp9LACLcBGAs/s640/15091331765_7bc8e585dc_z.jpg)](https://4.bp.blogspot.com/-8EH2EDT5JFc/XExM-hm8gkI/AAAAAAAAGyA/Qj6dIO3PfusDWArgBPHYxM8drwqWqp9LACLcBGAs/s1600/15091331765_7bc8e585dc_z.jpg)
+[![](/images/taichung6h.jpg)
 
 裡面就看到色彩繽紛中風濃厚的藝術畫  
 
-[![](https://4.bp.blogspot.com/-WOjlBh9SweQ/XExNDI0weCI/AAAAAAAAGyE/zVQqaNFfKi834RN2i_D_XowMzL0Q8_PKACLcBGAs/s640/14904650119_47f1ef9664_z.jpg)](https://4.bp.blogspot.com/-WOjlBh9SweQ/XExNDI0weCI/AAAAAAAAGyE/zVQqaNFfKi834RN2i_D_XowMzL0Q8_PKACLcBGAs/s1600/14904650119_47f1ef9664_z.jpg)
+[![](/images/taichung6h2.jpg)
 
 （打開了一千層包裝之後）  
 一小盒裡面兩舊  
@@ -31,4 +31,4 @@ RoooRoo什倆漉餅行
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, lifestyle - rosy rosy]
 嘴唇就會不夠滋潤  
 所以常備多種護唇產品  
 
-[![](https://farm8.staticflickr.com/7597/16950451712_a1087eae12_z.jpg)](https://farm8.staticflickr.com/7597/16950451712_a1087eae12_z.jpg)
+![](/images/omiroselip.jpg)
 
 加上是最愛的玫瑰味（心）  
 這枝以shea butter為基底  

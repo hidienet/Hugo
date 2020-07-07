@@ -9,7 +9,7 @@ tags : [made by H - 開伙]
 宵夜時間，不要吃得太heavy  
 但只吃蔬菜也太可憐了  
 
-[![](https://farm8.staticflickr.com/7656/18027962642_a0358ae828_z.jpg)](https://farm8.staticflickr.com/7656/18027962642_a0358ae828_z.jpg)
+![](/images/yogurtmiso.jpg)
 
 加點醬來吃吧！  
 乳酪 x 味噌，3:1  

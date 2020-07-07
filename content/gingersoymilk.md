@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 早上就是愛喝熱豆漿～  
 
-[![](https://farm9.staticflickr.com/8586/15769096448_8f993f84df_z.jpg)](https://farm9.staticflickr.com/8586/15769096448_8f993f84df_z.jpg)
+![](/images/gingersoymilk.jpg)
 
 家裡有豆漿機，新鮮豆漿想喝就喝  
 黃豆偏寒，尤其冬天還是會加薑一起煮  

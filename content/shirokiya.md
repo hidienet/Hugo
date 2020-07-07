@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 慢慢坐 慢慢食，任由時間溜走吧～  
 
-[![](https://farm8.staticflickr.com/7306/15954103824_6573461922_z.jpg)](https://farm8.staticflickr.com/7306/15954103824_6573461922_z.jpg)
+![](/images/shirokiya1.jpg)
 
 白木屋暖暖豆腐  
 店員會用大桶即場拿出所需分量  
@@ -16,7 +16,7 @@ tags : [flavor - 行膳積腹]
 味道很純粹，所以再加調味鹽就更提味  
 胃部暖起來可以吃生冷東西了～  
 
-[![](https://farm8.staticflickr.com/7332/15956462963_81ec3ac821_z.jpg)](https://farm8.staticflickr.com/7332/15956462963_81ec3ac821_z.jpg)
+![](/images/shirokiya2.jpg)
 
 塩麹美肌啫喱番茄  
 番茄有茄紅素，加上有酵素的塩麹  
@@ -25,14 +25,14 @@ tags : [flavor - 行膳積腹]
 但甜甜不酸的番茄冷盤不錯吃  
 嘴角上揚，開心就能美肌不是嗎？  
 
-[![](https://farm9.staticflickr.com/8666/16390373699_602e400e56_z.jpg)](https://farm9.staticflickr.com/8666/16390373699_602e400e56_z.jpg)
+![](/images/shirokiya.jpg)
 
 池魚刺身  
 店員推介的新鮮池魚  
 新鮮就是好吃！  
 魚味濃，油份高卻不會膩，超讚！  
 
-[![](https://farm8.staticflickr.com/7290/16389006818_6f9e4f8a98_z.jpg)](https://farm8.staticflickr.com/7290/16389006818_6f9e4f8a98_z.jpg)
+![](/images/shirokiya3.jpg)
 
 炸池魚骨  
 魚骨當然不能浪費  
@@ -40,7 +40,7 @@ tags : [flavor - 行膳積腹]
 不過炸了的魚骨送酒太一流（今天喝啤酒）  
 完全沒有不這樣點的道理  
 
-[![](https://farm8.staticflickr.com/7361/16389005658_7a0616374c_z.jpg)](https://farm8.staticflickr.com/7361/16389005658_7a0616374c_z.jpg)
+![](/images/shirokiya4.jpg)
 
 炭燒岩手南部雞  
 鐵板上的熱騰騰燒雞  
@@ -50,7 +50,7 @@ tags : [flavor - 行膳積腹]
 大蔥加熱後非常甜  
 再吸飽雞油，太好吃了吧  
 
-[![](https://farm8.staticflickr.com/7448/16390372569_3e5264abb1_z.jpg)](https://farm8.staticflickr.com/7448/16390372569_3e5264abb1_z.jpg)
+![](/images/shirokiya5.jpg)
 
 岩手南部雞拼特級沖繩豚肉串加蛋黃  
 雞 x 豬的免治肉串  
@@ -58,7 +58,7 @@ tags : [flavor - 行膳積腹]
 再加生蛋黃的「醬」變得更濃更多層次  
 （也減低了熱氣度）  
 
-[![](https://farm8.staticflickr.com/7401/16575013821_83d0d5c644_z.jpg)](https://farm8.staticflickr.com/7401/16575013821_83d0d5c644_z.jpg)
+![](/images/shirokiya6.jpg)
 
 自家製火炙特級沖繩豚叉燒  
 沖繩豬本身帶濃香的豬味  
@@ -67,7 +67,7 @@ tags : [flavor - 行膳積腹]
 肉口鬆化，豬油在口裡四散  
 （邊打字變流口水）  
 
-[![](https://farm8.staticflickr.com/7396/16575016471_0ee7e70cb0_z.jpg)](https://farm8.staticflickr.com/7396/16575016471_0ee7e70cb0_z.jpg)
+![](/images/shirokiya7.jpg)
 
 牛筋煮  
 其實沒有對煮物有特別喜好  
@@ -77,14 +77,14 @@ tags : [flavor - 行膳積腹]
 右邊的波波不是豬肉丸是芋頭  
 又皆因芋頭很好吃所以...  
 
-[![](https://farm8.staticflickr.com/7381/16550674256_1919d55862_z.jpg)](https://farm8.staticflickr.com/7381/16550674256_1919d55862_z.jpg)
+![](/images/shirokiya8.jpg)
 
 山芋三式菌鍋  
 叫了個有山芋的鍋！  
 （好吧，我愛吃根菜類）  
 不過，說好了的山芋呢？  
 
-[![](https://farm8.staticflickr.com/7343/16576686235_a70f965d33_z.jpg)](https://farm8.staticflickr.com/7343/16576686235_a70f965d33_z.jpg)
+![](/images/shirokiya9.jpg)
 
 煮好後才倒入喔～  
 黏黏的，整個鍋都很濃郁濃郁  

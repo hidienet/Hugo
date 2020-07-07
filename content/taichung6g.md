@@ -10,7 +10,7 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 其實是宜蘭那種  
 跟這款鹿港版本的完全不同的喔～  
 
-[![](https://1.bp.blogspot.com/-rJJLaaDkBl8/XExMwiz6XxI/AAAAAAAAGx4/-d2mqu23UFYDJiHYxxa_tMHW3sD12pmrQCLcBGAs/s640/9976961235_a8fec29a6d_z.jpg)](https://1.bp.blogspot.com/-rJJLaaDkBl8/XExMwiz6XxI/AAAAAAAAGx4/-d2mqu23UFYDJiHYxxa_tMHW3sD12pmrQCLcBGAs/s1600/9976961235_a8fec29a6d_z.jpg)
+![](/images/taichung6g.jpg)
 
 宜蘭那種形狀窄長薄  
 脆脆硬硬的而且無內餡  
@@ -24,4 +24,4 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

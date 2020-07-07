@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 
 就是要去個小便都香過人！  
 
-[![](https://3.bp.blogspot.com/-23d0E1Od4jE/XEQS2FdYDcI/AAAAAAAAGIw/hsPUmood-X8DyR1VKP2UjcOmXxYFteOvwCLcBGAs/s640/14714407401_d17d03c272_z.jpg)](https://3.bp.blogspot.com/-23d0E1Od4jE/XEQS2FdYDcI/AAAAAAAAGIw/hsPUmood-X8DyR1VKP2UjcOmXxYFteOvwCLcBGAs/s1600/14714407401_d17d03c272_z.jpg)
+![](/images/milkydressoil.jpg)
 
 純植物性精油  
 玫瑰佛手柑檸檬皮橙皮薰衣草  

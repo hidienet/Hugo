@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 怕肥又懶但想吃糖？就做這個！  
 
-[![](https://3.bp.blogspot.com/-xTRmLAetMHw/XCOJqILcI0I/AAAAAAAABzY/OYCrc7NjBZQgkkAfhFs9X-DhgUsOVb6kwCLcBGAs/s640/p5.jpg)](https://3.bp.blogspot.com/-xTRmLAetMHw/XCOJqILcI0I/AAAAAAAABzY/OYCrc7NjBZQgkkAfhFs9X-DhgUsOVb6kwCLcBGAs/s1600/p5.jpg)
+![](/images/kinakoame.jpg)
 
 簡單：不論材料與做法， 手殘者也不會失敗  
 省時：幾分鐘內完成  

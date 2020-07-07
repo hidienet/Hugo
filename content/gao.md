@@ -43,7 +43,7 @@ blog也會繼續好好寫落去
 暫時未有停的打算  
 只是懶一點，反正我一直都很懶不是嗎？  
 
-[![](https://farm9.staticflickr.com/8754/16693986128_fefb8279fa_z.jpg)](https://farm9.staticflickr.com/8754/16693986128_fefb8279fa_z.jpg)
+![](/images/gao.jpg)
 
 自己搞搞震著的前路  
 不過我相信**我一定會更好**的！（握拳）

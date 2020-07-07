@@ -9,7 +9,7 @@ tags : [made by H - 愛膚堅]
 氣候乾燥、轉天氣時抗敏褪紅、美白、消炎殺菌殺痘痘...  
 就潔面後以綠茶水代替清水來洗面吧～  
 
-[![](https://farm8.staticflickr.com/7505/15966259625_1bfcbfe229_z.jpg)](https://farm8.staticflickr.com/7505/15966259625_1bfcbfe229_z.jpg)
+![](/images/greenteawater.jpg)
 
 懶懶的不喜歡每次溶綠茶粉  
 所以用的都是這種冷水浸出茶包  

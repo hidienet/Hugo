@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 可是8x4這系列曾經實在太火紅  
 又有這種sweet rose味道，就試試吧～  
 
-[![](https://4.bp.blogspot.com/-Fcw1rx_xXJ0/XEMof01uXkI/AAAAAAAAFxE/WI9flEY7IXw0rWQXKRzKbILok_ySGbw2ACLcBGAs/s640/14394252066_fa2be60aee_z.jpg)](https://4.bp.blogspot.com/-Fcw1rx_xXJ0/XEMof01uXkI/AAAAAAAAFxE/WI9flEY7IXw0rWQXKRzKbILok_ySGbw2ACLcBGAs/s1600/14394252066_fa2be60aee_z.jpg)
+![](/images/kao8x4.jpg)
 
 呃～ 噴出來的玫瑰味好假  
 雖然也知道壓縮品  

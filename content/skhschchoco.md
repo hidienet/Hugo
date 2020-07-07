@@ -8,7 +8,7 @@ tags : [lifestyle - 嗨啲的極樂世界]
 
 今年P送的聖誕禮物，一定要記錄下來（！）  
 
-[![](https://farm8.staticflickr.com/7524/16040904205_7192349fa9_z.jpg)](https://farm8.staticflickr.com/7524/16040904205_7192349fa9_z.jpg)
+![](/images/skhschchoco.jpg)
 
 這是義賣版的朱古力  
 聖基道兒童院除了收容孤兒外  

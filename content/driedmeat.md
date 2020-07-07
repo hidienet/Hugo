@@ -14,7 +14,7 @@ tags : [made by H - 開伙]
 （煲完湯出了味，肉無味又不嫩滑不好吃）  
 製作成肉鬆，最重要是製法簡單：  
 
-[![](https://4.bp.blogspot.com/-CFL6TnHXUyw/XE24c9KvtaI/AAAAAAAAHuk/r5hRv9lhbDoosj7Wl82ZVkLOWvnTqT-oACLcBGAs/s640/15551555157_d143934a46_z.jpg)](https://4.bp.blogspot.com/-CFL6TnHXUyw/XE24c9KvtaI/AAAAAAAAHuk/r5hRv9lhbDoosj7Wl82ZVkLOWvnTqT-oACLcBGAs/s1600/15551555157_d143934a46_z.jpg)
+![](/images/driedmeat.jpg)
 
 煲湯肉從湯中撈起  
 簡單用手撕開一條條  

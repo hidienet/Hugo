@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 
 比我整隻手還要大～  
 
-[![](https://3.bp.blogspot.com/-g__TAoJInyU/XEwEp4kCLtI/AAAAAAAAGaw/IqoBGg8PFiQxqnavcD9PDeH4v5Ic9MpzQCLcBGAs/s640/14445869573_078f64ec54_z.jpg)](https://3.bp.blogspot.com/-g__TAoJInyU/XEwEp4kCLtI/AAAAAAAAGaw/IqoBGg8PFiQxqnavcD9PDeH4v5Ic9MpzQCLcBGAs/s1600/14445869573_078f64ec54_z.jpg)
+![](/images/taichung1f.jpg)
 
 即食就好爽脆；放多一會就淋身  
 超juicy，非常甜美  
@@ -18,4 +18,4 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

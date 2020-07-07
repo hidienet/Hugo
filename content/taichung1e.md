@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 
 好喜歡臺灣的QQ麻糬～  
 
-[![](https://1.bp.blogspot.com/-3hkGGrIdl2Q/XEv-oQ-YIpI/AAAAAAAAGao/injmWNlYOyELy9ChKhshPIPFtgutTbXYACLcBGAs/s640/9718420436_aaa56bf508_z.jpg)](https://1.bp.blogspot.com/-3hkGGrIdl2Q/XEv-oQ-YIpI/AAAAAAAAGao/injmWNlYOyELy9ChKhshPIPFtgutTbXYACLcBGAs/s1600/9718420436_aaa56bf508_z.jpg)
+![](/images/taichung1e.jpg)
 
 （好似弁当箱呢）  
 這家賣的是小粒麻糬  
@@ -19,4 +19,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

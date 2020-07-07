@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 
 悶熱的天氣當然想舒舒服服地hea  
 
-[![](https://1.bp.blogspot.com/-Ju4QHdi7xpY/XExMYbRH0sI/AAAAAAAAGxk/Bryn44BHzcwKcPVy4M3cmMEm3Burjh2eQCLcBGAs/s640/14904564637_3b6d694263_z.jpg)](https://1.bp.blogspot.com/-Ju4QHdi7xpY/XExMYbRH0sI/AAAAAAAAGxk/Bryn44BHzcwKcPVy4M3cmMEm3Burjh2eQCLcBGAs/s1600/14904564637_3b6d694263_z.jpg)
+![](/images/taichung6e.jpg)
 
 這裡有冷氣坐的位置都很舒適  
 大大塊落地玻璃可以看「風景」  
@@ -19,4 +19,4 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

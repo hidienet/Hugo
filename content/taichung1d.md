@@ -8,17 +8,17 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 
 高山burger～  
 
-[![](https://3.bp.blogspot.com/-QuzXW7Padco/XEv-SpDcDFI/AAAAAAAAGaY/WZKgGbDcl4w5exp28-J7Gqi94G_iZSDXACLcBGAs/s640/14422095191_276b701712_z.jpg)](https://3.bp.blogspot.com/-QuzXW7Padco/XEv-SpDcDFI/AAAAAAAAGaY/WZKgGbDcl4w5exp28-J7Gqi94G_iZSDXACLcBGAs/s1600/14422095191_276b701712_z.jpg)
+![](/images/taichung1d1.jpg)
 
 海拔1743公尺，臺灣最高  
 
-[![](https://4.bp.blogspot.com/--6VzUp81v0M/XEv-XH8sucI/AAAAAAAAGac/h5fVSPyZ4-Ii99-i8Iyjj1yIobnGyh-IQCLcBGAs/s640/14424308034_628f512f67_z.jpg)](https://4.bp.blogspot.com/--6VzUp81v0M/XEv-XH8sucI/AAAAAAAAGac/h5fVSPyZ4-Ii99-i8Iyjj1yIobnGyh-IQCLcBGAs/s1600/14424308034_628f512f67_z.jpg)
+![](/images/taichung1d.jpg)
 
 蔬菜汁，跟kagome橙色那枝味道差不多  
 蘋果蒟蒻，甜甜的jelly  
 最右邊的等食「飛碟」XD  
 
-[![](https://3.bp.blogspot.com/-wh9WtnJdkfU/XEv-bfveifI/AAAAAAAAGag/OTu2oVNQi80x12zJ0reaUe_2WO4awwtXgCLcBGAs/s640/14424309664_af47e38a10_z.jpg)](https://3.bp.blogspot.com/-wh9WtnJdkfU/XEv-bfveifI/AAAAAAAAGag/OTu2oVNQi80x12zJ0reaUe_2WO4awwtXgCLcBGAs/s1600/14424309664_af47e38a10_z.jpg)
+![](/images/taichung1d2.jpg)
 
 買set送的不織布袋  
 都幾可愛，反正香港不會有  
@@ -26,4 +26,4 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

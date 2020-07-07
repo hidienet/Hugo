@@ -1,5 +1,5 @@
 ---
-title: '紅豆水'
+title: '[飲] 紅豆水'
 date: 2014-10-03T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/blog-post.html" ]

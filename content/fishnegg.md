@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 這些要料理的早餐只能在星期日做．．．  
 
-[![](https://1.bp.blogspot.com/-eIvPqqEN-90/XCOJ7ss5XcI/AAAAAAAABzg/HKoGsrUQ8nMyrLvw2eBCBqcejBJABpupQCLcBGAs/s640/p6.jpg)](https://1.bp.blogspot.com/-eIvPqqEN-90/XCOJ7ss5XcI/AAAAAAAABzg/HKoGsrUQ8nMyrLvw2eBCBqcejBJABpupQCLcBGAs/s1600/p6.jpg)
+![](/images/fishnegg.jpg)
 
 從小愛吃蛋，不論煎炒蒸煮炸燜燉焗  
 但水煮全熟者絕對不在此限！  

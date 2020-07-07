@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 擺明是「伙頭仔昆布」上身！  
 
-[![](https://farm8.staticflickr.com/7350/16565626476_d3662901d5_z.jpg)](https://farm8.staticflickr.com/7350/16565626476_d3662901d5_z.jpg)
+![](/images/marshmallowsenbei.jpg)
 
 突然想吃點心  
 但又不願吃全甜的東西  

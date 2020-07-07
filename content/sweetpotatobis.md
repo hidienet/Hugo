@@ -6,9 +6,9 @@ aliases: [ "/2013/10/blog-post_3948.html" ]
 tags : [made by H - 開伙]
 ---
 
-一整袋蕃薯只做[茶巾](http://www.hidie.net/2013/10/blog-post_6.html)？no way！  
+一整袋蕃薯只做[茶巾](https://hidie.net/sweetpotatowagashi/)？no way！  
 
-[![](https://2.bp.blogspot.com/-AuHeQvVsKJg/XCORIF1QdSI/AAAAAAAAB2g/IrIU7cFRodMGtXHQpkkHgbttQokTqL3_ACLcBGAs/s640/19.jpg)](https://2.bp.blogspot.com/-AuHeQvVsKJg/XCORIF1QdSI/AAAAAAAAB2g/IrIU7cFRodMGtXHQpkkHgbttQokTqL3_ACLcBGAs/s1600/19.jpg)
+![](/images/sweetpotatobis.jpg)
 
 蒸熟後成蓉的蕃薯，  
 加上麵粉和牛油（我家只有無鹽那種）  

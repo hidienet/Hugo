@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 暖身飲品怎能少了薑蜜這東西？  
 
-[![](https://farm8.staticflickr.com/7518/15876186320_1fc39a18ff_z.jpg)](https://farm8.staticflickr.com/7518/15876186320_1fc39a18ff_z.jpg)
+![](/images/gingerhoney.jpg)
 
 把薑磨蓉後與蜂蜜混合即可  
 用food processor也可以不過變成薑粒不夠辣  

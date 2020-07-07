@@ -8,7 +8,7 @@ tags : [lifestyle - 廚娘育成配件]
 
 手殘女搖身一變成為咖啡拉花大師（傲）  
 
-[![](https://farm9.staticflickr.com/8641/15939883590_cde73911e1_z.jpg)](https://farm9.staticflickr.com/8641/15939883590_cde73911e1_z.jpg)
+![](/images/lattemaker.jpg)
 
 能做出超超超可愛造型的3D奶泡機！！！  
 用脫脂奶或無調整豆奶做奶泡  

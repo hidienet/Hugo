@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂, lifestyle - rosy ros
 臺灣的臺灣的臺灣的  
 不是保加利亞買的，OK？  
 
-[![](https://4.bp.blogspot.com/-3HaxLH3BdCY/XEMrhVU2yiI/AAAAAAAAFyA/YvRVK7np52sJ6Mz0svBpiwfFpBqIUl9QgCLcBGAs/s640/9999788526_105af28bcb_z.jpg)](https://4.bp.blogspot.com/-3HaxLH3BdCY/XEMrhVU2yiI/AAAAAAAAFyA/YvRVK7np52sJ6Mz0svBpiwfFpBqIUl9QgCLcBGAs/s1600/9999788526_105af28bcb_z.jpg)
+![](/images/mbdburose.jpg)
 
 打開時，噢～ 那不是保加利亞的玫瑰味  
 其實都沒甚麼氣味  

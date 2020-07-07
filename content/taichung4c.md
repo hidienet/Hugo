@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 
 到達鹿港，放低行李後當然是要找吃的  
 
-[![](https://2.bp.blogspot.com/-cRMPBbe1ENk/XEwmzRyUL-I/AAAAAAAAGjI/9_-ibIfsXAwnEn0u-cZDJRmb5aau7HdjQCLcBGAs/s640/14975958566_83f067acfc_z.jpg)](https://2.bp.blogspot.com/-cRMPBbe1ENk/XEwmzRyUL-I/AAAAAAAAGjI/9_-ibIfsXAwnEn0u-cZDJRmb5aau7HdjQCLcBGAs/s1600/14975958566_83f067acfc_z.jpg)
+![](/images/taichung4c.jpg)
 
 滿滿料子的粳（羹）  
 主料有魷魚蝦丸同肉丸  
@@ -25,4 +25,4 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

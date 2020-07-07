@@ -12,7 +12,7 @@ tags : [lifestyle - 嗨啲的極樂世界]
 不過亦要拿隻紙老虎準備一下  
 沒錯～ 今天是驚蟄，宜打小人  
 
-[![](https://3.bp.blogspot.com/-MSPs4AA5Rq4/XC3tCOBWsKI/AAAAAAAADv4/5LfWiyiLHcAG1Xtt0m01nVW8AiUiM5e3ACLcBGAs/s640/09.jpg)](https://3.bp.blogspot.com/-MSPs4AA5Rq4/XC3tCOBWsKI/AAAAAAAADv4/5LfWiyiLHcAG1Xtt0m01nVW8AiUiM5e3ACLcBGAs/s1600/09.jpg)
+![](/images/tiger.jpg)
 
 專業打手雲集  
 今天鵝頸橋橋底會有好多人  

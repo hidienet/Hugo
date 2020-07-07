@@ -9,7 +9,7 @@ tags : [made by H - 開伙]
 醃小菜，就是為了不知道有什麼好煮的時候有東西吃  
 也可以在喝酒時有佐酒的小吃吧  
 
-[![](https://2.bp.blogspot.com/-pwciPL79iLk/XCdmMEnKGyI/AAAAAAAACrE/BmX0xDiKIBoD6_GLqKMM3AXlDNAzG8YuwCLcBGAs/s640/36.jpg)](https://2.bp.blogspot.com/-pwciPL79iLk/XCdmMEnKGyI/AAAAAAAACrE/BmX0xDiKIBoD6_GLqKMM3AXlDNAzG8YuwCLcBGAs/s1600/36.jpg)
+![](/images/sourdaikon.jpg)
 
 白蘿蔔洗淨抹乾後去皮切片狀條狀也可  
 （皮較韌，醃另一種的會比這個好吃）  
@@ -22,10 +22,8 @@ tags : [made by H - 開伙]
 
   
 
-味道酸酸辣辣，也因為加了蜜糖的味道
-
-令整道蘿蔔不只有單一口味
-
+味道酸酸辣辣，也因為加了蜜糖的味道  
+令整道蘿蔔不只有單一口味  
 爽薄片脆，條狀耐嚼
 
   

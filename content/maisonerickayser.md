@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 啊～ 好好食呀好好食呀（喪loop）  
 
-[![](https://farm6.staticflickr.com/5469/17756995392_5ac23df6d5_z.jpg)](https://farm6.staticflickr.com/5469/17756995392_5ac23df6d5_z.jpg)
+![](/images/maisonerickayser.jpg)
 
 外面夠脆中間鬆軟又超多層  
 牛油味爆香濃  

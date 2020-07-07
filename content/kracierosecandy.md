@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, lifestyle - rosy rosy]
 
 說得出來的玫瑰氣味  
 
-[![](https://4.bp.blogspot.com/-5j_q7jQaqXQ/XDC16HgSuXI/AAAAAAAAETY/547vfnr04dknvExoEDClNw4R15GKXRQqgCLcBGAs/s640/94.jpg)](https://4.bp.blogspot.com/-5j_q7jQaqXQ/XDC16HgSuXI/AAAAAAAAETY/547vfnr04dknvExoEDClNw4R15GKXRQqgCLcBGAs/s1600/94.jpg)
+![](/images/kracierosecandy.jpg)
 
 這粒糖外面是脆脆的皮  
 包住半軟的溏心  

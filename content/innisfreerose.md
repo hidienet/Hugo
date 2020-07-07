@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂, lifestyle - rosy ros
 
 與一大紮玫瑰一同入睡  
 
-[![](https://4.bp.blogspot.com/-irOQlPQFD_c/XEMslObRtBI/AAAAAAAAFys/meD6BkfmSCk6zY-nxTerELH-FarPfdeGwCLcBGAs/s640/14417693755_457a9dce14_z.jpg)](https://4.bp.blogspot.com/-irOQlPQFD_c/XEMslObRtBI/AAAAAAAAFys/meD6BkfmSCk6zY-nxTerELH-FarPfdeGwCLcBGAs/s1600/14417693755_457a9dce14_z.jpg)
+![](/images/innisfreerose.jpg)
 
 玫瑰氣味不太濃也不會太假  
 內含20ml精華說不上很多  

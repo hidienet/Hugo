@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 這個這個這個超超超超好食（激動）  
 
-[![](https://1.bp.blogspot.com/-LTHO1zfnT58/XExss1sHxfI/AAAAAAAAG6Y/mpY2OOKWcSwyLM6q4S_LrySnS6KiadtmwCLcBGAs/s640/9758566236_8acd9a6f16_z.jpg)](https://1.bp.blogspot.com/-LTHO1zfnT58/XExss1sHxfI/AAAAAAAAG6Y/mpY2OOKWcSwyLM6q4S_LrySnS6KiadtmwCLcBGAs/s1600/9758566236_8acd9a6f16_z.jpg)
+![](/images/luyaoori.jpg)
 
 微鹹的脫水脆身香菇  
 菇味濃卻沒有一點草腥味  
@@ -19,3 +19,8 @@ tags : [flavor - 小食部]
 再放軟反而有點浪費  
   
 實在太太太美味了（心）
+
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

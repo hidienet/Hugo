@@ -14,7 +14,7 @@ tags : [made by H - 開伙]
 甚麼也好，既然要吃的話  
 就自己弄 出來...  
 
-[![](https://farm9.staticflickr.com/8609/15778772109_092c8e3c61_z.jpg)](https://farm9.staticflickr.com/8609/15778772109_092c8e3c61_z.jpg)
+![](/images/peanutbutter.jpg)
 
 材料只・是・花・生，that's all  
 把花生炒香後去皮  

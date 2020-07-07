@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食, lifestyle - rosy rosy]
 保加利亞出那麼多玫瑰  
 除了使用當然少不了食用的  
 
-[![](https://2.bp.blogspot.com/-SkRKb2cBNvw/XEMfpQ-q5vI/AAAAAAAAFsY/XLtDRf7NrQYrsl-qhAEdLBIGlc_kjLdNQCLcBGAs/s640/14371879524_e5c06548a2_z.jpg)](https://2.bp.blogspot.com/-SkRKb2cBNvw/XEMfpQ-q5vI/AAAAAAAAFsY/XLtDRf7NrQYrsl-qhAEdLBIGlc_kjLdNQCLcBGAs/s1600/14371879524_e5c06548a2_z.jpg)
+![](/images/rosesyrup.jpg)
 
 玫瑰花茶就看不見  
 因為可以喝的品種不多  

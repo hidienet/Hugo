@@ -16,7 +16,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 原本想點「招牌冰」（米苔目 + 粉條 + 粉粿）  
 不過更想食愛玉，所以...  
 
-[![](https://1.bp.blogspot.com/-SF4VFoBpSx4/XEwnUIhyUII/AAAAAAAAGjc/N7t3sco4RdwzOpnCcoutkfx7GV4jdosWQCLcBGAs/s640/15005483082_c767261965_z.jpg)](https://1.bp.blogspot.com/-SF4VFoBpSx4/XEwnUIhyUII/AAAAAAAAGjc/N7t3sco4RdwzOpnCcoutkfx7GV4jdosWQCLcBGAs/s1600/15005483082_c767261965_z.jpg)
+![](/images/taichung4e.jpg)
 
 米苔目 + 愛玉 + 粉粿  
 加上這樣的天氣中最重要的冰山一座  
@@ -31,4 +31,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

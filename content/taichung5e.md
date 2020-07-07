@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 
 穿過市場，就看到三和珍這個美味的check point  
 
-[![](https://2.bp.blogspot.com/-vMV7l36XC8o/XEwq4XfEshI/AAAAAAAAGmo/JL8qu6WZYaMXUEigznD_WIG-IzHbbPsRgCLcBGAs/s640/9718415130_87ba4f90a5_z.jpg)](https://2.bp.blogspot.com/-vMV7l36XC8o/XEwq4XfEshI/AAAAAAAAGmo/JL8qu6WZYaMXUEigznD_WIG-IzHbbPsRgCLcBGAs/s1600/9718415130_87ba4f90a5_z.jpg)
+![](/images/taichung5e.jpg)
 
 喜歡吃綠豆糕加上這種天氣  
 這家的雪藏綠豆糕必然是不試不行  
@@ -26,4 +26,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

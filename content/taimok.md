@@ -9,20 +9,20 @@ tags : [flavor - 行膳積腹, flavor - 螞蟻族]
 「壯志飢餐胡虜肉，笑談渴飲匈奴血」  
 ㅋㅋㅋ... 我食羊啦不是食人～  
 
-[![](https://farm9.staticflickr.com/8574/16575010922_4fb7783daa_z.jpg)](https://farm9.staticflickr.com/8574/16575010922_4fb7783daa_z.jpg)
+![](/images/taimok1.jpg)
 
 **羊肉串**  
 圖中的串已被迅速「解體」  
 超～ juicy～！  
 有羊味卻沒有一絲羶味，好正！  
 
-[![](https://farm8.staticflickr.com/7311/16550147406_85ded8a296_z.jpg)](https://farm8.staticflickr.com/7311/16550147406_85ded8a296_z.jpg)
+![](/images/taimok.jpg)
 
 **燒羊鞍**  
 必食！必食！必食！  
 強烈推介！不吃會後悔的美味！！！  
 
-[![](https://farm9.staticflickr.com/8602/15955933853_deda299f51_z.jpg)](https://farm9.staticflickr.com/8602/15955933853_deda299f51_z.jpg)
+![](/images/taimok2.jpg)
 
 **哈密瓜炒犛牛肉**  
 「犛」這個字看不慣嗎？  
@@ -30,13 +30,13 @@ tags : [flavor - 行膳積腹, flavor - 螞蟻族]
 甜甜的新疆哈密瓜配上濃郁牛味的炒牛肉  
 又是款不能停的美味  
 
-[![](https://farm9.staticflickr.com/8582/16550147606_a8c185dc90_z.jpg)](https://farm9.staticflickr.com/8582/16550147606_a8c185dc90_z.jpg)
+![](/images/taimok3.jpg)
 
 **串燒南瓜**  
 好大條又腍又甜面層又夠焦香的南瓜  
 好～ 飽～ 肚～  
 
-[![](https://farm8.staticflickr.com/7283/15955933943_8149231412_z.jpg)](https://farm8.staticflickr.com/7283/15955933943_8149231412_z.jpg)
+![](/images/taimok4.jpg)
 
 **羊奶凍**  
 濃濃的奶味但不會羶  

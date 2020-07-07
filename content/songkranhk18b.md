@@ -9,7 +9,7 @@ tags : [lifestyle - 嗨啲的極樂世界]
 睇show唔影嘢  
 一習慣影就睇唔晒個show  
 
-[![](https://c1.staticflickr.com/1/783/41253544572_a30bbb82b3_z.jpg)](https://c1.staticflickr.com/1/783/41253544572_a30bbb82b3_z.jpg)
+![](/images/songkranhk18b.jpg)
 
 個結論就係影得一張比較出得街…  
   
@@ -20,17 +20,17 @@ tags : [lifestyle - 嗨啲的極樂世界]
 全部都以廣東話同泰文介紹自己  
 （無論咩國籍都係兩樣講晒好叻叻㗎）  
 
-[![](https://c1.staticflickr.com/1/805/26424421097_46a8416053_z.jpg)](https://c1.staticflickr.com/1/805/26424421097_46a8416053_z.jpg)
+![](/images/songkranhk18b1.jpg)
 
 市集方面今日多咗檔刺符  
 不過紋身呢家嘢  
 我怕痛呀都係睇人整就夠喇  
 
-[![](https://c1.staticflickr.com/1/786/26424427417_bd28fa078b_z.jpg)](https://c1.staticflickr.com/1/786/26424427417_bd28fa078b_z.jpg)
+![](/images/songkranhk18b2.jpg)
 
 繼續有飯有粉麵有零食啦  
 
-[![](https://c1.staticflickr.com/1/818/40582996424_e79475a4df_z.jpg)](https://c1.staticflickr.com/1/818/40582996424_e79475a4df_z.jpg)
+![](/images/songkranhk18b3.jpg)
 
 喂呀次次行過都冇晒榴槤條㗎，可惡！  
   

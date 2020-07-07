@@ -6,12 +6,13 @@ aliases: [ "/2014/08/day1_17.html" ]
 tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 ---
 
-[![](https://1.bp.blogspot.com/-c4V5mV-fGtw/XEv-JOccs2I/AAAAAAAAGaM/V4vDWeZoapoRdV541X-ShEkFUqF-apeVwCLcBGAs/s640/14402268586_03fc5f759f_z.jpg)](https://1.bp.blogspot.com/-c4V5mV-fGtw/XEv-JOccs2I/AAAAAAAAGaM/V4vDWeZoapoRdV541X-ShEkFUqF-apeVwCLcBGAs/s1600/14402268586_03fc5f759f_z.jpg)
+![](/images/taichung1c.jpg)
 
 可愛的草泥馬～（心）  
   
 ...好忍手，沒有買回家！  
+（根本不喜愛公仔嘛...） 
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

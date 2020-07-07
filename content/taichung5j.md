@@ -8,20 +8,20 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 
 建於日治昭和10年（1935年）的日式穀倉  
 
-[![](/images/taichung5j.jpg)
+![](/images/taichung5j.jpg)
 
 整個穀倉的主體空間為  
 穀倉間、碾米機房、米倉等3大部份  
 
-[![](/images/taichung5j1.jpg)
+![](/images/taichung5j1.jpg)
 
 礱穀機  
 
-[![](/images/taichung5j2.jpg)
+![](/images/taichung5j2.jpg)
 
 木路一條，跟老街的紅磚完全不同  
 
-[![](/images/taichung5j3.jpg)
+![](/images/taichung5j3.jpg)
 
 現在這裡已不是穀倉  
 活化後是藝術跟展覽的地方  

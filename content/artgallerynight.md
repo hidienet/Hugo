@@ -6,7 +6,7 @@ aliases: [ "/2018/03/art-gallery-night-by-hkaga.html" ]
 tags : [amusement - exhibition, lifestyle - 嗨啲的極樂世界]
 ---
 
-[![](https://c1.staticflickr.com/1/811/41008013761_19ab331e27_z.jpg)](https://c1.staticflickr.com/1/811/41008013761_19ab331e27_z.jpg)
+![](/images/artgallerynight.jpg)
 
 今日...  
 冇嘢可以  

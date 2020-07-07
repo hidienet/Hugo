@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 
 ![](/images/taichung3e.jpg)
 
-牛奶味，包裝比雪條裝漂亮  
+牛奶味，包裝比[雪條裝](https://hidie.net/taichung2f/)漂亮  
 
 ![](/images/taichung3e1.jpg)
 

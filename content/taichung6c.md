@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 
 愛吃芋頭也要吃冰品消消暑  
 
-[![](https://1.bp.blogspot.com/-thbFlwfglzA/XExL-lZiHzI/AAAAAAAAGxQ/srCzkGKsTKELvcy-QLufzmsCM_VQ5AL3QCLcBGAs/s640/9869913055_c8396dd001_z.jpg)](https://1.bp.blogspot.com/-thbFlwfglzA/XExL-lZiHzI/AAAAAAAAGxQ/srCzkGKsTKELvcy-QLufzmsCM_VQ5AL3QCLcBGAs/s1600/9869913055_c8396dd001_z.jpg)
+![](/images/taichung6c.jpg)
 
 古早味的枝仔冰當然是少不了  
 不死甜的味道才是王道！  
@@ -20,4 +20,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 
 雪糕？喔～ 香港叫這東西是雪條啦  
 
-[![](https://1.bp.blogspot.com/-LCqXC8uSjn4/XEwVFDIc3eI/AAAAAAAAGd4/vpW-z15NWP0EBM0OB1FCLJmwITWvrOtrACLcBGAs/s640/14746754498_8cc0d79ef4_z.jpg)](https://1.bp.blogspot.com/-LCqXC8uSjn4/XEwVFDIc3eI/AAAAAAAAGd4/vpW-z15NWP0EBM0OB1FCLJmwITWvrOtrACLcBGAs/s1600/14746754498_8cc0d79ef4_z.jpg)
+![](/images/taichung2f.jpg)
 
 清境出的羊奶同牛奶雪條  
 （沒有草泥馬奶呢 XDDD）  
@@ -29,4 +29,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

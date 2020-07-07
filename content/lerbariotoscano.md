@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 在陰沉又霉又濕的天氣  
 頭髮就更應帶有清新的香味  
 
-[![](https://farm9.staticflickr.com/8732/16749787585_f344de0076_z.jpg)](https://farm9.staticflickr.com/8732/16749787585_f344de0076_z.jpg)
+![](/images/lerbariotoscano.jpg)
 
 這枝的玫瑰味較清淡  
 不會濃郁得跟雨味有衝突  

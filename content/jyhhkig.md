@@ -6,7 +6,7 @@ aliases: [ "/2017/07/blog-post_23.html" ]
 tags : [lifestyle - 嗨啲的極樂世界]
 ---
 
-![](/images/jyhhkig.JPG)
+![](/images/jyhhkig.jpg)
 
 靚仔還靚仔吖  
 着成咁… 想點呀？

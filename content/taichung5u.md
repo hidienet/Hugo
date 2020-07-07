@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 
 熱賣超過50年的粉粿冰  
 
-[![](https://1.bp.blogspot.com/-nPYl43zNgeE/XEwym7EVszI/AAAAAAAAGt0/ilMi5MCkRq0tO8AOsWgNBmmJXPIWkc1KQCLcBGAs/s640/15057799206_28776ab77d_z.jpg)](https://1.bp.blogspot.com/-nPYl43zNgeE/XEwym7EVszI/AAAAAAAAGt0/ilMi5MCkRq0tO8AOsWgNBmmJXPIWkc1KQCLcBGAs/s1600/15057799206_28776ab77d_z.jpg)
+![](/images/taichung5u.jpg)
 
 粉粿沉冰低，請自行腦補  
 鮮黃色四四方方的QQ粉粿  
@@ -20,4 +20,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

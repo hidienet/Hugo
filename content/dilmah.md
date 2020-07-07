@@ -8,7 +8,7 @@ tags : [flavor - 飲！, lifestyle - rosy rosy]
 
 乍看之下以為個牌子叫“dilama”（噗）  
 
-[![](https://1.bp.blogspot.com/-As1JgBqGcfc/XEMnUAdru4I/AAAAAAAAFw4/JM9Tqs-o5o85xkllg9b_sQF3lt-yUFj_QCEwYBhgL/s640/14394251736_f09d15feaa_z.jpg)](https://1.bp.blogspot.com/-As1JgBqGcfc/XEMnUAdru4I/AAAAAAAAFw4/JM9Tqs-o5o85xkllg9b_sQF3lt-yUFj_QCEwYBhgL/s1600/14394251736_f09d15feaa_z.jpg)
+![](/images/dilmah.jpg)
 
 首先湧出來的是濃甜的vanilla味  
 玫瑰香味也隨之而飄出來  

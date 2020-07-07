@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂, lifestyle - rosy ros
 
 未開包裝盒是已聞到好香的玫瑰味  
 
-[![](https://3.bp.blogspot.com/-L4ntUCLpW34/XEMfg8RM8GI/AAAAAAAAFsU/FOvEsM9uUx0MhyR-HeZMgodaxPT89XtgQCLcBGAs/s640/14184348489_8abd34eeeb_z.jpg)](https://3.bp.blogspot.com/-L4ntUCLpW34/XEMfg8RM8GI/AAAAAAAAFsU/FOvEsM9uUx0MhyR-HeZMgodaxPT89XtgQCLcBGAs/s1600/14184348489_8abd34eeeb_z.jpg)
+![](/images/vipsclay.jpg)
 
 天然粘土加上玫瑰同珍珠  
 具有清潔、撫平皺紋  

@@ -10,14 +10,14 @@ tags : [made by H - 開伙]
 而且超市賣的蕃茄乾跟油浸蕃茄乾都很貴（物離鄉貴！）  
 自己弄又不麻煩，動手～～～  
 
-[![](https://2.bp.blogspot.com/-4QoCojw-0lU/XCeAZ379ZjI/AAAAAAAACyE/TZrGOjLHrZg-9v0G7dnP2xOjti0Eae0jwCLcBGAs/s640/93.jpg)](https://2.bp.blogspot.com/-4QoCojw-0lU/XCeAZ379ZjI/AAAAAAAACyE/TZrGOjLHrZg-9v0G7dnP2xOjti0Eae0jwCLcBGAs/s1600/93.jpg)
+![](/images/tomatooil.jpg)
 
 完成後跟街上買的有得揮啊！  
 加上味道自己調想甚麼味就甚麼味  
   
 開始！  
 
-[![](https://4.bp.blogspot.com/-MxqeRBJ9dCM/XCeAg-4NRGI/AAAAAAAACyM/0wb6H2H-QCcMKso85MehfQ_qx8bGtFkeQCLcBGAs/s640/94.jpg)](https://4.bp.blogspot.com/-MxqeRBJ9dCM/XCeAg-4NRGI/AAAAAAAACyM/0wb6H2H-QCcMKso85MehfQ_qx8bGtFkeQCLcBGAs/s1600/94.jpg)
+![](/images/tomatooil1.jpg)
 
 （1）把車厘茄洗淨抹乾後切半  
 整齊地放在焗盤，再撒上鹽  
@@ -29,7 +29,7 @@ tags : [made by H - 開伙]
 ＊如果能日曬曬乾是最好，但時間很長  
 ＊想弄半乾版就不用焗那麼久  
 
-[![](https://2.bp.blogspot.com/-Y4EB4phtFdY/XCeAoQmyyGI/AAAAAAAACyQ/nAac2KdIFpUiPFizg7-22xOPhX8w3T1lACLcBGAs/s640/95.jpg)](https://2.bp.blogspot.com/-Y4EB4phtFdY/XCeAoQmyyGI/AAAAAAAACyQ/nAac2KdIFpUiPFizg7-22xOPhX8w3T1lACLcBGAs/s1600/95.jpg)
+![](/images/tomatooil2.jpg)
 
 蕃茄乾完成！  
 已經直接可以吃  
@@ -40,7 +40,7 @@ tags : [made by H - 開伙]
   
 好！再來另一道...  
 
-[![](https://4.bp.blogspot.com/-04GDEcwoLTU/XCeAunuWfQI/AAAAAAAACyY/mSArXi4wlKYaOyo6bbQKn6IhZrxSPiI2wCLcBGAs/s640/96.jpg)](https://4.bp.blogspot.com/-04GDEcwoLTU/XCeAunuWfQI/AAAAAAAACyY/mSArXi4wlKYaOyo6bbQKn6IhZrxSPiI2wCLcBGAs/s1600/96.jpg)
+![](/images/tomatooil3.jpg)
 
 （3）以橄欖油浸蕃茄乾  
 ＊油的份量也是隨意  
@@ -54,7 +54,7 @@ tags : [made by H - 開伙]
 食用例：  
 超懶但包好吃的吃法  
 
-[![](https://4.bp.blogspot.com/-Y2JLyqIR_ZU/XCeA1hHhTPI/AAAAAAAACyg/3RTgxiy0YmIMGhXjRKJFGO7gZ6a8cFO0ACLcBGAs/s640/97.jpg)](https://4.bp.blogspot.com/-Y2JLyqIR_ZU/XCeA1hHhTPI/AAAAAAAACyg/3RTgxiy0YmIMGhXjRKJFGO7gZ6a8cFO0ACLcBGAs/s1600/97.jpg)
+![](/images/tomatooil4.jpg)
 
 pasta煮了以後（請比包裝寫的減一分鐘）倒水  
 加上油拌勻，再放上幾粒蕃茄乾就可以  

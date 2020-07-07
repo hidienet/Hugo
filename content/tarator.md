@@ -8,27 +8,21 @@ tags : [made by H - 開伙]
 
 悶熱的天氣最適合懷念保加利亞的風味湯！  
 
-[![](https://farm8.staticflickr.com/7775/17730525006_3929dc99fc_z.jpg)](https://farm8.staticflickr.com/7775/17730525006_3929dc99fc_z.jpg)
+![](/images/tarator.jpg)
 
-簡單的組合：
-
-碎蒜頭、青瓜粒、碎核桃
-
-當然有乳酪加冷水而成的湯底
-
-最後加入香草dill就OK
-
-因為有dill草同生蒜
-
+簡單的組合：  
+碎蒜頭、青瓜粒、碎核桃  
+當然有乳酪加冷水而成的湯底  
+最後加入香草dill就OK  
+因為有dill草同生蒜  
 連鹽也不用加就已經夠味
 
   
 
-家中的乳酪也有保加利亞菌種
-
+家中的乳酪也有保加利亞菌種  
 所以也算是在家中做到最接近的方式了吧～
 
-[![](https://farm6.staticflickr.com/5464/17760670311_46495a8c7b_z.jpg)](https://farm6.staticflickr.com/5464/17760670311_46495a8c7b_z.jpg)
+![](/images/dill.jpg)
 
 dill草可以用乾燥的  
 不過既然找到新鮮的嘛...
@@ -36,10 +30,7 @@ dill草可以用乾燥的
   
 \-----------------------------------------------  
   
-我真的很愛tarato！延伸閱讀：
-
-[\[保加利亞醉遊記\] Day2：balkan bites (free food tour sofia)](http://www.hidie.net/2014/05/day2balkan-bites-free-food-tour-sofia.html)
-
-[\[保加利亞醉遊記\] Day5：valdis-rilski manastir](http://www.hidie.net/2014/05/day5valdis-rilski-manastir.html)
-
-[\[保加利亞醉遊記\] Day12：Pizza Da Vinci (2nd round)](http://www.hidie.net/2014/06/day12pizza-da-vinci-2nd-round.html)
+我真的很愛tarator：  
+[\[保加利亞醉遊記\] Day2：balkan bites (free food tour sofia)](https://hidie.net/bulgaria2f/)  
+[\[保加利亞醉遊記\] Day5：valdis-rilski manastir](https://hidie.net/bulgaria5d/)  
+[\[保加利亞醉遊記\] Day12：Pizza Da Vinci (2nd round)](https://hidie.net/bulgaria12e/)

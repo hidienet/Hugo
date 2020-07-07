@@ -8,7 +8,7 @@ tags : [lifestyle - 嗨啲的極樂世界]
 
 又忍不住想吃點東西  
 
-[![](https://farm8.staticflickr.com/7771/17844991009_3ca4dd2bb1_z.jpg)](https://farm8.staticflickr.com/7771/17844991009_3ca4dd2bb1_z.jpg)
+![](/images/snacktime.jpg)
 
 每樣有些就最好  
 今晚的菜色有：  

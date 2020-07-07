@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺中、南投清境、彰化鹿港]
 
 好熱呀 好熱呀 好熱呀 好熱呀～  
 
-[![](https://2.bp.blogspot.com/-G4j15xJE0DM/XER1hLamOlI/AAAAAAAAGYM/vgO45B9W8swaZRMH2EUejrwROlLGk15qQCLcBGAs/s640/9756347713_757f436567_z.jpg)](https://2.bp.blogspot.com/-G4j15xJE0DM/XER1hLamOlI/AAAAAAAAGYM/vgO45B9W8swaZRMH2EUejrwROlLGk15qQCLcBGAs/s1600/9756347713_757f436567_z.jpg)
+![](/images/taichung1a.jpg)
 
 要喝喝飲料消消暑  
 suntory的麥味比較香  
@@ -22,4 +22,4 @@ suntory的麥味比較香
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

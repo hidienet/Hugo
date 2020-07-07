@@ -8,11 +8,11 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
 
 都是那句「不去夜市就不是去臺灣」  
 
-[![](https://2.bp.blogspot.com/-DzhuGWkT5sE/XExPJ0toYQI/AAAAAAAAG0c/tu9TGHinQXEU2sLmx1LMlir-64MmodANQCLcBGAs/s640/14966742648_7507849113_z.jpg)](https://2.bp.blogspot.com/-DzhuGWkT5sE/XExPJ0toYQI/AAAAAAAAG0c/tu9TGHinQXEU2sLmx1LMlir-64MmodANQCLcBGAs/s1600/14966742648_7507849113_z.jpg)
+![](/images/taichung7e1.jpg)
 
 到了台中市，就到住處附近的忠孝夜市  
 
-[![](https://4.bp.blogspot.com/-JSFO2hT7NRw/XExPOJfOBsI/AAAAAAAAG0k/hDnN3PxENKMtzvJ9XBpgiVHIA-qskPpnACLcBGAs/s640/14966755917_e123da5358_z.jpg)](https://4.bp.blogspot.com/-JSFO2hT7NRw/XExPOJfOBsI/AAAAAAAAG0k/hDnN3PxENKMtzvJ9XBpgiVHIA-qskPpnACLcBGAs/s1600/14966755917_e123da5358_z.jpg)
+![](/images/taichung7e.jpg)
 
 **味泉米糕**  
 醬油完全滲入米粒內  
@@ -21,7 +21,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
 其實同肉燥一樣只有淡淡鹹味  
 還有Q彈的滷鵪鶉蛋，不錯吃的啊  
 
-[![](https://2.bp.blogspot.com/-1Y9--j8nqbM/XExPS2TM4AI/AAAAAAAAG0s/qyT-vBG9QnkSpnb5MCA2mgSVebD7L2VdwCLcBGAs/s640/15150323361_e91089db3c_z.jpg)](https://2.bp.blogspot.com/-1Y9--j8nqbM/XExPS2TM4AI/AAAAAAAAG0s/qyT-vBG9QnkSpnb5MCA2mgSVebD7L2VdwCLcBGAs/s1600/15150323361_e91089db3c_z.jpg)
+![](/images/taichung7e2.jpg)
 
 同一家店裡面還分了這家**排骨大王**  
 **芋頭排骨麵**也是不能錯過的  
@@ -32,7 +32,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
 炸鍋的皮層入面粉粉的很好吃  
 麵條沒有甚麼好說因為我不喜歡吃油麵  
 
-[![](https://3.bp.blogspot.com/-THRgrFu4M14/XExPXQp-zRI/AAAAAAAAG0w/Ydx-iLIjkSIfNIgPjpht7ttEaplxkLhJgCLcBGAs/s640/14966627760_687241c390_z.jpg)](https://3.bp.blogspot.com/-THRgrFu4M14/XExPXQp-zRI/AAAAAAAAG0w/Ydx-iLIjkSIfNIgPjpht7ttEaplxkLhJgCLcBGAs/s1600/14966627760_687241c390_z.jpg)
+![](/images/taichung7e3.jpg)
 
 還在隔離檔買了**南台中肉圓**  
 淋上特製甜醬的肉圓  
@@ -40,7 +40,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
 肉餡的肉粒分明也腌的入味  
 喔～ 好吃呢  
 
-[![](https://3.bp.blogspot.com/-7X0SAkPldnQ/XExPb7QuPKI/AAAAAAAAG00/fTBwk8kUxecBDBZ589-H2JxmqHLnJhg8wCLcBGAs/s640/15150347181_4499636292_z.jpg)](https://3.bp.blogspot.com/-7X0SAkPldnQ/XExPb7QuPKI/AAAAAAAAG00/fTBwk8kUxecBDBZ589-H2JxmqHLnJhg8wCLcBGAs/s1600/15150347181_4499636292_z.jpg)
+![](/images/taichung7e4.jpg)
 
 不是特別鍾愛吃肉圓  
 但回程路上有這家老字號的**台中肉圓**  
@@ -59,4 +59,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

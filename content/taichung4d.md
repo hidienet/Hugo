@@ -6,12 +6,12 @@ aliases: [ "/2014/08/day4_24.html" ]
 tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 ---
 
-只吃一碗[魷魚粳](http://www.hidie.net/2014/08/day4.html)又怎能滿足饞嘴的人？  
+只吃一碗[魷魚粳](https://hidie.net/taichung4c/)又怎能滿足饞嘴的人？  
 跳到隔壁鋪就是阿南師民俗小吃  
 一看點餐紙，看到「招牌xx」  
 腦袋都不用運轉就點了  
 
-[![](https://1.bp.blogspot.com/-7APnTwIp7XI/XEwnJgPsw3I/AAAAAAAAGjY/bUOuvIAzFHcpcdbpHWMMtgqRq6s7ItbKgCLcBGAs/s640/14819015689_8b35934a3f_z.jpg)](https://1.bp.blogspot.com/-7APnTwIp7XI/XEwnJgPsw3I/AAAAAAAAGjY/bUOuvIAzFHcpcdbpHWMMtgqRq6s7ItbKgCLcBGAs/s1600/14819015689_8b35934a3f_z.jpg)
+![](/images/taichung4d.jpg)
 
 左蝦右蚵  
 蝦卷外皮炸的脆脆  
@@ -28,4 +28,4 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

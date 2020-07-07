@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 好味吃不胖，亦不花時間金錢的自製冰品  
 
-[![](https://4.bp.blogspot.com/-Z6R-cSliHBg/XCOLfCq6E_I/AAAAAAAAB0M/IIevR2cPqzkeTuVfFwjuhfWHXX6lWtM6gCLcBGAs/s640/12.jpg)](https://4.bp.blogspot.com/-Z6R-cSliHBg/XCOLfCq6E_I/AAAAAAAAB0M/IIevR2cPqzkeTuVfFwjuhfWHXX6lWtM6gCLcBGAs/s1600/12.jpg)
+![](/images/kiwiice.jpg)
 
 中秋除了月餅多，果籃亦很多  
 但不能早午晚餐下午茶宵食都在消滅水果嘛  

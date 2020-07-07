@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, lifestyle - rosy rosy]
 大貼紙貼了廣告雜誌的第一位？  
 加上是玫瑰... 抱回家再說～  
 
-[![](https://3.bp.blogspot.com/-mMsDGhUjM_A/XEMsMli1-iI/AAAAAAAAFyc/wcNjm_xzE7ooSmW6Cm32fmDFBYizt06EgCLcBGAs/s640/14439063323_6be334e113_z.jpg)](https://3.bp.blogspot.com/-mMsDGhUjM_A/XEMsMli1-iI/AAAAAAAAFyc/wcNjm_xzE7ooSmW6Cm32fmDFBYizt06EgCLcBGAs/s1600/14439063323_6be334e113_z.jpg)
+![](/images/meishokurose.jpg)
 
 甜蜜甜蜜的玫瑰氣味  
 就在洗面後塗上這枝玫瑰水綻放  

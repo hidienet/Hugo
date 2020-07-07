@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 
 一早就去看看當地的早市場  
 
-[![](https://4.bp.blogspot.com/-1W9AgHA3RMQ/XEwokqJOXmI/AAAAAAAAGkQ/-g-LVlQn7bQTtFgmE_2_BojwIRon9fUzgCLcBGAs/s640/14819650449_918be50643_z.jpg)](https://4.bp.blogspot.com/-1W9AgHA3RMQ/XEwokqJOXmI/AAAAAAAAGkQ/-g-LVlQn7bQTtFgmE_2_BojwIRon9fUzgCLcBGAs/s1600/14819650449_918be50643_z.jpg)
+![](/images/taichung5a.jpg)
 
 其實那市場就座落住得地方下一路口  
 不過沒甚麼好看好買好食，又熱...  
@@ -16,4 +16,4 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

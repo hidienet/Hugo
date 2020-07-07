@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 
 \[背景音樂\]撥著大霧默默地在覓我的去路\[/背景音樂\]  
 
-[![](https://3.bp.blogspot.com/-j2iwNY3GOOg/XEwaXUl7vQI/AAAAAAAAGiM/aITFDD9bogsTMUwmTTRIdiO05Rh4yVLZACLcBGAs/s640/14759361750_5949c1027a_z.jpg)](https://3.bp.blogspot.com/-j2iwNY3GOOg/XEwaXUl7vQI/AAAAAAAAGiM/aITFDD9bogsTMUwmTTRIdiO05Rh4yVLZACLcBGAs/s1600/14759361750_5949c1027a_z.jpg)
+![](/images/taichung3f.jpg)
 
 黃昏是已經很大霧...  
   
@@ -23,4 +23,4 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

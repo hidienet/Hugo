@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 像孕婦一樣去水腫  
 
-[![](https://4.bp.blogspot.com/-Mz5_GqODnWM/XE1GZeVJyQI/AAAAAAAAHBc/3ABI7UIZbNM20mtLphmbVGZgexw7N3a6ACLcBGAs/s640/15178193787_8d0ecb0b95_z.jpg)](https://4.bp.blogspot.com/-Mz5_GqODnWM/XE1GZeVJyQI/AAAAAAAAHBc/3ABI7UIZbNM20mtLphmbVGZgexw7N3a6ACLcBGAs/s1600/15178193787_8d0ecb0b95_z.jpg)
+![](/images/redbeantea.jpg)
 
 都是在公司用真空杯焗  
 洗完豆之後焗45分鐘就可以  
@@ -22,7 +22,7 @@ tags : [made by H - 開伙]
 面仔也有V字的這樣  
 超～ 開～ 心～ 呢～（心）  
 
-[![](https://4.bp.blogspot.com/-VRmSS_rpElQ/XE1Ge2oFeaI/AAAAAAAAHBk/8G0KVx5g078O1ingK0PoNRV7IYb0qUmcACLcBGAs/s640/15178128008_9968f07a4c_z.jpg)](https://4.bp.blogspot.com/-VRmSS_rpElQ/XE1Ge2oFeaI/AAAAAAAAHBk/8G0KVx5g078O1ingK0PoNRV7IYb0qUmcACLcBGAs/s1600/15178128008_9968f07a4c_z.jpg)
+![](/images/redbean.jpg)
 
 平日就這樣放在公司  
 一次就拿一把分量很方便

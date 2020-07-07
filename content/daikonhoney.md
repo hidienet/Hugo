@@ -9,7 +9,7 @@ tags : [made by H - 開伙]
 天氣越來越乾燥，喉嚨也容易感覺乾涸  
 這時候，自製的大根飴便會出動  
 
-[![](https://1.bp.blogspot.com/-fn6-dgWWm_g/XCRVQSfaEuI/AAAAAAAACD4/EDrKifcHva4a5jZ_lJ3bDBDOlUX3A1abQCLcBGAs/s640/11.jpg)](https://1.bp.blogspot.com/-fn6-dgWWm_g/XCRVQSfaEuI/AAAAAAAACD4/EDrKifcHva4a5jZ_lJ3bDBDOlUX3A1abQCLcBGAs/s1600/11.jpg)
+![](/images/daikonhoney.jpg)
 
 過年時有些人會將柑桔以鹽醃製成鹹柑桔  
 但要放置至少一年，對味的更要動輒上十年  

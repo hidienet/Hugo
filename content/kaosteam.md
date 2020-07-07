@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂, lifestyle - rosy ros
 
 暖暖的好舒服（呼～）  
 
-[![](https://2.bp.blogspot.com/-6xFZEZnH-b4/XDGIptINM_I/AAAAAAAAEeE/hJKEVKr-ct8lutB62eYclvTDWuWdCey8ACLcBGAs/s640/41.jpg)](https://2.bp.blogspot.com/-6xFZEZnH-b4/XDGIptINM_I/AAAAAAAAEeE/hJKEVKr-ct8lutB62eYclvTDWuWdCey8ACLcBGAs/s1600/41.jpg)
+![](/images/kaosteam.jpg)
 
 方便的包裝，像暖手包那樣一開就熱  
 40℃和暖和暖，扣在耳仔不會掉落  
@@ -25,6 +25,6 @@ mask的功效也能加倍
 （上圖已是第二代，扣耳的設計改良）  
 之後都推出不同香味  
 
-[![](https://4.bp.blogspot.com/-OMtodiQ7F6U/XDGIul_bepI/AAAAAAAAEeI/kYJxP3sIlswjvAwi9KIpjnomPQ2n0MAUgCLcBGAs/s640/42.jpg)](https://4.bp.blogspot.com/-OMtodiQ7F6U/XDGIul_bepI/AAAAAAAAEeI/kYJxP3sIlswjvAwi9KIpjnomPQ2n0MAUgCLcBGAs/s1600/42.jpg)
+![](/images/kaosteam1.jpg)
 
 當然少不了最愛的玫瑰味！

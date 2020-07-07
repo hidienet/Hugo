@@ -6,14 +6,14 @@ aliases: [ "/2014/06/body-house-of-rose-oh-baby-x-la-rose.html" ]
 tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 ---
 
-雖然通常都會用[韓式去死皮布](http://www.hidie.net/2014/01/body-daiso-scrub-tower.html)來除角質  
+雖然通常都會用[韓式去死皮布](https://hidie.net/daisoscrubtower/)來除角質  
 不過有時候也要用寵愛自己的消耗品  
 
-[![](https://2.bp.blogspot.com/-IfqWUNjQlLQ/XEMnFnoRFJI/AAAAAAAAFwk/nS7yyGdB6tUsTa6KjjRZvwGF5sZeZNJ9gCLcBGAs/s640/14437556143_ee865ceaa2_z.jpg)](https://2.bp.blogspot.com/-IfqWUNjQlLQ/XEMnFnoRFJI/AAAAAAAAFwk/nS7yyGdB6tUsTa6KjjRZvwGF5sZeZNJ9gCLcBGAs/s1600/14437556143_ee865ceaa2_z.jpg)
+![](/images/ohbaby.jpg)
 
 @cosme常見的House of Rose的Oh! Baby  
 
-[![](https://4.bp.blogspot.com/-nQIlhaiRgM8/XEMnKltiFKI/AAAAAAAAFwo/C_hYbDq07ZYdjwc-FWonAkvu9W7yspjYgCLcBGAs/s640/14230733149_7a58733682_z.jpg)](https://4.bp.blogspot.com/-nQIlhaiRgM8/XEMnKltiFKI/AAAAAAAAFwo/C_hYbDq07ZYdjwc-FWonAkvu9W7yspjYgCLcBGAs/s1600/14230733149_7a58733682_z.jpg)
+![](/images/ohbaby1.jpg)
 
 在日本看到時還推出這個crossover La Rosé版本  
 那麼漂亮豈能不入手？  

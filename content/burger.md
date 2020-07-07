@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 一起吃偉大領導金正日發明的漢堡包吧（！）  
 
-[![](https://farm8.staticflickr.com/7375/16283485967_423c865347_z.jpg)](https://farm8.staticflickr.com/7375/16283485967_423c865347_z.jpg)
+![](/images/burger.jpg)
 
 （上）MOS、freshness  
 （下）burger king、Triple O's  

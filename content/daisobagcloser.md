@@ -8,7 +8,7 @@ tags : [lifestyle - 廚娘育成配件]
 
 一直都覺得這個東西很可愛  
 
-[![](https://1.bp.blogspot.com/-q9f1JhP0gF0/XExxLn2WzbI/AAAAAAAAG8g/AyY5eOjT64oMf7bCx3TRaypNYnV4RCPIgCLcBGAs/s640/15254877961_78a5ba782e_z.jpg)](https://1.bp.blogspot.com/-q9f1JhP0gF0/XExxLn2WzbI/AAAAAAAAG8g/AyY5eOjT64oMf7bCx3TRaypNYnV4RCPIgCLcBGAs/s1600/15254877961_78a5ba782e_z.jpg)
+![](/images/daisobagcloser.jpg)
 
 用熱力溶掉膠袋從而封口  
 顏色也很亮麗  

@@ -11,7 +11,7 @@ tags : [lifestyle - 廚娘育成配件, lifestyle - rosy rosy]
   
 所以都係死死地氣買返洗潔精算啦  
 
-[![](https://c1.staticflickr.com/5/4585/24464016188_927f8110b9_z.jpg)](https://c1.staticflickr.com/5/4585/24464016188_927f8110b9_z.jpg)
+![](/images/pngjoymoistcare.jpg)
 
 同以前啲洗潔精唔同㗎  
 洗完啲碗乾乾淨淨清清爽  
@@ -30,4 +30,4 @@ tags : [lifestyle - 廚娘育成配件, lifestyle - rosy rosy]
   
 \-----------------------------------------------  
   
-延伸閱讀：[noesis bamboo dish pad](https://www.hidie.net/2014/11/noesis-bamboo-dish-pad.html)
+延伸閱讀：[noesis bamboo dish pad](https://hidie.net/noesis/)

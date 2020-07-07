@@ -13,7 +13,7 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
 清乾隆五十一年（1786年）遷到現在的位置  
 於道光十一年（1831年）修建原本的狹小廟寺並多次重建  
 
-[![](https://3.bp.blogspot.com/-hdwAz8ZfCXU/XEwre7c-cnI/AAAAAAAAGnQ/g2z8PO0ddUI_HQglGM244HGDm9ii6UoQwCLcBGAs/s640/15013179631_e0510f6892_z.jpg)](https://3.bp.blogspot.com/-hdwAz8ZfCXU/XEwre7c-cnI/AAAAAAAAGnQ/g2z8PO0ddUI_HQglGM244HGDm9ii6UoQwCLcBGAs/s1600/15013179631_e0510f6892_z.jpg)
+![](/images/taichung5g.jpg)
 
 **寺門**  
 寺院為三進二院的建築格局  
@@ -21,50 +21,50 @@ tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
   
 let's go～  
 
-[![](https://2.bp.blogspot.com/-dAMtelomyJs/XEwrnjQ-7uI/AAAAAAAAGnY/8evkhflBFcIohebISuqMZCy7s334n3AlACLcBGAs/s640/14829741367_23e223a18e_z.jpg)](https://2.bp.blogspot.com/-dAMtelomyJs/XEwrnjQ-7uI/AAAAAAAAGnY/8evkhflBFcIohebISuqMZCy7s334n3AlACLcBGAs/s1600/14829741367_23e223a18e_z.jpg)
+![](/images/taichung5g1.jpg)
 
 **山門**  
 
-[![](https://4.bp.blogspot.com/-8y9A6fDb3v8/XEwrryvITvI/AAAAAAAAGnc/mzPcQ_gi9PQL6r-Vth2ihr2ZmpGisPdJgCLcBGAs/s640/14829644248_e99251152e_z.jpg)](https://4.bp.blogspot.com/-8y9A6fDb3v8/XEwrryvITvI/AAAAAAAAGnc/mzPcQ_gi9PQL6r-Vth2ihr2ZmpGisPdJgCLcBGAs/s1600/14829644248_e99251152e_z.jpg)
+![](/images/taichung5g2.jpg)
 
 **五門殿**  
 
-[![](https://3.bp.blogspot.com/-8NkP2c5c6qk/XEwrvxgTtmI/AAAAAAAAGnk/U77mhWF_Hq8zco7pnKj8j07lTmsyo_mvACLcBGAs/s640/14829741067_68b06e44c0_z.jpg)](https://3.bp.blogspot.com/-8NkP2c5c6qk/XEwrvxgTtmI/AAAAAAAAGnk/U77mhWF_Hq8zco7pnKj8j07lTmsyo_mvACLcBGAs/s1600/14829741067_68b06e44c0_z.jpg)
+![](/images/taichung5g3.jpg)
 
 戲台前  
 
-[![](https://2.bp.blogspot.com/-XSWfYEPYucM/XEwr0p92LWI/AAAAAAAAGno/ZqI0e8h2lsYO6SgHJB41Uj2tYqSB-by6gCLcBGAs/s640/14829642978_20778eac80_z.jpg)](https://2.bp.blogspot.com/-XSWfYEPYucM/XEwr0p92LWI/AAAAAAAAGno/ZqI0e8h2lsYO6SgHJB41Uj2tYqSB-by6gCLcBGAs/s1600/14829642978_20778eac80_z.jpg)
+![](/images/taichung5g4.jpg)
 
 **戲台**  
 
-[![](https://1.bp.blogspot.com/-hjYnHtHyJsM/XEwr6AgJFmI/AAAAAAAAGnw/aJo-hOiL0yoMpZ-uLM05yIJi7cCoeHS2gCLcBGAs/s640/14829742847_50d9b18cc4_z.jpg)](https://1.bp.blogspot.com/-hjYnHtHyJsM/XEwr6AgJFmI/AAAAAAAAGnw/aJo-hOiL0yoMpZ-uLM05yIJi7cCoeHS2gCLcBGAs/s1600/14829742847_50d9b18cc4_z.jpg)
+![](/images/taichung5g5.jpg)
 
 戲台頂部的**八卦藻井**  
 
-[![](https://4.bp.blogspot.com/-vJZdmIg16to/XEwr_TOeBxI/AAAAAAAAGn4/XS4OdMFx944BOqmw4kzIds4Cb0B0nGGoQCLcBGAs/s640/14829644028_2047f5dda7_z.jpg)](https://4.bp.blogspot.com/-vJZdmIg16to/XEwr_TOeBxI/AAAAAAAAGn4/XS4OdMFx944BOqmw4kzIds4Cb0B0nGGoQCLcBGAs/s1600/14829644028_2047f5dda7_z.jpg)
+![](/images/taichung5g6.jpg)
 
 喔？那麼高的門檻？  
 足足有我大半條腿耶（腿短！）  
 非也非也！那是後台擋啦～  
 
-[![](https://4.bp.blogspot.com/-7CYKGNRkEMM/XEwsH_nIKPI/AAAAAAAAGoE/GXe9opdv_ZAbc2L3SYJRF5T_F-p61YSVgCLcBGAs/s640/15013181721_4eb62121cb_z.jpg)](https://4.bp.blogspot.com/-7CYKGNRkEMM/XEwsH_nIKPI/AAAAAAAAGoE/GXe9opdv_ZAbc2L3SYJRF5T_F-p61YSVgCLcBGAs/s1600/15013181721_4eb62121cb_z.jpg)
+![](/images/taichung5g7.jpg)
 
 **正殿**  
 
-[![](https://3.bp.blogspot.com/-nzKILWYZnbM/XEwsL4WwDeI/AAAAAAAAGoM/G57PzzXScfAdYC0IDSqfIdYbn5nxbkpOwCLcBGAs/s640/15013177871_bf934b6e43_z.jpg)](https://3.bp.blogspot.com/-nzKILWYZnbM/XEwsL4WwDeI/AAAAAAAAGoM/G57PzzXScfAdYC0IDSqfIdYbn5nxbkpOwCLcBGAs/s1600/15013177871_bf934b6e43_z.jpg)
+![](/images/taichung5g8.jpg)
 
 **後殿**  
 
-[![](https://1.bp.blogspot.com/-CT2hADKBw1I/XEwsQCVTDAI/AAAAAAAAGoU/Sj1tcmRYqGI5S5G6_dS_M6TxHV0XGtHSACLcBGAs/s640/15016263165_4586fe4093_z.jpg)](https://1.bp.blogspot.com/-CT2hADKBw1I/XEwsQCVTDAI/AAAAAAAAGoU/Sj1tcmRYqGI5S5G6_dS_M6TxHV0XGtHSACLcBGAs/s1600/15016263165_4586fe4093_z.jpg)
+![](/images/taichung5g9.jpg)
 
 後面的公園同洗手間  
 感覺那隻神獸在看著我似的  
 
-[![](https://2.bp.blogspot.com/-CHvCGR0BKug/XEwsUJRcBXI/AAAAAAAAGoY/difCpEFddwYwVLaSsrReQ4TAjKx85K3vACLcBGAs/s640/15013179981_1ae50cd3ab_z.jpg)](https://2.bp.blogspot.com/-CHvCGR0BKug/XEwsUJRcBXI/AAAAAAAAGoY/difCpEFddwYwVLaSsrReQ4TAjKx85K3vACLcBGAs/s1600/15013179981_1ae50cd3ab_z.jpg)
+![](/images/taichung5g10.jpg)
 
 石雕都很仔細  
 
-[![](https://3.bp.blogspot.com/-guEV-tEedkU/XEwsYQz5uDI/AAAAAAAAGog/xM7OtZQrLl4Eh4O8jferBYucSbxYB9sjACLcBGAs/s640/15013180671_3ecf185c33_z.jpg)](https://3.bp.blogspot.com/-guEV-tEedkU/XEwsYQz5uDI/AAAAAAAAGog/xM7OtZQrLl4Eh4O8jferBYucSbxYB9sjACLcBGAs/s1600/15013180671_3ecf185c33_z.jpg)
+![](/images/taichung5g11.jpg)
 
 魚魚魚  
   
@@ -73,4 +73,4 @@ let's go～
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

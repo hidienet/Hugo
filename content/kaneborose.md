@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂, lifestyle - rosy ros
 如果要好好慰勞自己  
 浸浴再加玫瑰味mask就最relax  
 
-[![](https://1.bp.blogspot.com/-NF_1Eoy8rN8/XEMsD0dmufI/AAAAAAAAFyU/G4redMYZdO8c7rP0-frW4rwvW_hTYBdEwCLcBGAs/s640/12264124075_caf4b0b13e_z.jpg)](https://1.bp.blogspot.com/-NF_1Eoy8rN8/XEMsD0dmufI/AAAAAAAAFyU/G4redMYZdO8c7rP0-frW4rwvW_hTYBdEwCLcBGAs/s1600/12264124075_caf4b0b13e_z.jpg)
+![](/images/kaneborose.jpg)
 
 在有暖水的浴缸掉塊mask溫熱5分鐘  
 （不要打開包裝袋放入浴缸喔）  

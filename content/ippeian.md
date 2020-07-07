@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹]
 入口即化的叉燒  
 清澈微鹹的醬油湯底  
 
-[![](https://farm9.staticflickr.com/8698/16749432215_37ccabf5cb_z.jpg)](https://farm9.staticflickr.com/8698/16749432215_37ccabf5cb_z.jpg)
+![](/images/ippeian.jpg)
 
 一碗好麵就這樣誕生  
 然後給我吃了～（哈）

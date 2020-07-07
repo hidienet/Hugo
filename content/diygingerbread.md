@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 聖誕節要弄點甚麼嗎？  
 
-[![](https://4.bp.blogspot.com/-Uk8i_tGN1r4/XCdgri9MDKI/AAAAAAAACoY/ecG5YJZbJDIj1Dxgnw_kqXuNUnkE7gBIgCLcBGAs/s640/15.jpg)](https://4.bp.blogspot.com/-Uk8i_tGN1r4/XCdgri9MDKI/AAAAAAAACoY/ecG5YJZbJDIj1Dxgnw_kqXuNUnkE7gBIgCLcBGAs/s1600/15.jpg)
+![](/images/diygingerbread.jpg)
 
 之前整過的薑餅人  
 樣子怪怪的，衣服配搭也強差人意  

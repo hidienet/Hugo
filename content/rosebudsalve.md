@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, lifestyle - rosy rosy]
 
 就用完了，這個好好用的喔～  
 
-[![](https://2.bp.blogspot.com/-dymwHSb97XU/XEMrAn4B3qI/AAAAAAAAFxs/7c2dgRW5GoMGdk4bbLx-8ItXCiFOOBUHgCLcBGAs/s640/14416012812_259a36a825_z.jpg)](https://2.bp.blogspot.com/-dymwHSb97XU/XEMrAn4B3qI/AAAAAAAAFxs/7c2dgRW5GoMGdk4bbLx-8ItXCiFOOBUHgCLcBGAs/s1600/14416012812_259a36a825_z.jpg)
+![](/images/rosebudsalve.jpg)
 
 每次使用玫瑰味就在嘴裡久久不散  
 有使嘴仔紅潤紅潤  

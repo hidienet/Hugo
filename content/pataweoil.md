@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 
 大家也喜歡到泰國做SPA嗎？  
 
-[![](https://3.bp.blogspot.com/-lBmtPEnlKkA/XEMpCz844kI/AAAAAAAAFxY/9h4gVIDBjBg1vS9CRhKa0vsp6CKeDe_AgCLcBGAs/s640/14417282765_0a698e6ba5_z.jpg)](https://3.bp.blogspot.com/-lBmtPEnlKkA/XEMpCz844kI/AAAAAAAAFxY/9h4gVIDBjBg1vS9CRhKa0vsp6CKeDe_AgCLcBGAs/s1600/14417282765_0a698e6ba5_z.jpg)
+![](/images/pataweoil.jpg)
 
 無錢無時間去泰國不代表不能享受  
 用上帶有沈穩玫瑰香氣的massage oil  

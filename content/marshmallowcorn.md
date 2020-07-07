@@ -9,7 +9,7 @@ tags : [made by H - 開伙]
 個樣有點似煎堆  
 雖然都是甜的，不過就超快又超易做  
 
-[![](https://farm9.staticflickr.com/8593/16536522722_0c187acf7a_z.jpg)](https://farm9.staticflickr.com/8593/16536522722_0c187acf7a_z.jpg)
+![](/images/marshmallowcorn.jpg)
 
 只需要粟米片（脆米、朱古力味等都OK）  
 再加上棉花糖就可以  

@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
 
 趩仔麵，台語為切仔麵  
 
-[![](https://2.bp.blogspot.com/-_CpmdyLMDr8/XEwoD9a9uDI/AAAAAAAAGkA/4YnQKXOFp0Q2B4jNty8dWNKALwwh-fgrwCLcBGAs/s640/14819463009_9a658ba59c_z.jpg)](https://2.bp.blogspot.com/-_CpmdyLMDr8/XEwoD9a9uDI/AAAAAAAAGkA/4YnQKXOFp0Q2B4jNty8dWNKALwwh-fgrwCLcBGAs/s1600/14819463009_9a658ba59c_z.jpg)
+![](/images/taichung4h.jpg)
 
 內有芽菜、肉燥、肉丸同蝦丸  
 我不喜歡吃麵條，所以選了米粉  
@@ -29,4 +29,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化�
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

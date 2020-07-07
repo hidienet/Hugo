@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 平日甚少購買超市品牌  
 
-[![](https://1.bp.blogspot.com/-bSo8srjXOlQ/XE1FpCyCQGI/AAAAAAAAHA8/IwYpe4SqeUg0VsUOXk2g8uUuiqUdrwqiACLcBGAs/s640/15189690497_b144a4ddca_z.jpg)](https://1.bp.blogspot.com/-bSo8srjXOlQ/XE1FpCyCQGI/AAAAAAAAHA8/IwYpe4SqeUg0VsUOXk2g8uUuiqUdrwqiACLcBGAs/s1600/15189690497_b144a4ddca_z.jpg)
+![](/images/topvalusoymilk.jpg)
 
 不過這盒豆奶味道不錯  
 用來直接喝「加料」喝  

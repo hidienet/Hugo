@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 這是傳統的和菓子啦！  
 
-[![](https://3.bp.blogspot.com/-LQoJGCyqrtk/XCOQ7mOGwJI/AAAAAAAAB2c/9gNHEf3ypmAtuBaIsKz8aH7lvWFwVFyaACLcBGAs/s640/18.jpg)](https://3.bp.blogspot.com/-LQoJGCyqrtk/XCOQ7mOGwJI/AAAAAAAAB2c/9gNHEf3ypmAtuBaIsKz8aH7lvWFwVFyaACLcBGAs/s1600/18.jpg)
+![](/images/sweetpotatowagashi.jpg)
 
 不過是分半極級懶人版跟終極級懶人版  
 上圖是半極級，蕃薯蒸熟後磨成蓉  

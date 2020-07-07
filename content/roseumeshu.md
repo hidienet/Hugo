@@ -8,7 +8,7 @@ tags : [flavor - 飲！, lifestyle - rosy rosy]
 
 粉紅色的玫瑰味梅酒  
 
-[![](https://farm8.staticflickr.com/7566/15641002608_001ebec485_z.jpg)](https://farm8.staticflickr.com/7566/15641002608_001ebec485_z.jpg)
+![](/images/roseumeshu.jpg)
 
 入口超～～～ 甜～  
 而玫瑰糖漿的味道也不是新鮮芳香那種  

@@ -6,10 +6,10 @@ aliases: [ "/2014/11/daiso-16cm.html" ]
 tags : [lifestyle - 廚娘育成配件]
 ---
 
-CCTVB的劇中，一回家就會有人問：「你餓唔餓，我煮個麵你食？」  
+港劇中，一回家就會有人問：「你餓唔餓，我煮個麵你食？」  
 好吧！韓國劇也會常常出現即食麵情節啦～  
 
-[![](https://3.bp.blogspot.com/-vwpe046APMs/XFbKgS5PGBI/AAAAAAAAH3U/zpDT2HnutdYoWT7UdPQEvzk0yIZXcGuAACLcBGAs/s640/15791312375_86c91215b5_z.jpg)](https://3.bp.blogspot.com/-vwpe046APMs/XFbKgS5PGBI/AAAAAAAAH3U/zpDT2HnutdYoWT7UdPQEvzk0yIZXcGuAACLcBGAs/s1600/15791312375_86c91215b5_z.jpg)
+![](/images/daiso16cmpot.jpg)
 
 要吃韓國即食麵當然是用鋁製金鍋仔  
 小小一個，煮一人分量剛剛好  

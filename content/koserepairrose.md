@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 濃郁甜美的玫瑰味散在頭髮之間  
 good night～  
 
-[![](https://farm8.staticflickr.com/7554/16298028992_ec183c0b0a_z.jpg)](https://farm8.staticflickr.com/7554/16298028992_ec183c0b0a_z.jpg)
+![](/images/koserepairrose.jpg)
 
 lotion質地輕抹於髮尾  
 瞬間就全吸收了  

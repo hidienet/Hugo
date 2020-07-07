@@ -8,7 +8,7 @@ tags : [lifestyle - 嗨啲的極樂世界]
 
 在這個科技發達的時代...
 
-[![](https://farm8.staticflickr.com/7509/16076482796_31ab159e10_z.jpg)](https://farm8.staticflickr.com/7509/16076482796_31ab159e10_z.jpg)
+![](/images/xmascard.jpg)
 
 收到親手寫的祝福就要好好珍惜喔～
 

@@ -9,14 +9,14 @@ tags : [flavor - 行膳積腹]
 看店名就知道是吃家常菜  
 （在這個年代沒有人會覺得韓國菜只是燒肉石頭飯同人參雞湯對吧！）  
 
-[![](https://farm9.staticflickr.com/8772/16415360464_568fb27c61_z.jpg)](https://farm9.staticflickr.com/8772/16415360464_568fb27c61_z.jpg)
+![](/images/gagahoho.jpg)
 
 小小一碟的kimchi蘿蔔  
 配了沒有掃了麻油的包飯卷剛好  
 雖然沒有麻油味道很清，對我的口味  
 不過紫菜配麻油才是絕配呢  
 
-[![](https://farm8.staticflickr.com/7712/17036941381_fb1d71208c_z.jpg)](https://farm8.staticflickr.com/7712/17036941381_fb1d71208c_z.jpg)
+![](/images/gagahoho1.jpg)
 
 超家庭式的炸醬麵  
 味道很standard，不會過濃  

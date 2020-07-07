@@ -8,7 +8,7 @@ tags : [lifestyle - 廚娘育成配件, made by H - 開伙]
 
 乳酪是要自製的～  
 
-[![](https://3.bp.blogspot.com/-bl9eRqDLqSA/XEMhCKawy1I/AAAAAAAAFtM/QAIJPBm4UL4nQK0186f6WHAjajuHPLB2QCLcBGAs/s640/14186071250_0a19be2d90_z.jpg)](https://3.bp.blogspot.com/-bl9eRqDLqSA/XEMhCKawy1I/AAAAAAAAFtM/QAIJPBm4UL4nQK0186f6WHAjajuHPLB2QCLcBGAs/s1600/14186071250_0a19be2d90_z.jpg)
+![](/images/yogurtmachine.jpg)
 
 就靠這個小可愛啊（不是底褲！）  
 內膽不鏽鋼兜過一過滾水  
@@ -31,11 +31,11 @@ tags : [lifestyle - 廚娘育成配件, made by H - 開伙]
   
 下午茶時間：  
 
-[![](https://3.bp.blogspot.com/-k8rNCUsPBx4/XEMhGbnyaSI/AAAAAAAAFtQ/yenpD9hlkF8uddNMjqcLWJMEitiZdh-gQCLcBGAs/s640/14186031619_886c5f3a74_z.jpg)](https://3.bp.blogspot.com/-k8rNCUsPBx4/XEMhGbnyaSI/AAAAAAAAFtQ/yenpD9hlkF8uddNMjqcLWJMEitiZdh-gQCLcBGAs/s1600/14186031619_886c5f3a74_z.jpg)
+![](/images/homemadeyogurt.jpg)
 
 yogurt x honey x walnut  
 乳酪是保加利亞菌種  
-[蜂蜜](http://www.hidie.net/2014/06/blog-post.html)又保加利亞托回來（really thick）  
+[蜂蜜](https://hidie.net/med/)又保加利亞托回來（really thick）  
 核桃在香港買，用平底鍋烤過  
 放落乳酪前弄成碎碎的樣子  
 讓我再回味一下保加利亞的美味吧！

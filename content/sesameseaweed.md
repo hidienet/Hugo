@@ -14,7 +14,7 @@ tags : [made by H - 開伙]
 （連出街落樓食飯都不懶，sorry my friend～）  
 餐桌上也會出現各式又快又不用技巧的前菜配菜  
 
-[![](https://farm9.staticflickr.com/8642/16445415017_e405b5ef51_z.jpg)](https://farm9.staticflickr.com/8642/16445415017_e405b5ef51_z.jpg)
+![](/images/sesameseaweed.jpg)
 
 其中一款就是完全不需思考就能搞定的麻油海帶  
 以食用水還原再依口味冷卻  

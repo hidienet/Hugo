@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, lifestyle - rosy rosy]
 由新鮮有機玫瑰花蒸餾而成  
 係純粹清香嘅花味呀～  
 
-[![](https://c1.staticflickr.com/5/4387/35594431143_538cf4403c_z.jpg)](https://c1.staticflickr.com/5/4387/35594431143_538cf4403c_z.jpg)
+![](/images/refanrosewater.jpg)
 
 而且分子超細，可以入噴霧機  
 保濕度非常非常高  

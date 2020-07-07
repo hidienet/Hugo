@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族, lifestyle - rosy rosy]
 我當然避不開這魅力啦  
 （有哪樣食物能避得開呢其實？）  
 
-[![](https://4.bp.blogspot.com/-iUIS3TQEUrg/XEMqm2S3JSI/AAAAAAAAFxk/H80pvTXNLpE1dRfaKJsXug13Mrvx2I6IQCLcBGAs/s640/9869940796_f6a81c49c5_z.jpg)](https://4.bp.blogspot.com/-iUIS3TQEUrg/XEMqm2S3JSI/AAAAAAAAFxk/H80pvTXNLpE1dRfaKJsXug13Mrvx2I6IQCLcBGAs/s1600/9869940796_f6a81c49c5_z.jpg)
+![](/images/viziovirtu.jpg)
 
 濃香滑身的dark chocolate  
 面頭佈滿粒粒脆身玫瑰糖粒  

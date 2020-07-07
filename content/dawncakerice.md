@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 yeah yeah yeah～ 又是鳳梨酥  
 
-[![](https://4.bp.blogspot.com/-OXIDPC-HQbA/XExuRg4JqXI/AAAAAAAAG7E/1Dx9HIMCHMM7y2ryn6zCPmXe3RiKaf2SwCLcBGAs/s640/9722713435_cb0df2abfb_z.jpg)](https://4.bp.blogspot.com/-OXIDPC-HQbA/XExuRg4JqXI/AAAAAAAAG7E/1Dx9HIMCHMM7y2ryn6zCPmXe3RiKaf2SwCLcBGAs/s1600/9722713435_cb0df2abfb_z.jpg)
+![](/images/dawncakerice.jpg)
 
 加了米在皮層  
 所以比平常的煙韌  
@@ -17,3 +17,8 @@ yeah yeah yeah～ 又是鳳梨酥
 亦能吃到一絲絲纖維  
   
 喔～ 不錯不錯耶（心）
+
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

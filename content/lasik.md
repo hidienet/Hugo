@@ -41,7 +41,7 @@ confirm了下午有位置 
 手術後有點霞氣視力也只是3-4成   
 所以保鏢HIMHIM就「的」了我回家     
 
-[![](https://1.bp.blogspot.com/-8cmd9FTJWqg/XCizABKMwTI/AAAAAAAADdA/id7WWpGdFWQlxgRJfE_pJ92AzlLb3Ei2wCLcBGAs/s640/09.jpg)](https://1.bp.blogspot.com/-8cmd9FTJWqg/XCizABKMwTI/AAAAAAAADdA/id7WWpGdFWQlxgRJfE_pJ92AzlLb3Ei2wCLcBGAs/s1600/09.jpg)
+![](/images/lasik.jpg)
 
 回家後就是戴膠眼罩睡覺  
  （接下來的一個星期都要戴）   
@@ -81,7 +81,7 @@ confirm了下午有位置 
 「沒有」就是我的答案   
 （除了不能喝酒跟化妝啦   
 尤其在看清楚世界下不能化妝   
-所以常戴[那副眼鏡框](http://www.hidie.net/2014/01/glasses-dangly-tr7510.html)）     
+所以常戴[那副眼鏡框](https://hidie.net/dangly/)）     
   
 啊～ 問過醫生   
 其實角膜穩定以後也是可以戴大眼仔   

@@ -8,7 +8,7 @@ tags : [made by H - 開伙]
 
 再想聖誕弄甚麼好...  
 
-[![](https://2.bp.blogspot.com/-fcngrHo-C4Q/XCiHlMSa-UI/AAAAAAAADM4/tHLcR6Rb7SkddZMHHuhpttlc1nTkURx7ACLcBGAs/s640/52.jpg)](https://2.bp.blogspot.com/-fcngrHo-C4Q/XCiHlMSa-UI/AAAAAAAADM4/tHLcR6Rb7SkddZMHHuhpttlc1nTkURx7ACLcBGAs/s1600/52.jpg)
+![](/images/diycupcake.jpg)
 
 這是之前做的cupcake  
 蛋糕底是朱古力味的海綿蛋糕  

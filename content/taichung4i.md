@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿�
 
 晚飯過後再來一碗甜品  
 
-[![](https://3.bp.blogspot.com/-2phogYFrBzE/XEwoZZarTeI/AAAAAAAAGkM/xIjaz4Ljl8YGex5nl3YkSZpgb13UX7wQACLcBGAs/s640/14983192476_a28fcba9f8_z.jpg)](https://3.bp.blogspot.com/-2phogYFrBzE/XEwoZZarTeI/AAAAAAAAGkM/xIjaz4Ljl8YGex5nl3YkSZpgb13UX7wQACLcBGAs/s1600/14983192476_a28fcba9f8_z.jpg)
+![](/images/taichung4i.jpg)
 
 店名是冷凍豆花大王  
 所以，其實這碗是豆腐花  
@@ -31,4 +31,4 @@ topping是煮得腍身的花生、薏仁
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](http://www.hidie.net/2014/09/8d7n.html)
+延伸閱讀：[臺中怒食遊 +清境 & 鹿港（8D7N）](https://hidie.net/taichung8d7n/)

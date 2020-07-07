@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 要快快手清潔雙手的話  
 hand sanitizer就最方便快捷  
 
-[![](https://1.bp.blogspot.com/-7G-F4pt3tAg/XEMsX8dVlrI/AAAAAAAAFyk/RiATSro1SGgtdx3Ek6siehwNhxv3bomnACLcBGAs/s640/14437469573_b6eb674696_z.jpg)](https://1.bp.blogspot.com/-7G-F4pt3tAg/XEMsX8dVlrI/AAAAAAAAFyk/RiATSro1SGgtdx3Ek6siehwNhxv3bomnACLcBGAs/s1600/14437469573_b6eb674696_z.jpg)
+![](/images/refanrosahandgel.jpg)
 
 但通常都是酒精味很強烈  
 而這枝是加入玫瑰香氣  

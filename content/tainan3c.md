@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 
 仍然時早餐時間．．．坐下點了牛肉湯，不用等的好滋味  
 
-[![](https://1.bp.blogspot.com/-j7Q5OwbIOO0/XCRLDOsAXVI/AAAAAAAAB_o/iuoFmeFDv1gQfKl1nDBZEqDQ873c-zhzgCLcBGAs/s640/55.jpg)](https://1.bp.blogspot.com/-j7Q5OwbIOO0/XCRLDOsAXVI/AAAAAAAAB_o/iuoFmeFDv1gQfKl1nDBZEqDQ873c-zhzgCLcBGAs/s1600/55.jpg)
+![](/images/tainan3c.jpg)
 
 湯頭色澤比昨天喝的阿村深  
 鮮甜濃味的超燙高湯  
@@ -27,4 +27,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

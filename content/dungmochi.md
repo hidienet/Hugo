@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 麻糬不能等，要襯新鮮吃  
 
-[![](https://1.bp.blogspot.com/-g-pZ3C2Pt2k/XCRRxNKZavI/AAAAAAAACCc/TBiSee-5mHg0vOienMyvdOaHMQSxU9vPQCLcBGAs/s640/77.jpg)](https://1.bp.blogspot.com/-g-pZ3C2Pt2k/XCRRxNKZavI/AAAAAAAACCc/TBiSee-5mHg0vOienMyvdOaHMQSxU9vPQCLcBGAs/s1600/77.jpg)
+![](/images/dungmochi.jpg)
 
 四種口味分別為芝麻花生綠豆紅豆  
 1盒12個，簡單的袋子袋著  
@@ -22,3 +22,7 @@ tags : [flavor - 螞蟻族]
   
 另：花生那個以拉～ 長～方式吃，感覺更「特別」  
 就是像反轉了的糖不甩，哈哈 XD
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

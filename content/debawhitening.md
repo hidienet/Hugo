@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 所以都有賣美白產品  
 （當然最多還是玫瑰產品）  
 
-[![](https://1.bp.blogspot.com/-2KmqCfxbVJk/XDNYTPNCQAI/AAAAAAAAFCk/FinUMGzrtKMAN6cUOIrdv-FkkOafwWQsgCLcBGAs/s640/114.jpg)](https://1.bp.blogspot.com/-2KmqCfxbVJk/XDNYTPNCQAI/AAAAAAAAFCk/FinUMGzrtKMAN6cUOIrdv-FkkOafwWQsgCLcBGAs/s1600/114.jpg)
+![](/images/debawhitening.jpg)
 
 liquorice，cucumber，parsley oil  
 這些可以美白嗎？要試試才知道  

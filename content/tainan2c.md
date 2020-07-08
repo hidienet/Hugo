@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
 早餐吃個飽飽，又再上路，一直走回民族路  
 好～ 熱～ 呀～ 要喝冬瓜茶消消暑（十月的消暑？）  
 
-[![](https://2.bp.blogspot.com/-yNGvYvxq8qE/XCREBstwaNI/AAAAAAAAB9M/m7DP8TQby4QhnV0E4MxPPde7I9yc_R0sgCLcBGAs/s640/35.jpg)](https://2.bp.blogspot.com/-yNGvYvxq8qE/XCREBstwaNI/AAAAAAAAB9M/m7DP8TQby4QhnV0E4MxPPde7I9yc_R0sgCLcBGAs/s1600/35.jpg)
+![](/images/tainan2c.jpg)
 
 分別是左邊的百年版本以及右邊的古早味版  
 兩杯都很濃郁香甜很好喝，但味道與色澤上都有分別  
@@ -22,4 +22,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

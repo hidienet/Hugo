@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 畫皮？]
 
 震震 震震震震～ 個妝就好貼  
 
-[![](https://1.bp.blogspot.com/-50FYXx4OWt4/XEM2nQYd52I/AAAAAAAAF4I/_VV1AR_ppc4SiKuDWGbVIdZqEqrXFObFQCLcBGAs/s640/14542520835_8c3397da68_z.jpg)](https://1.bp.blogspot.com/-50FYXx4OWt4/XEM2nQYd52I/AAAAAAAAF4I/_VV1AR_ppc4SiKuDWGbVIdZqEqrXFObFQCLcBGAs/s1600/14542520835_8c3397da68_z.jpg)
+![](/images/brtcpat.jpg)
 
 原理好簡單，就是快速向後向前拍打  
 同平時用海綿拍拍拍上面一樣  

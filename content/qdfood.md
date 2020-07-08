@@ -9,7 +9,7 @@ tags : [flavor - 小食部]
 「食住花生等睇戲」  
 多謝青島同事們的土產  
 
-[![](https://2.bp.blogspot.com/-k33QmTp4G6o/XC3s4QmiFZI/AAAAAAAADv0/_G37Wo56YFkXMXWFo-5LcNrgcxTevB9hgCLcBGAs/s640/08.jpg)](https://2.bp.blogspot.com/-k33QmTp4G6o/XC3s4QmiFZI/AAAAAAAADv0/_G37Wo56YFkXMXWFo-5LcNrgcxTevB9hgCLcBGAs/s1600/08.jpg)
+![](/images/qdfood.jpg)
 
 上面綠色青島啤酒 x 眾地的啤酒伴侶  
 是一條條獨立包裝的甜味花生  

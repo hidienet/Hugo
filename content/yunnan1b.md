@@ -13,7 +13,7 @@ tags : [travel - 中國・昆明]
   
 只是喝個茶而已  
 
-[![](https://4.bp.blogspot.com/-sJ4sgNXm-ps/XCiR9qqJTeI/AAAAAAAADSk/hb7iceQk_FEXoShhWJ7TM6gy61xcdO3LQCLcBGAs/s640/01.jpg)](https://4.bp.blogspot.com/-sJ4sgNXm-ps/XCiR9qqJTeI/AAAAAAAADSk/hb7iceQk_FEXoShhWJ7TM6gy61xcdO3LQCLcBGAs/s1600/01.jpg)
+![](/images/yunnan1b.jpg)
 
 喝茶的地方是在間舊舊的房子裡  
 這裡很多地方都是舊樓新用的  
@@ -22,4 +22,4 @@ tags : [travel - 中國・昆明]
   
 \-----------------------------------------------  
   
-延伸閱讀：[昆明飽hihi（5D4N）](http://www.hidie.net/2013/12/hihi5d4n.html)
+延伸閱讀：[昆明飽hihi（5D4N）](https://hidie.net/yunnan5d4n/)

@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 吃完雄茂肉圓卻沒有喝那裡的四物湯  
 因為一直在想喝對面的牛肉湯  
 
-[![](https://4.bp.blogspot.com/-pBbhq1N7AfI/XCRQLxB4yWI/AAAAAAAACBk/uQdpAKgykIEaukqcUfUDnTDLmxrQs-g3QCLcBGAs/s640/70.jpg)](https://4.bp.blogspot.com/-pBbhq1N7AfI/XCRQLxB4yWI/AAAAAAAACBk/uQdpAKgykIEaukqcUfUDnTDLmxrQs-g3QCLcBGAs/s1600/70.jpg)
+![](/images/tainan4b.jpg)
 
 金黃清澈湯底撞入新鮮牛肉  
 鮮嫩的牛肉從粉紅漸轉為深色  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

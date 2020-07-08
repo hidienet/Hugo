@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 啦啦啦，又有得食花生豆腐  
 
-[![](https://2.bp.blogspot.com/-te55iFjfeoQ/XDCFxB5shbI/AAAAAAAAEOw/tIq7OZPr_e48fnTttJHAuDb10UvFbQcbACLcBGAs/s640/56.jpg)](https://2.bp.blogspot.com/-te55iFjfeoQ/XDCFxB5shbI/AAAAAAAAEOw/tIq7OZPr_e48fnTttJHAuDb10UvFbQcbACLcBGAs/s1600/56.jpg)
+![](/images/okinawaptofu2.jpg)
 
 超モチモチ而且帶黏  
 感覺非常好呢～  

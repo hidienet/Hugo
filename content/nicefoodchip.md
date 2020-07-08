@@ -6,10 +6,10 @@ aliases: [ "/2016/03/blog-post_16.html" ]
 tags : [flavor - 小食部]
 ---
 
-食完又甜又黏黏口嘅[地瓜蜜](http://www.hidie.net/2016/01/day4_19.html)  
+食完又甜又黏黏口嘅[地瓜蜜](https://hidie.net/taitung4b/)  
 咁更加唔可以唔試脆口嘅地瓜酥芋頭酥  
 
-[![](https://c1.staticflickr.com/1/274/31793356421_b7b73fc829_z.jpg)](https://c1.staticflickr.com/1/274/31793356421_b7b73fc829_z.jpg)
+![](/images/nicefoodchip.jpg)
 
 外層用脆糖包住  
 裡面係酥酥脆脆嘅番薯同芋頭薄薄片  
@@ -19,3 +19,7 @@ tags : [flavor - 小食部]
 唔潮得兼且唔係好熱得  
 如果唔係會黏埋一齊好漿口  
 所以記得：唔係即時食就一定一定要放入雪櫃啊！
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

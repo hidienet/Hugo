@@ -11,7 +11,7 @@ tags : [flavor - 揀飲宅食]
 不過這款普洱麵應該怎找也找不到吧  
 （要買東西回家需要藉口的嗎？）  
 
-[![](https://2.bp.blogspot.com/-TWS0ievXdUc/XCiGhnoAglI/AAAAAAAADMQ/f7KSnvuHGTIjqn6mNg1wRRD8AJNSkGBagCLcBGAs/s640/46.jpg)](https://2.bp.blogspot.com/-TWS0ievXdUc/XCiGhnoAglI/AAAAAAAADMQ/f7KSnvuHGTIjqn6mNg1wRRD8AJNSkGBagCLcBGAs/s1600/46.jpg)
+![](/images/teanoodle.jpg)
 
 左邊紅色的是熟茶麵  
 右邊綠色的是生茶麵  

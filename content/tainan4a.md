@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 終於不是老早就爬起身吃早餐．．．  
 漫步到保安路，到達茂雄乖乖坐下點肉圓  
 
-[![](https://2.bp.blogspot.com/-Eggsd2c1sZI/XCRPzHIkmQI/AAAAAAAACBY/wYAwaJa6PTYz-CQfMW7mV1-HNBZaTRSeQCLcBGAs/s640/68.jpg)](https://2.bp.blogspot.com/-Eggsd2c1sZI/XCRPzHIkmQI/AAAAAAAACBY/wYAwaJa6PTYz-CQfMW7mV1-HNBZaTRSeQCLcBGAs/s1600/68.jpg)
+![](/images/tainan4a.jpg)
 
 肉圓是以大蒸籠而不是金屬爐蒸的  
 皮層通透，不會太多粉太厚  
@@ -30,7 +30,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 吃著肉圓，眼見芋粿出爐，找不到不吃的理由  
 
-[![](https://1.bp.blogspot.com/-6bn-IsX55_8/XCRP9YjVCGI/AAAAAAAACBc/hs-mUoPQ6dkBaTnBFWZfGnl6Q10o2HYgACLcBGAs/s640/69.jpg)](https://1.bp.blogspot.com/-6bn-IsX55_8/XCRP9YjVCGI/AAAAAAAACBc/hs-mUoPQ6dkBaTnBFWZfGnl6Q10o2HYgACLcBGAs/s1600/69.jpg)
+![](/images/tainan4a1.jpg)
 
 （蒸氣蒸氣熱騰騰）  
 芋絲裡沒有太多調味，芋頭香香甜甜  
@@ -42,4 +42,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

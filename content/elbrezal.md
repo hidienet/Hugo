@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食]
 發現每天的生活中  
 一定會離不開蜜糖同黑糖（sweet）  
 
-[![](https://farm8.staticflickr.com/7398/15788479483_4739cb8bf7_z.jpg)](https://farm8.staticflickr.com/7398/15788479483_4739cb8bf7_z.jpg)
+![](/images/elbrezal.jpg)
 
 近期飲用的是這的西班牙蜂蜜  
 單一的花蜜味道純粹  

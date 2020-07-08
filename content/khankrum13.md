@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 rakia～ rakia～ rakia～  
 
-[![](https://4.bp.blogspot.com/-OaN9qfsvB4E/XDNZaO118MI/AAAAAAAAFDY/2hB98QqyxDcvl7lgjTyZayACtuTFJCAmQCLcBGAs/s640/121.jpg)](https://4.bp.blogspot.com/-OaN9qfsvB4E/XDNZaO118MI/AAAAAAAAFDY/2hB98QqyxDcvl7lgjTyZayACtuTFJCAmQCLcBGAs/s1600/121.jpg)
+![](/images/khankrum13.jpg)
 
 釀了13年的酒  
 應該是屬於新酒  

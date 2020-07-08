@@ -12,7 +12,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 肚子餓到扁，不吃東西就沒頭腦沒氣力脾氣暴燥  
 去台南就是為了吃！  
 
-[![](https://3.bp.blogspot.com/-XTUZ8y3pU-Q/XCRCpeDyS0I/AAAAAAAAB8Y/gnNTK0x2LgMzExsCIHIgmtfOFjW27L-MwCLcBGAs/s640/27.jpg)](https://3.bp.blogspot.com/-XTUZ8y3pU-Q/XCRCpeDyS0I/AAAAAAAAB8Y/gnNTK0x2LgMzExsCIHIgmtfOFjW27L-MwCLcBGAs/s1600/27.jpg)
+![](/images/tainan1a7.jpg)
 
 蝦跟蚵的選擇，選了蚵  
 果然沒有錯．．．  
@@ -35,4 +35,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 連我都買到喇終於～（激動）  
 
-[![](https://farm8.staticflickr.com/7663/17743907999_4ca6e98674_z.jpg)](https://farm8.staticflickr.com/7663/17743907999_4ca6e98674_z.jpg)
+![](/images/gargendurianwafers.jpg)
 
 made in HK的榴蓮味威化  
 一打開包裝香氣四溢  

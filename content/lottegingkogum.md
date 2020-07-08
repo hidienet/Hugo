@@ -11,7 +11,7 @@ tags : [flavor - 小食部]
   
 咁首先「治療」吓冇記性呢個問題先囉  
 
-[![](https://c1.staticflickr.com/5/4449/37801419876_18ff6c009d_z.jpg)](https://c1.staticflickr.com/5/4449/37801419876_18ff6c009d_z.jpg)
+![](/images/lottegingkogum.jpg)
 
 **LOTTE - 歯につきにくいガム＜記憶力を維持するタイプ＞**  
 隻香口膠以イチョウ葉（銀杏葉）抽出物為主  
@@ -39,7 +39,7 @@ tags : [flavor - 小食部]
 試吓gimmick嘢係OK嘅  
 如果真係要醫嘅話去睇中醫啦都係  
 
-[![](https://c1.staticflickr.com/5/4445/37850092881_768ba156c1_z.jpg)](https://c1.staticflickr.com/5/4445/37850092881_768ba156c1_z.jpg)
+![](/images/lottegingkogum1.jpg)
 
 响日本嗰陣電視到睇到㗎  
 完全感受到咩叫有得睇冇得食...

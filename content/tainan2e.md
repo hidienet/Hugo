@@ -7,12 +7,10 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 ---
 
 於酒店休息了一陣，又忍不住上街走走吃吃  
-
-酒店附近有間水仙宮，水仙宮旁有間蠻多人吃的店
-
+酒店附近有間水仙宮，水仙宮旁有間蠻多人吃的店  
 因為一直也沒有店名所以人們都稱之為「水仙宮米糕」
 
-[![](https://3.bp.blogspot.com/-RvvflmT8x7w/XCREo8SK2wI/AAAAAAAAB9g/adKSKCnXXnoFZAUfz-9EheDozaEbkrnJwCLcBGAs/s640/37.jpg)](https://3.bp.blogspot.com/-RvvflmT8x7w/XCREo8SK2wI/AAAAAAAAB9g/adKSKCnXXnoFZAUfz-9EheDozaEbkrnJwCLcBGAs/s1600/37.jpg)
+[![](/images/tainan2e.jpg)
 
 蒸熟的米糕淋上滷肉汁跟肉燥
 
@@ -32,4 +30,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

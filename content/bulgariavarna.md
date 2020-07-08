@@ -11,7 +11,7 @@ tags : [travel - България (Bulgaria)]
 好好的大路一條  
 裝修重鋪磚不要緊  
 
-[![](https://4.bp.blogspot.com/-5wu4sVdw36o/XDsVCY2cewI/AAAAAAAAFXg/A-go7md68JENAv0ZEokMeJUyVrXjmKbjACLcBGAs/s640/14309975315_fb3a00620d_z.jpg)](https://4.bp.blogspot.com/-5wu4sVdw36o/XDsVCY2cewI/AAAAAAAAFXg/A-go7md68JENAv0ZEokMeJUyVrXjmKbjACLcBGAs/s1600/14309975315_fb3a00620d_z.jpg)
+![](/images/bulgariavarna.jpg)
 
 但... 不要把整條路都挖起！  
 變成一個大地盤嘛！！！  
@@ -28,4 +28,4 @@ tags : [travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

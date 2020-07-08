@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 要乾淨！絕對要乾乾淨淨！
 
-[![](https://1.bp.blogspot.com/-Nwk_ptR0ORk/XE1MTQtwylI/AAAAAAAAHCU/f1QZFlY2orojy7l7Llgx5jeYkL4TZM3VQCLcBGAs/s640/15378869812_f669de84ed_z.jpg)](https://1.bp.blogspot.com/-Nwk_ptR0ORk/XE1MTQtwylI/AAAAAAAAHCU/f1QZFlY2orojy7l7Llgx5jeYkL4TZM3VQCLcBGAs/s1600/15378869812_f669de84ed_z.jpg)
+![](/images/daisopuffclean.jpg)
 
 puff同sponge乃上底妝的主要工具  
 

@@ -8,7 +8,7 @@ tags : [flavor - 揀飲宅食]
 
 人生同味蕾一樣，有時候要受點刺激  
 
-[![](https://farm9.staticflickr.com/8614/16436636487_134a30c92a_z.jpg)](https://farm9.staticflickr.com/8614/16436636487_134a30c92a_z.jpg)
+![](/images/tabascomini.jpg)
 
 對不能吃辣的我兩三滴已經是極限（吐舌）  
   

@@ -10,14 +10,14 @@ tags : [flavor - 行膳積腹, travel - 中國・昆明]
 原名「三合春」的建新园，是始建於1906年  
 哇～ 過百年了，現在已經是一家全國經營的連鎖店  
 
-[![](https://4.bp.blogspot.com/-KJo3ZWaF1LM/XCiSGf-RqhI/AAAAAAAADSo/9rkHgP1COS0fSYsPxRlkWYxbiImSeZ9JgCLcBGAs/s640/02.jpg)](https://4.bp.blogspot.com/-KJo3ZWaF1LM/XCiSGf-RqhI/AAAAAAAADSo/9rkHgP1COS0fSYsPxRlkWYxbiImSeZ9JgCLcBGAs/s1600/02.jpg)
+![](/images/yunnan2a.jpg)
 
 碗子大大，每樣都少少的  
 加起來份量也很多  
 身邊的人大多數都是以這碗作早餐  
 不會過飽了嗎？  
 
-[![](https://1.bp.blogspot.com/-rFk_6dS-UAA/XCiSL5q-MDI/AAAAAAAADSs/QD_viJcvxZwaM4fZRwNFyMesRsx0p1XBQCLcBGAs/s640/03.jpg)](https://1.bp.blogspot.com/-rFk_6dS-UAA/XCiSL5q-MDI/AAAAAAAADSs/QD_viJcvxZwaM4fZRwNFyMesRsx0p1XBQCLcBGAs/s1600/03.jpg)
+![](/images/yunnan2a1.jpg)
 
 把所有東西放入之後  
 就是甚麼都看不見  
@@ -31,4 +31,4 @@ tags : [flavor - 行膳積腹, travel - 中國・昆明]
   
 \-----------------------------------------------  
   
-延伸閱讀：[昆明飽hihi（5D4N）](http://www.hidie.net/2013/12/hihi5d4n.html)
+延伸閱讀：[昆明飽hihi（5D4N）](https://hidie.net/yunnan5d4n/)

@@ -8,7 +8,7 @@ tags : [flavor - 揀飲宅食]
 
 麻油品牌的芝麻  
 
-[![](https://4.bp.blogspot.com/-I452JROxhbI/XE1DaNdFQjI/AAAAAAAAG_c/mwAYiQMQ7-QcIGhbK03lJVo78M_kfeiTACLcBGAs/s640/15183444938_c6a62db3ef_z.jpg)](https://4.bp.blogspot.com/-I452JROxhbI/XE1DaNdFQjI/AAAAAAAAG_c/mwAYiQMQ7-QcIGhbK03lJVo78M_kfeiTACLcBGAs/s1600/15183444938_c6a62db3ef_z.jpg)
+![](/images/kadoyablack.jpg)
 
 超超超超超超超香！  
 不論氣味跟吃下都是頂級香  

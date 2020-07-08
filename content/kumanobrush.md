@@ -15,14 +15,14 @@ tags : [glamorous - 畫皮？]
 價格更是不可推卻那種（而且有試用）  
 即時感動cry然後乖乖付款  
 
-[![](https://farm4.staticflickr.com/3744/19397490972_26c4d18fba_z.jpg)](https://farm4.staticflickr.com/3744/19397490972_26c4d18fba_z.jpg)
+![](/images/kumanobrush1.jpg)
 
 這枝大powder brush是100%天然馬毛造的  
 毛質順滑柔軟，黏粉度高  
 用起來超～～～～ 舒～ 服～  
 AS樹脂柄，較輕，攜帶耶很方便  
 
-[![](https://farm1.staticflickr.com/320/19377608656_80aef725ac_z.jpg)](https://farm1.staticflickr.com/320/19377608656_80aef725ac_z.jpg)
+![](/images/kumanobrush.jpg)
 
 是限量品嗎？每枝都有號碼  
 我的是882888，好像很幸運這樣  

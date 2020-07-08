@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 在希慎吃croissant不一定要慕名去Le Salon的  
 
-[![](https://farm9.staticflickr.com/8592/15641421564_fdbb5f2603_z.jpg)](https://farm9.staticflickr.com/8592/15641421564_fdbb5f2603_z.jpg)
+![](/images/urbancroissant.jpg)
 
 超市採購的時候跟隨出爐麵包氣味走過去  
 （這商場，食物比化妝護膚品同書店更吸引）  

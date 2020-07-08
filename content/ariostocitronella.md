@@ -20,7 +20,7 @@ tags : [flavor - 揀飲宅食]
 對於匆匆忙忙趕上班的  
 實在太花時間  
 
-[![](https://3.bp.blogspot.com/-U-F8GjnRskg/XExwJSKNuXI/AAAAAAAAG8I/OMmwAuJ3qbwDnpL7m8Sdl1Du_VqAv8G1ACLcBGAs/s640/15264467591_2e1f2d70ac_z.jpg)](https://3.bp.blogspot.com/-U-F8GjnRskg/XExwJSKNuXI/AAAAAAAAG8I/OMmwAuJ3qbwDnpL7m8Sdl1Du_VqAv8G1ACLcBGAs/s1600/15264467591_2e1f2d70ac_z.jpg)
+![](/images/ariostocitronella.jpg)
 
 所以，我會選擇用樽裝檸檬汁  
 要喝這些方便裝的  

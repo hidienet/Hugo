@@ -9,7 +9,7 @@ tags : [flavor - 小食部]
 雖然七仔有得買  
 不過呢包係响新加坡買嘅  
 
-[![](https://c1.staticflickr.com/5/4676/40188292621_4003342227_z.jpg)](https://c1.staticflickr.com/5/4676/40188292621_4003342227_z.jpg)
+![](/images/goldenduck.jpg)
 
 呢排嘅包裝都係Chinese new year 2018版  
 （食呢包嘢好難「身體健康」喎老細）  

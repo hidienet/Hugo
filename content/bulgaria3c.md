@@ -10,7 +10,7 @@ tags : [travel - България (Bulgaria)]
 是個中央站，雖然去哪裡步行也沒問題  
 但有時候都會搭metro  
 
-[![](/images/bulgaria3c.jpg)
+![](/images/bulgaria3c.jpg)
 
 10程只是8程價格  
 搭得夠就不妨買這張card  

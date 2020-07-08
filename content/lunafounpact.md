@@ -6,11 +6,11 @@ aliases: [ "/2014/11/foundation-luna-water-essence-founpact.html" ]
 tags : [glamorous - 畫皮？]
 ---
 
-話說自從用了[色白防曬cream](http://www.hidie.net/2014/10/uv-cut-mayu-angel-blue-cream-spf34-pa.html)之後  
+話說自從用了[色白防曬cream](https://hidie.net/mayublue/)之後  
 出街同返工基本上已經不用上妝  
 但有時候也想要有個perfect face  
 
-[![](https://3.bp.blogspot.com/-T-McG3zE87Q/XFbKS4XcHDI/AAAAAAAAH3M/k99JCE4OqJMQNALv8NJy6wDFr2JqiaZGgCLcBGAs/s640/15172380223_2aa2efe1f9_z.jpg)](https://3.bp.blogspot.com/-T-McG3zE87Q/XFbKS4XcHDI/AAAAAAAAH3M/k99JCE4OqJMQNALv8NJy6wDFr2JqiaZGgCLcBGAs/s1600/15172380223_2aa2efe1f9_z.jpg)
+![](/images/lunafounpact.jpg)
 
 蘊含60%以上使精華的粉餅  
 精華成分包括酵母海葡萄等那些  
@@ -26,8 +26,8 @@ tags : [glamorous - 畫皮？]
   
 內附薄裝海綿為上粉用  
 不過如果毛孔有點粗就會上得厚些  
-所以我會用[131掃](http://www.hidie.net/2014/11/tools-131.html)  
+所以我會用[131掃](https://hidie.net/shiseido131/)  
 不論上妝補妝都非常好  
-如果時間充裕，用[震震樸](http://www.hidie.net/2014/07/tools-brtc-smart-artist-auto-pat.html)就最perfect！  
+如果時間充裕，用[震震樸](https://hidie.net/brtcpat/)就最perfect！  
   
 （本身一套已經連refill，特價入手所以每個粉底只是港幣幾十蚊， 加上質素非常高，超～讚～！）

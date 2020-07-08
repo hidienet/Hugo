@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 濕熱的天氣真的令人受不了  
 用bb cream皮膚也在叫救命呢  
 
-[![](https://3.bp.blogspot.com/-94rdcTqmxYg/XEQB4hLRy7I/AAAAAAAAF_A/ZcdBA07nGQkYTwtwFjkv-2jf7znIyqpswCLcBGAs/s640/14583612434_2acd30c367_z.jpg)](https://3.bp.blogspot.com/-94rdcTqmxYg/XEQB4hLRy7I/AAAAAAAAF_A/ZcdBA07nGQkYTwtwFjkv-2jf7znIyqpswCLcBGAs/s1600/14583612434_2acd30c367_z.jpg)
+![](/images/pondsbb.jpg)
 
 泰國的氣溫比香港還要高  
 所以她們的產品需要更清爽  

@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 bb cream，cc cream連掃一枝過  
 簡直方便到極點！  
 
-[![](https://2.bp.blogspot.com/-tVZpj-DqN-M/XEQAPRDX7lI/AAAAAAAAF9g/cqEvrnjC7dQmB3cSN7DlEiNJkDJ1X6ghACLcBGAs/s640/14582120351_6ecb246293_z.jpg)](https://2.bp.blogspot.com/-tVZpj-DqN-M/XEQAPRDX7lI/AAAAAAAAF9g/cqEvrnjC7dQmB3cSN7DlEiNJkDJ1X6ghACLcBGAs/s1600/14582120351_6ecb246293_z.jpg)
+![](/images/neogenbcstick.jpg)
 
 一邊是bb+cc cream stick  
 果芯是cc cream，光澤度足  

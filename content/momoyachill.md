@@ -8,7 +8,7 @@ tags : [flavor - 揀飲宅食]
 
 懶到癲的時候，一瓶萬用辣油就能解決所有問題！  
 
-[![](https://farm8.staticflickr.com/7698/16417877313_612637ebf7_z.jpg)](https://farm8.staticflickr.com/7698/16417877313_612637ebf7_z.jpg)
+![](/images/momoyachill.jpg)
 
 我不是不能吃辣的嗎？  
 是的！不過這辣油是完全不辣的  

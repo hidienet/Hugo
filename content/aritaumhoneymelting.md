@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 如果有東西能證明自己年紀漸長的話  
 我的，應該是這枝吧...  
 
-[![](https://farm8.staticflickr.com/7464/15851318055_4527c31ec2_z.jpg)](https://farm8.staticflickr.com/7464/15851318055_4527c31ec2_z.jpg)
+![](/images/aritaumhoneymelting.jpg)
 
 對！這是我這輩子第一次買唇膏  
 因為這顏色令很吸引我  

@@ -8,7 +8,7 @@ tags : [flavor - 揀飲宅食]
 
 維他女士送我的Mic Mic Cooking蘿蔔糕  
 
-[![](https://1.bp.blogspot.com/-ge9EF1b3D4A/XCiuSTakfiI/AAAAAAAADb0/PbZ2LPI2t9UnttLqgXwA6VpBMT26YfGdQCLcBGAs/s640/21.jpg)](https://1.bp.blogspot.com/-ge9EF1b3D4A/XCiuSTakfiI/AAAAAAAADb0/PbZ2LPI2t9UnttLqgXwA6VpBMT26YfGdQCLcBGAs/s1600/21.jpg)
+![](/images/daikoncake.jpg)
 
 很有心思的包裝  
 整個糕很足料厚實  

@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 需要上班的星期一（淚）  
 
-[![](https://1.bp.blogspot.com/-jAY7XhhnRcQ/XFbTkOC9eII/AAAAAAAAH58/QslyJ0yLlXIuNw4mDIMJMdnynlrDYPkOgCLcBGAs/s640/15206098184_9fea57e25e_z.jpg)](https://1.bp.blogspot.com/-jAY7XhhnRcQ/XFbTkOC9eII/AAAAAAAAH58/QslyJ0yLlXIuNw4mDIMJMdnynlrDYPkOgCLcBGAs/s1600/15206098184_9fea57e25e_z.jpg)
+![](/images/lemonking.jpg)
 
 幸好有甜甜的伯伯檸檬王陪伴  
 加點甘草更好吃，古早味萬歲！  

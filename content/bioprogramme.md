@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 當然是看到“antivirus”字眼那麼搞笑才買（哈哈）  
 
-[![](https://4.bp.blogspot.com/-wTC0bkNWp3U/XDtHL31SxJI/AAAAAAAAFno/8U3IL3c4LDIXzjAt5tDLLM3XpG1krcHjwCLcBGAs/s640/14185371919_34fa859c79_z.jpg)](https://4.bp.blogspot.com/-wTC0bkNWp3U/XDtHL31SxJI/AAAAAAAAFno/8U3IL3c4LDIXzjAt5tDLLM3XpG1krcHjwCLcBGAs/s1600/14185371919_34fa859c79_z.jpg)
+![](/images/bioprogrammez.jpg)
 
 antivirus跟電腦在一起就最匹配 XDDD  
 不過這是茶包啦  

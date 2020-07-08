@@ -3,7 +3,7 @@ title: '[熱遊西安] Day6：對味得要encore'
 date: 2014-08-06T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day6encore.html" ]
-tags : [travel - 中國・西安, flavor - 小食部]
+tags : [travel - 中國・西安, flavor - 行膳積腹]
 ---
 
 前幾天吃了勁好味的[那間餐廳](http://www.hidie.net/2014/07/day3_21.html)  

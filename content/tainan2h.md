@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 清子婆婆便說來份綜合，然後切每樣時都會問  
 「這款你想要多少？」好貼心的婆婆  
 
-[![](https://4.bp.blogspot.com/-3F_emKhhF18/XCRG8mcCl4I/AAAAAAAAB98/qNdoHVWiWLA8nOIeEO6VOgTpX2IMbV0MwCLcBGAs/s640/40.jpg)](https://4.bp.blogspot.com/-3F_emKhhF18/XCRG8mcCl4I/AAAAAAAAB98/qNdoHVWiWLA8nOIeEO6VOgTpX2IMbV0MwCLcBGAs/s1600/40.jpg)
+![](/images/tainan2h.jpg)
 
 所以這盤完全是自己喜歡的口味  
 色澤很單調，因為都是選些清淡的味道  
@@ -32,4 +32,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

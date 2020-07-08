@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 快速換妝，少不了在袋口裡的眼影筆  
 
-[![](https://farm8.staticflickr.com/7438/16327435956_aae4dba0c6_z.jpg)](https://farm8.staticflickr.com/7438/16327435956_aae4dba0c6_z.jpg)
+![](/images/tonymolycrystalstick.jpg)
 
 可以一筆過不用來回畫上就已經很上色  
 出色之餘有夠順滑  

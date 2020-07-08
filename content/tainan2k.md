@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 
 炭烤肉的味道鑽進鼻腔，請來一碗燒肉飯！
 
-[![](https://4.bp.blogspot.com/-87svQSM0YuI/XCRIAqDMv9I/AAAAAAAAB-U/9ff4jfOwGrMv9CrgADwDiWW33FV5jsjLwCLcBGAs/s640/43.jpg)](https://4.bp.blogspot.com/-87svQSM0YuI/XCRIAqDMv9I/AAAAAAAAB-U/9ff4jfOwGrMv9CrgADwDiWW33FV5jsjLwCLcBGAs/s1600/43.jpg)
+![](/images/tainan2k.jpg)
 
 臺南的燒肉不是廣東式燒肉  
 而是像韓燒那樣的烤肉  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

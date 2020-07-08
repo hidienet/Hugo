@@ -8,7 +8,7 @@ tags : [travel - 臺灣・臺南、六龜]
 
 菠蘿都影？  
 
-[![](https://3.bp.blogspot.com/-aoDsNjX-iTQ/XCRLmHxfNDI/AAAAAAAAB_8/pHiq9wj0zLwjXdr0vh-0xHBw3rEp2ekGgCLcBGAs/s640/57.jpg)](https://3.bp.blogspot.com/-aoDsNjX-iTQ/XCRLmHxfNDI/AAAAAAAAB_8/pHiq9wj0zLwjXdr0vh-0xHBw3rEp2ekGgCLcBGAs/s1600/57.jpg)
+![](/images/tainan3e.jpg)
 
 係呀，相機食先乃常識～  
   
@@ -18,4 +18,4 @@ tags : [travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

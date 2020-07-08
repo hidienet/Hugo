@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
 
 吃畢了烤魷魚，加上天氣熱，來一杯木瓜牛奶也不錯  
 
-[![](https://2.bp.blogspot.com/-vfi27A6hP0g/XCRM3AZTivI/AAAAAAAACAU/o2NZVh61NL0ByhsYW9AF7ZPQl8yJofRNQCLcBGAs/s640/60.jpg)](https://2.bp.blogspot.com/-vfi27A6hP0g/XCRM3AZTivI/AAAAAAAACAU/o2NZVh61NL0ByhsYW9AF7ZPQl8yJofRNQCLcBGAs/s1600/60.jpg)
+![](/images/tainan3h.jpg)
 
 新鮮的木瓜配上奶味濃郁的林鳳營鮮奶  
 內有碎冰保持冷凍感令飲品不走味  
@@ -22,4 +22,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

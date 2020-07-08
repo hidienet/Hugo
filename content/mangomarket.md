@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 甜甜的東西來渡過下午就最好～  
 
-[![](https://farm9.staticflickr.com/8628/15268835674_4fa31f2ab7_z.jpg)](https://farm9.staticflickr.com/8628/15268835674_4fa31f2ab7_z.jpg)
+![](/images/mangomarket.jpg)
 
 怕吃糖製品不健康？  
 這隻來自台南的果乾不添加糖  

@@ -24,7 +24,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 以及慢慢等的虱目鹹粥一碗  
 魚肚湯很快便到  
 
-[![](https://2.bp.blogspot.com/-qBgGovrH7tU/XCRC2c78KjI/AAAAAAAAB8c/IL5A8B8Z1OwgHMsbQC7JsHVerbHPOWlVQCLcBGAs/s640/28.jpg)](https://2.bp.blogspot.com/-qBgGovrH7tU/XCRC2c78KjI/AAAAAAAAB8c/IL5A8B8Z1OwgHMsbQC7JsHVerbHPOWlVQCLcBGAs/s1600/28.jpg)
+![](/images/tainan2a.jpg)
 
 雖然，虱目是平價的魚  
 可是一個早上便有大大塊魚肚放在碗裡  
@@ -33,7 +33,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 嫩滑的魚肉入口吃完全不會有渣  
 湯頭鮮甜味美，看似清淡卻味道濃厚  
 
-[![](https://1.bp.blogspot.com/-81czEatYx2c/XCRC_u2eFDI/AAAAAAAAB8g/GEgT6wT8T_gAFdX5_FawXvGMStEo8iKRgCLcBGAs/s640/29.jpg)](https://1.bp.blogspot.com/-81czEatYx2c/XCRC_u2eFDI/AAAAAAAAB8g/GEgT6wT8T_gAFdX5_FawXvGMStEo8iKRgCLcBGAs/s1600/29.jpg)
+![](/images/tainan2a1.jpg)
 
 魚腸湯，相比油脂蠻滿滿的魚肚更油膩  
 內藏就是要這樣吃，要吃一定要這麼重口味  
@@ -45,7 +45,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 等等等，吃完這兩碗那個粥還未到  
 再等一下等一下等一下 (Zzz...) 終於到了  
 
-[![](https://2.bp.blogspot.com/-xpyTJnqSvOE/XCRDGbVhaHI/AAAAAAAAB8k/lAJzFLhni6I3sILbvmul_KkXaM3tajoHwCLcBGAs/s640/30.jpg)](https://2.bp.blogspot.com/-xpyTJnqSvOE/XCRDGbVhaHI/AAAAAAAAB8k/lAJzFLhni6I3sILbvmul_KkXaM3tajoHwCLcBGAs/s1600/30.jpg)
+![](/images/tainan2a2.jpg)
 
 相比剛完成的那兩碗，這個虱目鹹粥明顯地清淡  
 「這是平日吃的魚片粥而且是潮州粥底那款嘛」  
@@ -61,4 +61,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

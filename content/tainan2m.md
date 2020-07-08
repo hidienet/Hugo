@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
 
 吃飽不一定要去覺覺豬，喝一杯台灣茶抖抖也不錯  
 
-[![](https://1.bp.blogspot.com/-8iOVffEgB2M/XCRKC_kKs9I/AAAAAAAAB_E/GJCAvDex57M44pZxA7RiittchEHbFdRNQCLcBGAs/s640/50.jpg)](https://1.bp.blogspot.com/-8iOVffEgB2M/XCRKC_kKs9I/AAAAAAAAB_E/GJCAvDex57M44pZxA7RiittchEHbFdRNQCLcBGAs/s1600/50.jpg)
+![](/images/tainan2m.jpg)
 
 點了這杯凍頂烏龍（少甜）  
 茶香而純粹，剛好解去晚餐吃得那麼兇的膩  
@@ -16,7 +16,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
 但還是心郁郁要吃這個：  
 大吉嶺紅茶冰淇淋  
 
-[![](https://2.bp.blogspot.com/-pCRjfhR4x4Y/XCRKJ8SUlPI/AAAAAAAAB_I/qUz7KZSK6RQJIcw8K49aUkUwIeO7f2OvwCLcBGAs/s640/51.jpg)](https://2.bp.blogspot.com/-pCRjfhR4x4Y/XCRKJ8SUlPI/AAAAAAAAB_I/qUz7KZSK6RQJIcw8K49aUkUwIeO7f2OvwCLcBGAs/s1600/51.jpg)
+![](/images/tainan2m1.jpg)
 
 中！伏！了！  
 這是sorbet或叫做刨冰也不為過  
@@ -33,4 +33,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

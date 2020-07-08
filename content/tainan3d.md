@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 
 沒完沒了的早餐時間．．．邊走邊吃的金得春捲  
 
-[![](https://3.bp.blogspot.com/-IXPS-r7UcU0/XCRLVKKlENI/AAAAAAAAB_0/nySaBbiKUqYmj_EFM6ILysF2Ih2K3UvwgCLcBGAs/s640/56.jpg)](https://3.bp.blogspot.com/-IXPS-r7UcU0/XCRLVKKlENI/AAAAAAAAB_0/nySaBbiKUqYmj_EFM6ILysF2Ih2K3UvwgCLcBGAs/s1600/56.jpg)
+![](/images/tainan3d.jpg)
 
 春捲不是香港吃的那種炸春卷  
 看到了嗎？是捲不是卷，是潤餅皮呢  
@@ -27,4 +27,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

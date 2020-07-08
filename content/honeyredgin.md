@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 零食時間食蜂蜜浸紅蔘補補氣  
 
-![](https://4.bp.blogspot.com/-HUW71oicoGA/XC4UF1xhr0I/AAAAAAAAD8g/DlopxvEctTkQBqgjHCk4gVwjYZLTmDdgACLcBGAs/s640/f.jpg)
+![](/images/honeyredgin.jpg)
 
 只有六年以上的人蔘才能稱為紅蔘  
 蔘的味道一般比較甘苦  

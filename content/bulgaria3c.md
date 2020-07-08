@@ -10,7 +10,7 @@ tags : [travel - България (Bulgaria)]
 是個中央站，雖然去哪裡步行也沒問題  
 但有時候都會搭metro  
 
-[![](https://2.bp.blogspot.com/-6Tq20ek7GSQ/XDM8fG0r_4I/AAAAAAAAEvE/iUzqM7Qg6f48kaKX46StCPy1baNRyXAEQCLcBGAs/s640/42.jpg)](https://2.bp.blogspot.com/-6Tq20ek7GSQ/XDM8fG0r_4I/AAAAAAAAEvE/iUzqM7Qg6f48kaKX46StCPy1baNRyXAEQCLcBGAs/s1600/42.jpg)
+[![](/images/bulgaria3c.jpg)
 
 10程只是8程價格  
 搭得夠就不妨買這張card  
@@ -28,4 +28,4 @@ tags : [travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

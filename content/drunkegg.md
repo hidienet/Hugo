@@ -8,14 +8,14 @@ tags : [flavor - 揀飲宅食]
 
 酒醃溏心土雞蛋，哪有不好吃的道理？  
 
-[![](https://2.bp.blogspot.com/-dYKxsQEGS5I/XDGp2IDaNkI/AAAAAAAAEnc/1glxC0Lecpkw0JpBQeqVd6tara81N5f7ACLcBGAs/s640/444.jpg)](https://2.bp.blogspot.com/-dYKxsQEGS5I/XDGp2IDaNkI/AAAAAAAAEnc/1glxC0Lecpkw0JpBQeqVd6tara81N5f7ACLcBGAs/s1600/444.jpg)
+![](/images/drunkegg1.jpg)
 
 一瓶幾隻中size雞蛋  
 盛滿了紹興酒跟幾片薑片  
 玻璃瓶加液體想起都覺得重  
 （先多謝小不點同細e老遠從臺灣空運回來）  
 
-[![](https://2.bp.blogspot.com/-2Nw092PX4cs/XDGp7XNDFtI/AAAAAAAAEnk/qRgSZjB6eUUAVCHkbqtaiVAMJYpNqg11wCLcBGAs/s640/454.jpg)](https://2.bp.blogspot.com/-2Nw092PX4cs/XDGp7XNDFtI/AAAAAAAAEnk/qRgSZjB6eUUAVCHkbqtaiVAMJYpNqg11wCLcBGAs/s1600/454.jpg)
+![](/images/drunkegg.jpg)
 
 你看你看你看  
 是溏心得雞蛋耶（興奮）  

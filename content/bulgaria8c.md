@@ -8,7 +8,7 @@ tags : [travel - България (Bulgaria)]
 
 就說我是大鄉里出省吧！  
 
-[![](https://4.bp.blogspot.com/-qYSQT9ODSbM/XDriniutxpI/AAAAAAAAFMI/pPiGcfBv1RIhvWqzYufnRuj9SA4wzk2EwCLcBGAs/s640/14076895157_425729af62_z.jpg)](https://4.bp.blogspot.com/-qYSQT9ODSbM/XDriniutxpI/AAAAAAAAFMI/pPiGcfBv1RIhvWqzYufnRuj9SA4wzk2EwCLcBGAs/s1600/14076895157_425729af62_z.jpg)
+![](/images/bulgaria8c.jpg)
 
 咖啡機，全世界都有  
 Irish coffee也是很普通的咖啡酒咖啡  
@@ -19,4 +19,4 @@ Irish coffee也是很普通的咖啡酒咖啡
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

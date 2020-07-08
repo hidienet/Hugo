@@ -35,24 +35,24 @@ tags : [travel - 中國・昆明]
   
 ⋯⋯ 好長，打到有點悶，看照片好了～  
 
-[![](https://4.bp.blogspot.com/-YRSHTdcdl74/XCiWzQJIi_I/AAAAAAAADXU/vsUCmDRscmgYF9ZuG_tPiur-NfeMB6SjwCLcBGAs/s640/41.jpg)](https://4.bp.blogspot.com/-YRSHTdcdl74/XCiWzQJIi_I/AAAAAAAADXU/vsUCmDRscmgYF9ZuG_tPiur-NfeMB6SjwCLcBGAs/s1600/41.jpg)
+![](/images/yunnan4c1.jpg)
 
 **金馬坊**  
 那兩隻馬都很瘦  
 應該是因為當時的馬都是在草地上跑跑跑吧  
 
-[![](https://4.bp.blogspot.com/-Lzk_EvfV-Gk/XCiW4jiJgXI/AAAAAAAADXY/Y4gx2pURr_A-RWVxsNk6sXo0l9sVxn81QCLcBGAs/s640/42.jpg)](https://4.bp.blogspot.com/-Lzk_EvfV-Gk/XCiW4jiJgXI/AAAAAAAADXY/Y4gx2pURr_A-RWVxsNk6sXo0l9sVxn81QCLcBGAs/s1600/42.jpg)
+![](/images/yunnan4c2.jpg)
 
 **碧雞坊**  
 舊雲南民族應該時拜雞族的  
 那隻雞就是古代神獸啦  
 
-[![](https://4.bp.blogspot.com/-fag6Z5OfNF8/XCiW-NSC-EI/AAAAAAAADXc/NMsub0NY9KAzTB1ZrgTNQhXWzWI66KLrQCLcBGAs/s640/43.jpg)](https://4.bp.blogspot.com/-fag6Z5OfNF8/XCiW-NSC-EI/AAAAAAAADXc/NMsub0NY9KAzTB1ZrgTNQhXWzWI66KLrQCLcBGAs/s1600/43.jpg)
+![](/images/yunnan4c3.jpg)
 
 **忠愛坊**  
 生前拿不動；死後帶不走的「紀念品」XD  
 
-[![](https://1.bp.blogspot.com/-vz2L4PaeCUA/XCiXDGRjgGI/AAAAAAAADXg/Uwu6xgneHugBsi7BL8G-ETFouEO4Q9VmACLcBGAs/s640/44.jpg)](https://1.bp.blogspot.com/-vz2L4PaeCUA/XCiXDGRjgGI/AAAAAAAADXg/Uwu6xgneHugBsi7BL8G-ETFouEO4Q9VmACLcBGAs/s1600/44.jpg)
+![](/images/yunnan4c4.jpg)
 
 不知道是什麼門，隨手拍的  
   
@@ -61,4 +61,4 @@ tags : [travel - 中國・昆明]
   
 \-----------------------------------------------  
   
-延伸閱讀：[昆明飽hihi（5D4N）](http://www.hidie.net/2013/12/hihi5d4n.html)
+延伸閱讀：[昆明飽hihi（5D4N）](https://hidie.net/yunnan5d4n/)

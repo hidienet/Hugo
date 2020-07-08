@@ -13,14 +13,14 @@ tags : [flavor - 小食部, travel - 中國・昆明]
 醬料可多了，能鹹的甜的辣的  
 而且也有包油炸鬼這樣  
 
-[![](https://2.bp.blogspot.com/-_-sbgp5uSxo/XCiS5k_XHEI/AAAAAAAADTc/g3RrK_gwrFICkbrFnOtnd9Qhtv4NhOuQACLcBGAs/s640/09.jpg)](https://2.bp.blogspot.com/-_-sbgp5uSxo/XCiS5k_XHEI/AAAAAAAADTc/g3RrK_gwrFICkbrFnOtnd9Qhtv4NhOuQACLcBGAs/s1600/09.jpg)
+![](/images/yunnan2d.jpg)
 
 我當然是選甜的  
 也是招牌醬：芝麻花生醬  
 裡面有芝麻花生（廢話）等十多種材料  
 香甜可口的老昆明味（！）  
 
-[![](https://2.bp.blogspot.com/-G6d9h34f83I/XCiTBD9bMwI/AAAAAAAADTk/y89oXWLbREUTekh_kBkmtUVMNnMnCpT0ACLcBGAs/s640/10.jpg)](https://2.bp.blogspot.com/-G6d9h34f83I/XCiTBD9bMwI/AAAAAAAADTk/y89oXWLbREUTekh_kBkmtUVMNnMnCpT0ACLcBGAs/s1600/10.jpg)
+![](/images/yunnan2d1.jpg)
 
 辣的這個是辣腐乳醬  
 挺辣的，不適合我  
@@ -31,4 +31,4 @@ tags : [flavor - 小食部, travel - 中國・昆明]
   
 \-----------------------------------------------  
   
-延伸閱讀：[昆明飽hihi（5D4N）](http://www.hidie.net/2013/12/hihi5d4n.html)
+延伸閱讀：[昆明飽hihi（5D4N）](https://hidie.net/yunnan5d4n/)

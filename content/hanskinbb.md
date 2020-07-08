@@ -11,7 +11,7 @@ tags : [glamorous - 畫皮？]
 有三大品牌：Dr.Jart+、skin79  
 以及這一枝hanskin  
 
-[![](https://3.bp.blogspot.com/-PR9Eq5MJ5YI/XEM9AV_oatI/AAAAAAAAF8Y/1ZfolppAsOIfUrI5fIYOACoiMJYULZS5wCLcBGAs/s640/9999113706_52900bb8e5_z.jpg)](https://3.bp.blogspot.com/-PR9Eq5MJ5YI/XEM9AV_oatI/AAAAAAAAF8Y/1ZfolppAsOIfUrI5fIYOACoiMJYULZS5wCLcBGAs/s1600/9999113706_52900bb8e5_z.jpg)
+![](/images/hanskinbb.jpg)
 
 皇者不敗的hanskin的perfect super magic B.B cream  
 說上「不敗」主因是由多年前到現在也能買到  

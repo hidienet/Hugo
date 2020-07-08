@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 阿掃是要定期洗澡的！  
 
-[![](https://2.bp.blogspot.com/-IBt1mMHMcro/XE1QdNZsdOI/AAAAAAAAHEs/_lzV5TuQHTU1b6pfBVypt0Urj5-tJtzfgCLcBGAs/s640/15356176426_7749203439_z.jpg)](https://2.bp.blogspot.com/-IBt1mMHMcro/XE1QdNZsdOI/AAAAAAAAHEs/_lzV5TuQHTU1b6pfBVypt0Urj5-tJtzfgCLcBGAs/s1600/15356176426_7749203439_z.jpg)
+![](/images/naturerepublicremover.jpg)
 
 有些人會用洗頭水清洗  
 有些又會用護髮素加水洗  

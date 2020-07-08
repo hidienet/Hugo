@@ -14,7 +14,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 台南的東西很多時候也淋上肉燥  
 還是想吃點香口的  
 
-[![](https://2.bp.blogspot.com/-p1pAPibuWyA/XCRPepY0A1I/AAAAAAAACBQ/97OzszeQKIw0pxnEGXJbhfJCAdiNxMsuACLcBGAs/s640/67.jpg)](https://2.bp.blogspot.com/-p1pAPibuWyA/XCRPepY0A1I/AAAAAAAACBQ/97OzszeQKIw0pxnEGXJbhfJCAdiNxMsuACLcBGAs/s1600/67.jpg)
+![](/images/tainan3l.jpg)
 
 香煎虱目魚肚！  
 去「阿堂」的時候是一大清早  
@@ -29,4 +29,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

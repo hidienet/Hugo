@@ -6,9 +6,9 @@ aliases: [ "/2014/12/base-banila-co-prime-primer-hydrating.html" ]
 tags : [glamorous - 畫皮？]
 ---
 
-此品牌的base C/P值很高 \[[相關舊文](http://www.hidie.net/2014/07/base-banila-co-prime-primer-classic.html)\]  
+此[品牌的base](https://hidie.net/banilacoprime/) C/P值很高  
 
-[![](https://farm3.staticflickr.com/2840/12264553894_8558c9026e_z.jpg)](https://farm3.staticflickr.com/2840/12264553894_8558c9026e_z.jpg)
+![](/images/banilacohydrating.jpg)
 
 相比起classic控油順滑版本  
 像我這樣的乾性皮膚  

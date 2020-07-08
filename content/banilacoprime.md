@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 夏天就用清爽控油的base  
 令皮膚少一點負擔  
 
-[![](https://4.bp.blogspot.com/-MG1qa1kp66M/XEM8CpOYbAI/AAAAAAAAF78/7G3c75V7oRQZQ8vbgDiV6FoQGnRyaJbRQCLcBGAs/s640/14583609644_7bd8c60bbd_z.jpg)](https://4.bp.blogspot.com/-MG1qa1kp66M/XEM8CpOYbAI/AAAAAAAAF78/7G3c75V7oRQZQ8vbgDiV6FoQGnRyaJbRQCLcBGAs/s1600/14583609644_7bd8c60bbd_z.jpg)
+![](/images/banilacoprime.jpg)
 
 透明磨砂玻璃色base  
 塗上這些矽就是填平毛孔細紋  

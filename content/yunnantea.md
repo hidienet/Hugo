@@ -6,9 +6,9 @@ aliases: [ "/2014/04/tea.html" ]
 tags : [flavor - 飲！]
 ---
 
-去雲南，怎會不買普洱？  
+去[雲南](https://hidie.net/yunnan5d4n/)，怎會不買普洱？  
 
-[![](https://4.bp.blogspot.com/-19iJj7jKF_4/XDGIfYmQQjI/AAAAAAAAEeA/2da36G3ZZSMWxhye1K5cOw5OkJrnpO_WwCLcBGAs/s640/40.jpg)](https://4.bp.blogspot.com/-19iJj7jKF_4/XDGIfYmQQjI/AAAAAAAAEeA/2da36G3ZZSMWxhye1K5cOw5OkJrnpO_WwCLcBGAs/s1600/40.jpg)
+![](/images/yunnantea.jpg)
 
 加上就算是同一款茶  
 除了分生熟茶之外  

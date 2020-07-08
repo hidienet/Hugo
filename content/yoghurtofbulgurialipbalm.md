@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 畢竟在冷氣房怕抽乾水分嘛  
 嘴唇太乾有脣紋會不好看  
 
-[![](https://3.bp.blogspot.com/-d_RAFkp617k/XEMfWFvMfOI/AAAAAAAAFsQ/qLiU2MaUwYUBpucVOY-AvkoLq-UFcsiaQCLcBGAs/s640/14195496408_cc69254f76_z.jpg)](https://3.bp.blogspot.com/-d_RAFkp617k/XEMfWFvMfOI/AAAAAAAAFsQ/qLiU2MaUwYUBpucVOY-AvkoLq-UFcsiaQCLcBGAs/s1600/14195496408_cc69254f76_z.jpg)
+![](/images/yoghurtofbulgurialipbalm.jpg)
 
 乳酪同玫瑰油的組合  
 味道像帶有淡淡花香的牛奶味  

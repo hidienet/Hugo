@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 gel liner比pencil更持久  
 卻比liquid更易控制    
 
-[![](https://4.bp.blogspot.com/-ULPQ5norLnw/XC4MINvRfsI/AAAAAAAAD4I/OwsDgfugEfY87F9klYsEmXED-p8Tk6AGwCLcBGAs/s640/77.jpg)](https://4.bp.blogspot.com/-ULPQ5norLnw/XC4MINvRfsI/AAAAAAAAD4I/OwsDgfugEfY87F9klYsEmXED-p8Tk6AGwCLcBGAs/s1600/77.jpg)
+![](/images/bbgelline.jpg)
 
 除了一開蓋時有點光身  
 我還是覺得它是膏多於gel   

@@ -10,7 +10,7 @@ tags : [flavor - 揀飲宅食]
 與甘筍一起放在飯中同煮  
 就連用來送酒也很好吃  
 
-[![](https://farm8.staticflickr.com/7798/18102010390_bc27d8f7af_z.jpg)](https://farm8.staticflickr.com/7798/18102010390_bc27d8f7af_z.jpg)
+![](/images/jonggaburdock.jpg)
 
 鹹度剛好，香味足  
 這些比甚麼纖維多甚麼健康元素更重要吧！  

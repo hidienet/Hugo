@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 
 在酒店休息了一陣，又走落樓吃東西  
 
-[![](https://1.bp.blogspot.com/-cKXnKm7-8xA/XCROeOomgLI/AAAAAAAACAs/ZPyHm8XEF6AEk-BSF0Bjr1vH2eu9Oh_HACLcBGAs/s640/62.jpg)](https://1.bp.blogspot.com/-cKXnKm7-8xA/XCROeOomgLI/AAAAAAAACAs/ZPyHm8XEF6AEk-BSF0Bjr1vH2eu9Oh_HACLcBGAs/s1600/62.jpg)
+![](/images/tainan3j1.jpg)
 
 又吃魷魚，這個叫活魷魚  
 但其實是燙魷魚  
@@ -18,7 +18,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 醬裡還有黃色的薑泥跟綠色的わさび  
 有了醬的魷魚才對味  
 
-[![](https://1.bp.blogspot.com/-xIoYuOoruEo/XCROlHKpGOI/AAAAAAAACAw/TKSPPsrrgAgQWu7xgz7KZQ5N5YoJuaLYQCLcBGAs/s640/63.jpg)](https://1.bp.blogspot.com/-xIoYuOoruEo/XCROlHKpGOI/AAAAAAAACAw/TKSPPsrrgAgQWu7xgz7KZQ5N5YoJuaLYQCLcBGAs/s1600/63.jpg)
+![](/images/tainan3j.jpg)
 
 鍋燒意麵的湯底是柴魚熬煮的  
 所以油炸過的意麵麵條吸了湯汁後蠻鮮的  
@@ -27,4 +27,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

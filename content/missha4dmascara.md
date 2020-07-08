@@ -10,7 +10,7 @@ tags : [glamorous - 畫皮？]
 不過只以港幣13元買這枝mascara  
 簡直就是比執笠價更厲害吧！  
 
-[![](https://farm9.staticflickr.com/8635/16167520657_fa182117df_z.jpg)](https://farm9.staticflickr.com/8635/16167520657_fa182117df_z.jpg)
+![](/images/missha4dmascara.jpg)
 
 但別小看這十多元的價格  
 能有纖長濃密向上翹的效果  

@@ -9,7 +9,7 @@ tags : [flavor - 小食部]
 看電影時喜歡吃焦糖爆谷  
 但平日吃鹹味的，也不錯喔  
 
-[![](https://farm8.staticflickr.com/7470/16015542031_343d74e941_z.jpg)](https://farm8.staticflickr.com/7470/16015542031_343d74e941_z.jpg)
+![](/images/mikepopcorn.jpg)
 
 連續5年獲取monde selection\*的金獎  
 （\*international institute for quality selections品質評價獎項）  
@@ -20,7 +20,7 @@ tags : [flavor - 小食部]
 這種來自南美洲的小吃  
 crossover了日式醬油卻一點遺和感都沒有，超正！  
 
-[![](https://farm8.staticflickr.com/7470/15831465099_00878903ed_z.jpg)](https://farm8.staticflickr.com/7470/15831465099_00878903ed_z.jpg)
+![](/images/mikepopcornnori.jpg)
 
 如果醬油已經與爆谷混得不錯  
 就不能錯過這期間限定的のり(紫菜) x わさび這味道  

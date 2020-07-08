@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 一邊吃著章魚燒；腦袋就嚷著...  
 
-[![](https://farm8.staticflickr.com/7582/16042556366_dd1b709f35_z.jpg)](https://farm8.staticflickr.com/7582/16042556366_dd1b709f35_z.jpg)
+![](/images/takoyaki.jpg)
 
 好！想！去！大！阪！啊！！！  
-（＃激動＃握拳＃靈魂出竅飛到大阪去）
+（＃激動 ＃握拳 ＃靈魂出竅飛到大阪去）

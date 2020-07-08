@@ -24,20 +24,20 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 石精臼就在赤崁樓旁，夜裡燈火通明  
 餓了就不多說，點了米糕、肉燥飯、四神湯  
 
-[![](https://2.bp.blogspot.com/-igFrPlSoOkk/XCRDXQUI0HI/AAAAAAAAB80/Cc1CcPqMarEOWNdH5X8wZua1DDmdGNTGQCLcBGAs/s640/31.jpg)](https://2.bp.blogspot.com/-igFrPlSoOkk/XCRDXQUI0HI/AAAAAAAAB80/Cc1CcPqMarEOWNdH5X8wZua1DDmdGNTGQCLcBGAs/s1600/31.jpg)
+![](/images/tainan1b.jpg)
 
 米糕：蒸的米糕淋上大大粒肉燥魚鬆跟青瓜  
 肉燥大粒得像迷你滷肉飯的滷肉BB般  
 而且是與冬菇在一起  
 糯米QQ的，配著鹹香又有肉汁的肉燥味道剛好  
 
-[![](https://2.bp.blogspot.com/-b6Szk8IYYU0/XCRDgIbslTI/AAAAAAAAB84/f7IjIpQQrCosvkz2ytw22QEuV7gbBbjWQCLcBGAs/s640/32.jpg)](https://2.bp.blogspot.com/-b6Szk8IYYU0/XCRDgIbslTI/AAAAAAAAB84/f7IjIpQQrCosvkz2ytw22QEuV7gbBbjWQCLcBGAs/s1600/32.jpg)
+![](/images/tainan1b1.jpg)
 
 肉燥飯沒有米糕的糯米那麼膩  
 像一碗小小碎上的東坡肉  
 但還是喜歡米糕多一點  
 
-[![](https://2.bp.blogspot.com/-j1plbRakMls/XCRDm_oBn5I/AAAAAAAAB88/5Z1UWKFRI-MfoWPL-6wAsAxekfG7udh8gCLcBGAs/s640/33.jpg)](https://2.bp.blogspot.com/-j1plbRakMls/XCRDm_oBn5I/AAAAAAAAB88/5Z1UWKFRI-MfoWPL-6wAsAxekfG7udh8gCLcBGAs/s1600/33.jpg)
+![](/images/tainan1b2.jpg)
 
 時間不能補，但身體可以  
 四神湯看起來清淡但喝起來卻是醇厚四神味道  
@@ -50,4 +50,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 蜜糖加牛奶，營養補補  
 
-[![](https://3.bp.blogspot.com/-zQhd0th8FvU/XEMf52AwlqI/AAAAAAAAFso/quoUoi6AoHcN2dDT-BRmYSTIQyUi0yj8wCLcBGAs/s640/14391167213_f84965ced0_z.jpg)](https://3.bp.blogspot.com/-zQhd0th8FvU/XEMf52AwlqI/AAAAAAAAFso/quoUoi6AoHcN2dDT-BRmYSTIQyUi0yj8wCLcBGAs/s1600/14391167213_f84965ced0_z.jpg)
+![](/images/regalhoneymilk.jpg)
 
 雖然是滋養mask，卻內有粘土成分  
 先清潔後滋潤  

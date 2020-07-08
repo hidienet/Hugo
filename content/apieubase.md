@@ -12,7 +12,7 @@ tags : [glamorous - 畫皮？]
 二來能使睫毛增加纖維與厚度  
 上mascara之後眼睛的放大度會加倍  
 
-[![](https://1.bp.blogspot.com/-G_C53YDgbaA/XCi4NKsQXII/AAAAAAAADek/aiU5nV5Qosw4NJVpVd1QNxmRImu8wdgBwCLcBGAs/s640/23.jpg)](https://1.bp.blogspot.com/-G_C53YDgbaA/XCi4NKsQXII/AAAAAAAADek/aiU5nV5Qosw4NJVpVd1QNxmRImu8wdgBwCLcBGAs/s1600/23.jpg)
+![](/images/apieubase.jpg)
 
 不過這枝沒有使睫毛厚了  
 只有纖長效果  

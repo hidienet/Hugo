@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 話說這是全球第一隻發行的烘焙胭脂 (since1863)  
 
-[![](https://3.bp.blogspot.com/-WPfBViGYIyU/XCOV9iLLzMI/AAAAAAAAB4k/THLbgo6kff89FEzwxLqVGHmZlCmCh5ACwCLcBGAs/s640/36.jpg)](https://3.bp.blogspot.com/-WPfBViGYIyU/XCOV9iLLzMI/AAAAAAAAB4k/THLbgo6kff89FEzwxLqVGHmZlCmCh5ACwCLcBGAs/s1600/36.jpg)
+![](/images/bourjoisblush.jpg)
 
 選用的是17號rose fougue  
 淡淡且可愛的粉紅色   

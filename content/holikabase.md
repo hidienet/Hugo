@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 「要有光」，就有了光。  XDDD  
 
-[![](https://3.bp.blogspot.com/-wppVVZ_f1vk/XC3zcXw-IFI/AAAAAAAADy0/5n6l4R2Jok4ExKufq6Y5DH2TlsapQxv5wCLcBGAs/s640/32.jpg)](https://3.bp.blogspot.com/-wppVVZ_f1vk/XC3zcXw-IFI/AAAAAAAADy0/5n6l4R2Jok4ExKufq6Y5DH2TlsapQxv5wCLcBGAs/s1600/32.jpg)
+![](/images/holikabase.jpg)
 
 用了它皮膚即時亮白起來  
 雖然會有輕微泛白  

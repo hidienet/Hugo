@@ -11,7 +11,7 @@ tags : [glamorous - 畫皮？]
   
 不是自己的東西就別勉強加諸自己身上！  
 
-[![](https://2.bp.blogspot.com/-zGDZyL5B5Z4/XCh1X8_KReI/AAAAAAAADCM/gDJiQJucLrc28-npYr4azkxHs5r_nts-gCLcBGAs/s640/40.jpg)](https://2.bp.blogspot.com/-zGDZyL5B5Z4/XCh1X8_KReI/AAAAAAAADCM/gDJiQJucLrc28-npYr4azkxHs5r_nts-gCLcBGAs/s1600/40.jpg)
+![](/images/makeupforeveranticernes.jpg)
 
 我不想要，但偏偏它跟隨我多年且不離不棄   
 也知道要做很多事件才可輕量減淡  

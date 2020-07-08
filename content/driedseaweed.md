@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食]
 一般在office午餐也是在座位裡煮飯  
 伴手的乾燥料就成為可靠的「伙伴」  
 
-[![](https://2.bp.blogspot.com/-dKUwiJ_zWHo/XEMw4cBtrjI/AAAAAAAAF08/0zKmiDk3L5U-1bMSv3uDvL2jWKLfN42XgCLcBGAs/s640/14241785407_b3c334cc5f_z.jpg)](https://2.bp.blogspot.com/-dKUwiJ_zWHo/XEMw4cBtrjI/AAAAAAAAF08/0zKmiDk3L5U-1bMSv3uDvL2jWKLfN42XgCLcBGAs/s1600/14241785407_b3c334cc5f_z.jpg)
+![](/images/driedseaweed.jpg)
 
 韓國超市的貨色  
 平常都不會浸開就直接同飯一起煲  

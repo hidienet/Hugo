@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 繼續吃早餐．．．就碗粿對面，坐下來還未用腦思考  
 就點了個豬舌包  
 
-[![](https://4.bp.blogspot.com/-Bhnx-GEizmM/XCRK1jn1dxI/AAAAAAAAB_k/awgtJ6upBMs9uPnBtHCBZE8evHiYE-qswCLcBGAs/s640/54.jpg)](https://4.bp.blogspot.com/-Bhnx-GEizmM/XCRK1jn1dxI/AAAAAAAAB_k/awgtJ6upBMs9uPnBtHCBZE8evHiYE-qswCLcBGAs/s1600/54.jpg)
+![](/images/tainan3b.jpg)
 
 包子就像被剖開的饅頭，裡面豪氣的塞了塊豬舌  
 淋花生醬汁後，再放了蘿蔔跟鋪了酸菜  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

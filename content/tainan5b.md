@@ -15,7 +15,7 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
 拿著一袋二袋（行李早已放入儲物櫃）  
 坐下喝一杯鍾愛的木瓜牛奶  
 
-[![](https://1.bp.blogspot.com/-VQ8Ey6caSXE/XCRRXoV696I/AAAAAAAACCM/PGfE1h0n3VkdU5X9qnch0XfsWnN0h_jggCLcBGAs/s640/75.jpg)](https://1.bp.blogspot.com/-VQ8Ey6caSXE/XCRRXoV696I/AAAAAAAACCM/PGfE1h0n3VkdU5X9qnch0XfsWnN0h_jggCLcBGAs/s1600/75.jpg)
+![](/images/tainan5b.jpg)
 
 這一杯濃到不能再濃，像喝奶昔一樣  
 木瓜瓜味濃郁，帶少許苦味  
@@ -31,4 +31,4 @@ tags : [flavor - 飲！, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

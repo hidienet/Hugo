@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 雖然用手上粉底又快又方便  
 但要上完美妝容還是乖乖用粉底掃吧！  
 
-[![](https://4.bp.blogspot.com/-UGXae4Pgoag/XFbHTuc44hI/AAAAAAAAH2o/kIHl1i5X-LA8oP53HDCKL58Ah9ZjqvZNgCLcBGAs/s640/15559911300_7fdcb17cb9_z.jpg)](https://4.bp.blogspot.com/-UGXae4Pgoag/XFbHTuc44hI/AAAAAAAAH2o/kIHl1i5X-LA8oP53HDCKL58Ah9ZjqvZNgCLcBGAs/s1600/15559911300_7fdcb17cb9_z.jpg)
+![](/images/shiseido131.jpg)
 
 圓頭加斜角，令面上不同位置輕易上粉  
 毛質幼細軟滑，使整個上妝過程都很舒服  

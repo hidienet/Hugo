@@ -12,16 +12,16 @@ tags : [flavor - 螞蟻族, flavor - 小食部]
 三粒星最高評級嗰隻喎  
 應該無死錯人喇啩...  
 
-[![](https://c1.staticflickr.com/9/8796/28332844983_00277a950f_z.jpg)](https://c1.staticflickr.com/9/8796/28332844983_00277a950f_z.jpg)
+![](/images/ringootome1.jpg)
 
 平凡樣嘅包裝  
 
-[![](https://c1.staticflickr.com/9/8846/28916785276_cd92f4b6e5_z.jpg)](https://c1.staticflickr.com/9/8846/28916785276_cd92f4b6e5_z.jpg)
+![](/images/ringootome2.jpg)
 
 包裝裡面都係包裝  
 通常統稱獨立包裝咁  
 
-[![](https://c1.staticflickr.com/9/8620/28332928133_8fecd526da_z.jpg)](https://c1.staticflickr.com/9/8620/28332928133_8fecd526da_z.jpg)
+![](/images/ringootome.jpg)
 
 好簡單嘅蘋果片同薄曲奇底  
 薄囉～ 脆囉～ 清甜囉～  

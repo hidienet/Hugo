@@ -12,7 +12,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 肚子餓到扁，不吃東西就沒頭腦沒氣力脾氣暴燥  
 去台南就是為了吃！  
 
-![](/images/tainan1a7.jpg)
+![](/images/tainan1a.jpg)
 
 蝦跟蚵的選擇，選了蚵  
 果然沒有錯．．．  

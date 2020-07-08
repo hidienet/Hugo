@@ -10,15 +10,15 @@ tags : [flavor - 小食部]
 （你理得我細個嗰陣識唔識諷刺時弊呢家嘢吖）  
 見到呢盒嘢好正咁樣唔會唔買囉...  
 
-[![](https://c1.staticflickr.com/5/4358/36416795906_728957f5d8_z.jpg)](https://c1.staticflickr.com/5/4358/36416795906_728957f5d8_z.jpg)
+![](/images/arluyminisimpsons.jpg)
 
 牛奶樣嘅包裝  
 
-[![](https://c1.staticflickr.com/5/4410/36462497135_aa235f02c1_z.jpg)](https://c1.staticflickr.com/5/4410/36462497135_aa235f02c1_z.jpg)
+![](/images/arluyminisimpsons1.jpg)
 
 印住Bart、Homer同Lisa個樣  
 
-[![](https://c1.staticflickr.com/5/4352/35654458203_d3bf0c28a4_z.jpg)](https://c1.staticflickr.com/5/4352/35654458203_d3bf0c28a4_z.jpg)
+![](/images/arluyminisimpsons2.jpg)
 
 啲曲奇就印晒五款（+ Marge & Maggie）  
 細細塊少少厚實類型  

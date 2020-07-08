@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 可不想頭髮都變白呢  
 不算超～ 多，但有就是有（握拳）  
 
-[![](https://1.bp.blogspot.com/-yP-KY46MNWk/XEMgIFy8oKI/AAAAAAAAFss/T9JL16Bv5wsW7Ky935dfA-_LgLvUd_FMACLcBGAs/s640/14185589409_d1162c5f7e_z.jpg)](https://1.bp.blogspot.com/-yP-KY46MNWk/XEMgIFy8oKI/AAAAAAAAFss/T9JL16Bv5wsW7Ky935dfA-_LgLvUd_FMACLcBGAs/s1600/14185589409_d1162c5f7e_z.jpg)
+![](/images/herbaltimehenna.jpg)
 
 超喜歡這枝在保加利亞挖的寶貝  
 牙膏狀一擠就直接apply  

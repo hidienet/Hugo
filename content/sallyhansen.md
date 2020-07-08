@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 強化指甲的同時又有閃令令效果  
 怎會不令我愛不釋手呢  
 
-[![](https://2.bp.blogspot.com/-E6P6qg8hR48/XCyy-cEZDiI/AAAAAAAADu4/cwFeSxOU32MuQ6UTfss1jztXHT_nQDUTACLcBGAs/s640/80.jpg)](https://2.bp.blogspot.com/-E6P6qg8hR48/XCyy-cEZDiI/AAAAAAAADu4/cwFeSxOU32MuQ6UTfss1jztXHT_nQDUTACLcBGAs/s1600/80.jpg)
+![](/images/sallyhansen.jpg)
 
 不做假甲gel nail那些  
 平常最多也只是塗指甲油  

@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 真的好滾動，roll roll roll～  
 
-[![](https://2.bp.blogspot.com/-TxYbix-bLp8/XENAohWyuoI/AAAAAAAAF9I/RY3RyWnTXS0h_8cR6jUaPp0saQ_h4HD5gCLcBGAs/s640/14398836798_2d4e155501_z.jpg)](https://2.bp.blogspot.com/-TxYbix-bLp8/XENAohWyuoI/AAAAAAAAF9I/RY3RyWnTXS0h_8cR6jUaPp0saQ_h4HD5gCLcBGAs/s1600/14398836798_2d4e155501_z.jpg)
+![](/images/holikaholikaroller.jpg)
 
 側邊一按就會有液狀bb cream流出  
 bb cream吸附在海綿  
@@ -26,7 +26,7 @@ roll位不很大
 海綿可拆出來清洗  
 基本一套已有兩個海綿頭  
 
-[![](https://1.bp.blogspot.com/-hwUMdVIo4qo/XENAtYMGnJI/AAAAAAAAF9Q/CcT-QW9kJuQqQfYnR0CKxS1z1zZ6ctoDwCLcBGAs/s640/14584718382_d437763e62_z.jpg)](https://1.bp.blogspot.com/-hwUMdVIo4qo/XENAtYMGnJI/AAAAAAAAF9Q/CcT-QW9kJuQqQfYnR0CKxS1z1zZ6ctoDwCLcBGAs/s1600/14584718382_d437763e62_z.jpg)
+![](/images/holikaholikaroller1.jpg)
 
 液體bb cream同liquid foundation其實大同小異  
 遮瑕度足，這枝有SPF30 PA++  

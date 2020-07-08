@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 家下食乜L零食都要有鹹蛋黃coating嘛...  
 
-[![](https://c1.staticflickr.com/5/4773/39979214304_503fc1ae06_z.jpg)](https://c1.staticflickr.com/5/4773/39979214304_503fc1ae06_z.jpg)
+![](/images/meltlyplace.jpg)
 
 托同事嘅福，今次試係加咗鹹蛋黃嘅蝴蝶酥  
 鹹蛋黃嘅鹹同蝴蝶酥嘅甜响埋一齊會唔會好怪？  
@@ -32,4 +32,4 @@ tags : [flavor - 小食部]
   
 \-----------------------------------------------  
   
-延伸閱讀：[金鴨 手工鹹蛋魚皮](http://www.hidie.net/2018/02/blog-post_12.html)
+延伸閱讀：[金鴨 手工鹹蛋魚皮](https://hidie.net/goldenduck/)

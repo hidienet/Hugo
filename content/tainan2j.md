@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺南、六龜]
 
 椪糖呀椪糖，你的樣子很像合桃酥啊！  
 
-[![](https://3.bp.blogspot.com/-Stqqz3d_Rvc/XCRHupcauAI/AAAAAAAAB-I/aoKA81cUzd0qaKokIXhTSbOA61_NIp33gCLcBGAs/s640/42.jpg)](https://3.bp.blogspot.com/-Stqqz3d_Rvc/XCRHupcauAI/AAAAAAAAB-I/aoKA81cUzd0qaKokIXhTSbOA61_NIp33gCLcBGAs/s1600/42.jpg)
+![](/images/tainan2j.jpg)
 
 武廟前有一個神奇的檔攤  
 師傅一隻手拿著兜子，兜子底是一直加熱  
@@ -28,4 +28,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

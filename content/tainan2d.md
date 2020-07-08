@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺南、六龜, flavor - 小食部]
 肚子飽不能把食物即時放入肚子，但可以買回去吃呢  
 進店內像賣麵包般一袋袋一盒盒的，感覺乾淨衛生  
 
-[![](https://3.bp.blogspot.com/-pID2DYT1-Vg/XCRETh3HKeI/AAAAAAAAB9Y/WBG6fkTNLwcsorqZ07ghTBDy1l17o0JiACLcBGAs/s640/36.jpg)](https://3.bp.blogspot.com/-pID2DYT1-Vg/XCRETh3HKeI/AAAAAAAAB9Y/WBG6fkTNLwcsorqZ07ghTBDy1l17o0JiACLcBGAs/s1600/36.jpg)
+![](/images/tainan2d.jpg)
 
 隨手拿了鴨翅、鴨舌頭、鴨腸和豆皮 (official稱呼)  
 煙燻跟平日吃的滷水當然有十萬個不同  
@@ -39,4 +39,4 @@ tags : [travel - 臺灣・臺南、六龜, flavor - 小食部]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/l)

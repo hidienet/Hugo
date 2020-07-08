@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 睫毛，除了要向上翹外  
 還要根・根・分・明  
 
-[![](https://farm8.staticflickr.com/7473/15830152297_033895b1fb_z.jpg)](https://farm8.staticflickr.com/7473/15830152297_033895b1fb_z.jpg)
+![](/images/ipsacomb.jpg)
 
 硬身幼條梳頭，輕易梳出幼細睫毛  
 超耐用～ 用了很多年都完好  

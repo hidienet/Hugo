@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 早上美術課，調色盤在手，一張面就是畫紙  
 
-[![](https://3.bp.blogspot.com/-oApnEfeaG-E/XCON-1wMFcI/AAAAAAAAB1E/2-iKesgWfPcrKN9GAuDc28Q4ZY2e3kH-QCLcBGAs/s640/8.jpg)](https://3.bp.blogspot.com/-oApnEfeaG-E/XCON-1wMFcI/AAAAAAAAB1E/2-iKesgWfPcrKN9GAuDc28Q4ZY2e3kH-QCLcBGAs/s1600/8.jpg)
+![](/images/ipsapalette.jpg)
 
 輪廓分明的，就是把眼耳口鼻乖乖的歸位  
 （平日跌在地上的嗎？）  

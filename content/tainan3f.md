@@ -19,7 +19,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺南、六龜]
 早餐吃得太狼死 XD  
 加上一直也愛沒甚都不加的豆花  
 
-[![](https://4.bp.blogspot.com/-TstNAmrAqdI/XCRMZ_Vv6TI/AAAAAAAACAI/1S30B7-B4Q82FeNqyA8uGMMOk-mCvDskACLcBGAs/s640/58.jpg)](https://4.bp.blogspot.com/-TstNAmrAqdI/XCRMZ_Vv6TI/AAAAAAAACAI/1S30B7-B4Q82FeNqyA8uGMMOk-mCvDskACLcBGAs/s1600/58.jpg)
+![](/images/tainan3f.jpg)
 
 點了原味跟黑豆味  
 兩碗也是滑溜溜  
@@ -30,4 +30,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

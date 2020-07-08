@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 卻被牛湯的香氣吸了進店，坐下乖乖的看餐牌  
 點了碗牛雜湯，因為這比牛肉湯少見到  
 
-[![](https://2.bp.blogspot.com/-C3Co5zb088w/XCRD08WIOrI/AAAAAAAAB9E/EHxJg3aaO3070Lw3F0w2oEaz6DH86eUeACLcBGAs/s640/34.jpg)](https://2.bp.blogspot.com/-C3Co5zb088w/XCRD08WIOrI/AAAAAAAAB9E/EHxJg3aaO3070Lw3F0w2oEaz6DH86eUeACLcBGAs/s1600/34.jpg)
+![](/images/tainan2b.jpg)
 
 聞起來濃濃的牛湯香氣，在碗中竟然是清澈不濁  
 先呷一口湯，味道鮮香而且純粹，沒有雜味  
@@ -28,4 +28,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

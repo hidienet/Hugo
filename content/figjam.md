@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食]
 無論是新鮮的乾的蜜餞的都愛  
 這個無花果jam，當然也逃不出我的味蕾  
 
-[![](https://1.bp.blogspot.com/-9LFGEkiM50A/XEMyyObU6RI/AAAAAAAAF1k/eV6tkTJH6x04pGimU9VvL_hHg9ql0eBPgCLcBGAs/s640/14427610555_abeff9c9b8_z.jpg)](https://1.bp.blogspot.com/-9LFGEkiM50A/XEMyyObU6RI/AAAAAAAAF1k/eV6tkTJH6x04pGimU9VvL_hHg9ql0eBPgCLcBGAs/s1600/14427610555_abeff9c9b8_z.jpg)
+![](/images/figjam.jpg)
 
 雖然平常很少會吃果醬  
 可是保加利亞出產的fig jam實在太難抗拒  
@@ -20,4 +20,4 @@ tags : [flavor - 揀飲宅食]
   
 很少機會會食麵包  
 有粒子的jam又不適合做沙冰  
-還是用來伴[乳酪](http://www.hidie.net/2014/06/x-honey-walnut-yogurt.html)就好
+還是用來伴[乳酪](https://hidie.net/yogurtmachine/)就好

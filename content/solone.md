@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 被譽為台灣之光的solone眼線筆  
 沒有不試試的理由對吧～  
 
-[![](https://2.bp.blogspot.com/-bPfmfORUe40/XEQjkvIxgHI/AAAAAAAAGN4/1JJTWlMht2YQ2PS_K0k_OkKeSTdFWuoyQCLcBGAs/s640/14817880485_01c9292ffc_z.jpg)](https://2.bp.blogspot.com/-bPfmfORUe40/XEQjkvIxgHI/AAAAAAAAGN4/1JJTWlMht2YQ2PS_K0k_OkKeSTdFWuoyQCLcBGAs/s1600/14817880485_01c9292ffc_z.jpg)
+![](/images/solone.jpg)
 
 （媽呀！這女人的樣子好惡眼神好恐怖啊）  
 筆狀的gel eyeliner  

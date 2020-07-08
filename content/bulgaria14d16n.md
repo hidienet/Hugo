@@ -159,7 +159,7 @@ eat：[二度lubimoto](http://www.hidie.net/2014/06/day14lubimoto.html)
 [\[snacks\] fettuccine maretti le rosse](http://www.hidie.net/2014/06/fettuccine-maretti-le-rosse.html)  
 [\[snacks\] bake balls](http://www.hidie.net/2014/06/bake-balls-cheese-flavoured-mushroom.html)  
 [\[candy\] KOSKA - turkish delight](http://www.hidie.net/2014/06/candy-koska-turkish-delight.html)  
-\[toner\] Refan - Rose Damascena organic flower water  
+[\[toner\] Refan - Rose Damascena organic flower water](https://hidie.net/refanrosewater/)  
 [\[masque\] DeBa - brilliant white whitening face mask](http://www.hidie.net/2014/06/masque-deba-brilliant-white-whitening.html)  
 [\[masque\] REGAL - 3 minutes mask](http://www.hidie.net/2014/06/masque-regal-3-minutes-mask.html)  
 [\[masque\] REGAL - nourishing mask with honey and milk extracts](http://www.hidie.net/2014/06/masque-regal-nourishing-mask-with-honey.html)  
@@ -173,6 +173,6 @@ eat：[二度lubimoto](http://www.hidie.net/2014/06/day14lubimoto.html)
 
   
 
-[![](https://1.bp.blogspot.com/-BWSX2MHP3y8/XDNZld75iXI/AAAAAAAAFDg/0TeoeSOo2ys5RQM5U9-jaK90liYnxaiSACLcBGAs/s640/122.jpg)](https://1.bp.blogspot.com/-BWSX2MHP3y8/XDNZld75iXI/AAAAAAAAFDg/0TeoeSOo2ys5RQM5U9-jaK90liYnxaiSACLcBGAs/s1600/122.jpg)
+![](/images/bulgaria14d16n.jpg)
 
 住在sofia的apartment幾天的「戰績」（哈）

@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 我知我知，代表我的數字應該是“7”  
 但這枝“6”真的好好用很襯我嘛～（撒甚麼嬌呀你？）  
 
-[![](https://farm8.staticflickr.com/7485/15958708032_546819bc71_z.jpg)](https://farm8.staticflickr.com/7485/15958708032_546819bc71_z.jpg)
+![](/images/verysix6sec.jpg)
 
 lip gloss最怕用後超～ 黏～  
 這枝卻完全沒有此煩惱  

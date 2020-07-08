@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 little witch mote mascara... 這是用過最好的mascara（齊鼓掌）  
 
-[![](https://2.bp.blogspot.com/-fNGFgEoixWs/XChxAW9yTuI/AAAAAAAAC-k/oeUxZnJ-Xko761-UogQxedLd7Sf9U39KACLcBGAs/s640/10.jpg)](https://2.bp.blogspot.com/-fNGFgEoixWs/XChxAW9yTuI/AAAAAAAAC-k/oeUxZnJ-Xko761-UogQxedLd7Sf9U39KACLcBGAs/s1600/10.jpg)
+![](/images/littlewitch.jpg)
 
 濃密、180%纖長又夠捲曲（輕身）  
 不會panda（掉妝）而且long lasting  

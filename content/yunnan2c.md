@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - 中國・昆明]
 
 在雲南吃汽鍋雞是常識好吧！  
 
-[![](https://2.bp.blogspot.com/-NFXj_GW6aEw/XCiScTNBTHI/AAAAAAAADS8/My9sGgW1V3AC-9L-swAB8ZLAZEwLNJpxwCLcBGAs/s640/05.jpg)](https://2.bp.blogspot.com/-NFXj_GW6aEw/XCiScTNBTHI/AAAAAAAADS8/My9sGgW1V3AC-9L-swAB8ZLAZEwLNJpxwCLcBGAs/s1600/05.jpg)
+![](/images/yunnan2c1.jpg)
 
 結果當然是煲湯油到爆啦 XD  
 汽鍋雞是以這個中間有條喉的建水土陶汽鍋  
@@ -20,7 +20,7 @@ tags : [flavor - 行膳積腹, travel - 中國・昆明]
 雞的骨肉分離（！）而且雞肉嫩嫩滑滑的  
 到雲南不喝這湯絕對走寶就是！  
 
-[![](https://2.bp.blogspot.com/-3afhvlMUzFM/XCiSj1A14xI/AAAAAAAADTA/8G93zFCXYHgft1MlTKPgICitZhXpSUd_ACLcBGAs/s640/06.jpg)](https://2.bp.blogspot.com/-3afhvlMUzFM/XCiSj1A14xI/AAAAAAAADTA/8G93zFCXYHgft1MlTKPgICitZhXpSUd_ACLcBGAs/s1600/06.jpg)
+![](/images/yunnan2c2.jpg)
 
 焖饭  
 好大一鍋，很香也很好吃  
@@ -29,11 +29,11 @@ tags : [flavor - 行膳積腹, travel - 中國・昆明]
   
 接下來，猜一下以下的東西是什麼  
 
-[![](https://1.bp.blogspot.com/-CRBxi5P0a5M/XCiSpOc6yyI/AAAAAAAADTI/J2feKXA91mUHObftTIMgcgrs_b1XDILsACLcBGAs/s640/07.jpg)](https://1.bp.blogspot.com/-CRBxi5P0a5M/XCiSpOc6yyI/AAAAAAAADTI/J2feKXA91mUHObftTIMgcgrs_b1XDILsACLcBGAs/s1600/07.jpg)
+![](/images/yunnan2c3.jpg)
 
 白色一盆，點的「醬」是桂花糖  
 
-[![](https://4.bp.blogspot.com/-GJfP4-zvEEU/XCiSvIy2piI/AAAAAAAADTQ/KtV-cgfTw6YRFsnmlLupCa17IbZLHS10gCLcBGAs/s640/08.jpg)](https://4.bp.blogspot.com/-GJfP4-zvEEU/XCiSvIy2piI/AAAAAAAADTQ/KtV-cgfTw6YRFsnmlLupCa17IbZLHS10gCLcBGAs/s1600/08.jpg)
+![](/images/yunnan2c4.jpg)
 
 再一個角度  
 白白的，晶瑩剔透  
@@ -58,4 +58,4 @@ tags : [flavor - 行膳積腹, travel - 中國・昆明]
   
 \-----------------------------------------------  
   
-延伸閱讀：[昆明飽hihi（5D4N）](http://www.hidie.net/2013/12/hihi5d4n.html)
+延伸閱讀：[昆明飽hihi（5D4N）](https://hidie.net/yunnan5d4n/)

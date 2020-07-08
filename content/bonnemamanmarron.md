@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食]
 冇食早餐嘅習慣  
 基本上唔鍾意食麵包  
 
-[![](https://c1.staticflickr.com/5/4504/23656605328_9c51be98c2_z.jpg)](https://c1.staticflickr.com/5/4504/23656605328_9c51be98c2_z.jpg)
+![](/images/bonnemamanmarron.jpg)
 
 對jam呢啲甜椰椰嘅嘢  
 就更加冇咩情意結  

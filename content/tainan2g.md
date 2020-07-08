@@ -8,28 +8,20 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
 
 小小的一碗麵，為甚麼竟能成為國宴？  
 
-[![](https://1.bp.blogspot.com/-oeWksdCJg8A/XCRFz-eLAFI/AAAAAAAAB9s/R0qs4w9nfFwhNCVYZ1p655qfY_kPPhFqwCLcBGAs/s640/39.jpg)](https://1.bp.blogspot.com/-oeWksdCJg8A/XCRFz-eLAFI/AAAAAAAAB9s/R0qs4w9nfFwhNCVYZ1p655qfY_kPPhFqwCLcBGAs/s1600/39.jpg)
+![](/images/tainan2g.jpg)
 
-彈牙的麵條，淋上以蝦頭熬成的湯頭
-
-加上肉燥以及小小的三幾隻尾鮮蝦
-
+彈牙的麵條，淋上以蝦頭熬成的湯頭  
+加上肉燥以及小小的三幾隻尾鮮蝦  
 再放了魚丸和滷蛋
 
   
 
-吃前先略拌一下，嚐嚐湯頭
-
-油鮮甘香的味道同時撲了出來
-
-麵條沒有糊掉很好咬
-
-肉燥是沒有肥肉的一點也不油膩
-
-與醬汁在一起便是超香濃
-
-蝦細細隻很鮮甜
-
+吃前先略拌一下，嚐嚐湯頭  
+油鮮甘香的味道同時撲了出來  
+麵條沒有糊掉很好咬  
+肉燥是沒有肥肉的一點也不油膩  
+與醬汁在一起便是超香濃  
+蝦細細隻很鮮甜  
 相對地滷蛋跟魚丸就比較遜色
 
   
@@ -44,4 +36,4 @@ tags : [flavor - 行膳積腹, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

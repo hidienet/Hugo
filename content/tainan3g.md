@@ -9,7 +9,7 @@ tags : [travel - 臺灣・臺南、六龜, flavor - 小食部]
 不論身處哪裡與哪時代，現烤魷魚都是在遠遠的地方也聞得到  
 等呀等，日上三竿時分企街等食真是有種說不出的享受  
 
-[![](https://1.bp.blogspot.com/-5c_pcpEVC9o/XCRMp_D2PvI/AAAAAAAACAQ/_xkGdVrvmcwIf72UHLGjQTQepDAxybXFACLcBGAs/s640/59.jpg)](https://1.bp.blogspot.com/-5c_pcpEVC9o/XCRMp_D2PvI/AAAAAAAACAQ/_xkGdVrvmcwIf72UHLGjQTQepDAxybXFACLcBGAs/s1600/59.jpg)
+![](/images/tainan3g.jpg)
 
 see！等是值得的！  
 （加上我只是排了一兩個人在前面的隊，  
@@ -26,4 +26,4 @@ see！等是值得的！
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

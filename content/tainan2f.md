@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺南、六龜]
 
 草草地逛了一會，便想著吃東西，吃凍的甜的  
 
-[![](https://2.bp.blogspot.com/-D5DtPvHegws/XCRFliXSszI/AAAAAAAAB9o/Vhx8CgcO1UQW5MpXtNNgzK2bfXwopLIEACLcBGAs/s640/38.jpg)](https://2.bp.blogspot.com/-D5DtPvHegws/XCRFliXSszI/AAAAAAAAB9o/Vhx8CgcO1UQW5MpXtNNgzK2bfXwopLIEACLcBGAs/s1600/38.jpg)
+![](/images/tainan2f.jpg)
 
 雖然稱為豆腐酪但其實沒有豆的成份  
 以奶為基底，只是當初以四方模成型故樣子似豆腐  
@@ -32,4 +32,4 @@ tags : [flavor - 螞蟻族, travel - 臺灣・臺南、六龜]
   
 \-----------------------------------------------  
   
-延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](http://www.hidie.net/2013/10/w-5d4n.html)
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 非常喜歡NARS的eye shadow  
 
-[![](https://1.bp.blogspot.com/-pHqDG2v0_6I/XC4UYZMbNmI/AAAAAAAAD8o/HG70b3DU5k4rA-sllpVxkT2wz7V8c8uUQCLcBGAs/s640/h.jpg)](https://1.bp.blogspot.com/-pHqDG2v0_6I/XC4UYZMbNmI/AAAAAAAAD8o/HG70b3DU5k4rA-sllpVxkT2wz7V8c8uUQCLcBGAs/s1600/h.jpg)
+![](/images/narseye.jpg)
 
 粉質超級幼細   
 顯色度又夠高  

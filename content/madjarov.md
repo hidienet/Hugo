@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食]
 深怕在Doha轉機時東西會變壞  
 新鮮的食物不敢多帶  
 
-[![](https://1.bp.blogspot.com/-54UGYkiOnCQ/XEMgWQTUVNI/AAAAAAAAFs0/1SV__-NiQDw7HaeCJq8G4cq2Tk-0zPNvgCLcBGAs/s640/14195952918_9e843aa5f7_z.jpg)](https://1.bp.blogspot.com/-54UGYkiOnCQ/XEMgWQTUVNI/AAAAAAAAFs0/1SV__-NiQDw7HaeCJq8G4cq2Tk-0zPNvgCLcBGAs/s1600/14195952918_9e843aa5f7_z.jpg)
+![](/images/madjarov.jpg)
 
 乳酪可以在香港買有保加利亞菌種的Greek yogurt  
 但芝士這裡真的沒有  
@@ -24,7 +24,7 @@ tags : [flavor - 揀飲宅食]
 也能可以懶懶的扮「膠紙」食法：  
 cheese x honey x walnut  
 cheese x fig  
-甚至cheese x caramel apple \[[這裡學的](http://www.hidie.net/2014/06/day11restaurant-neptun.html)\]  
+甚至[cheese x caramel apple](https://hidie.net/bulgaria11d/)  
 樣樣都好配；怎襯都好味～  
   
 果然是用生命帶回來的食物特別好吃！

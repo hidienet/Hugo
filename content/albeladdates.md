@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 是哪來的力量令人會在Doha托1250gm的棗子回家？  
 
-[![](https://2.bp.blogspot.com/-drpgOFPV0cE/XEMvzmN2dFI/AAAAAAAAF0I/n23dy7FqVSYkMwNNo71Qc-8bBr3Yn24awCLcBGAs/s640/14240172978_5305ec3650_z.jpg)](https://2.bp.blogspot.com/-drpgOFPV0cE/XEMvzmN2dFI/AAAAAAAAF0I/n23dy7FqVSYkMwNNo71Qc-8bBr3Yn24awCLcBGAs/s1600/14240172978_5305ec3650_z.jpg)
+![](/images/albeladdates.jpg)
 
 當然是因為又甜又好味啦（笑）  
 面層乾燥的棗，裡面軟身中間有核  

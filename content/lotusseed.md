@@ -10,11 +10,11 @@ tags : [flavor - 小食部]
 香港都有店同好多外賣鋪  
 但一次都未幫襯過  
 
-[![](https://3.bp.blogspot.com/-szBC_imzYww/XDGmgBNm4PI/AAAAAAAAElU/vGdZPfsmGqQE0_IW2XLCUivELh9532JqwCLcBGAs/s640/3.jpg)](https://3.bp.blogspot.com/-szBC_imzYww/XDGmgBNm4PI/AAAAAAAAElU/vGdZPfsmGqQE0_IW2XLCUivELh9532JqwCLcBGAs/s1600/3.jpg)
+![](/images/lotusseed.jpg)
 
 「喔！原來除了壽司還有這樣的小吃」  
 原料只有蓮子跟白砂糖  
-雖然對強國產的蓮子  
+雖然對__國產的蓮子  
 臺灣的甜東西都有點戒心  
 不過算了，反正我都是用生命來吃  
   

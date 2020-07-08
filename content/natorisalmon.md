@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 做人要multi-task；做三文魚都要！  
 
-[![](https://c1.staticflickr.com/9/8594/29202848632_41edc61b94_z.jpg)](https://c1.staticflickr.com/9/8594/29202848632_41edc61b94_z.jpg)
+![](/images/natorisalmon.jpg)
 
 同我對蘿蔔腳差唔多長嘅連皮三文魚乾  
 （係條魚本身好長死都唔認係自己腳短！）  

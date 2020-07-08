@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 只有懶女人沒有醜女人？  
 out啦，要靚又要懶才是王道（哈哈）  
 
-[![](https://4.bp.blogspot.com/-hEttKO88OIM/XDNY1U71pAI/AAAAAAAAFC8/qLm1m5Zvq_cbt-tjG-hiuyyCGQ1u4BQYwCLcBGAs/s640/117.jpg)](https://4.bp.blogspot.com/-hEttKO88OIM/XDNY1U71pAI/AAAAAAAAFC8/qLm1m5Zvq_cbt-tjG-hiuyyCGQ1u4BQYwCLcBGAs/s1600/117.jpg)
+![](/images/regal3min.jpg)
 
 洗完面之後濕面不需要抹乾  
 直接apply個mask上面  

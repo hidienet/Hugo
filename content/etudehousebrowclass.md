@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 跟住畫板填顏色（哈）  
 
-[![](https://3.bp.blogspot.com/-jp1XYFFje7o/XFbEmrhletI/AAAAAAAAH2M/C15hgLD9-t0AxdqRfQHgI61sq8cIcRNRACLcBGAs/s640/15224143818_a96b726775_z.jpg)](https://3.bp.blogspot.com/-jp1XYFFje7o/XFbEmrhletI/AAAAAAAAH2M/C15hgLD9-t0AxdqRfQHgI61sq8cIcRNRACLcBGAs/s1600/15224143818_a96b726775_z.jpg)
+![](/images/etudehousebrowclass.jpg)
 
 雖然平時眉毛已足夠  
 加不加色也沒有太大分別  

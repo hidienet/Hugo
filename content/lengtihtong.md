@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 其實這才是臺南去六龜時的最後一站．．．  
 
-[![](https://3.bp.blogspot.com/-Ud7IPymut14/XCRTyFqXGpI/AAAAAAAACDM/-CfYmLZujLE7DSYSYQnLxe51upTZ8KN2ACLcBGAs/s640/5.jpg)](https://3.bp.blogspot.com/-Ud7IPymut14/XCRTyFqXGpI/AAAAAAAACDM/-CfYmLZujLE7DSYSYQnLxe51upTZ8KN2ACLcBGAs/s1600/5.jpg)
+![](/images/lengtihtong.jpg)
 
 那天早上，一定一定要預時間的就是買這個  
 小小的鋪一直整餅中，看到剛包好的便買 (lucky!)  
@@ -29,3 +29,7 @@ tags : [flavor - 小食部]
   
 撲實的味道，每一塊一條都是手工貨  
 這就是百年來一直沒變的威力！
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

@@ -9,12 +9,12 @@ tags : [flavor - 螞蟻族]
 保加利亞的右下角東南方是土耳其  
 有我喜歡吃的土耳其軟糖（yeah～）  
 
-[![](https://2.bp.blogspot.com/-sUTqSDQl4as/XEMipQB2ymI/AAAAAAAAFug/T8WCapN-o84GuecVjWcK9JLUUAt52wVwwCLcBGAs/s640/14196651019_962f5480fe_z.jpg)](https://2.bp.blogspot.com/-sUTqSDQl4as/XEMipQB2ymI/AAAAAAAAFug/T8WCapN-o84GuecVjWcK9JLUUAt52wVwwCLcBGAs/s1600/14196651019_962f5480fe_z.jpg)
+![](/images/koska.jpg)
 
 左邊是mixed的不同果（？）味  
 右邊是最開心的開心果在內的原味  
 
-[![](https://1.bp.blogspot.com/-KK3vDzmYRTg/XEMitEPh4xI/AAAAAAAAFuo/TiqQtGZtnQoypcHl7Vr-C-qgTM1fFcVEQCLcBGAs/s640/14382297524_f753bf913f_z.jpg)](https://1.bp.blogspot.com/-KK3vDzmYRTg/XEMitEPh4xI/AAAAAAAAFuo/TiqQtGZtnQoypcHl7Vr-C-qgTM1fFcVEQCLcBGAs/s1600/14382297524_f753bf913f_z.jpg)
+![](/images/koska1.jpg)
 
 開封一陣已消失了很多的軟糖  
 原本是整盒滿滿的...  

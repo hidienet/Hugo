@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 宵夜當然要找美味的...  
 
-[![](https://farm4.staticflickr.com/3831/9710193776_0739428459_z.jpg)](https://farm4.staticflickr.com/3831/9710193776_0739428459_z.jpg)
+![](/images/yingkee.jpg)
 
 豬・油・渣・麵！  
   

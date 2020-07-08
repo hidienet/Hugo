@@ -8,7 +8,7 @@ tags : [flavor - 小食部]
 
 好鬼貴肉都赤埋真係每啖咬落都有血出...  
 
-[![](https://c1.staticflickr.com/9/8143/29206337312_67e685a38a_z.jpg)](https://c1.staticflickr.com/9/8143/29206337312_67e685a38a_z.jpg)
+![](/images/yamamotonori.jpg)
 
 但係好好食嘛  
 有微微海膽味加上濃郁加脆口紫菜  

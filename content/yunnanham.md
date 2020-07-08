@@ -9,7 +9,7 @@ tags : [flavor - 揀飲宅食]
 呢個blog整天都被說無美女沒拋胸欠長腿一點都不吸引  
 好～ 這篇就豁出去，show足一整條美腿！  
 
-[![](https://1.bp.blogspot.com/-AdoavCzmRPI/XCiG1-fPb3I/AAAAAAAADMc/SrCJItPxZqwJi61ol7hYuWPj5l9jXVG6wCLcBGAs/s640/48.jpg)](https://1.bp.blogspot.com/-AdoavCzmRPI/XCiG1-fPb3I/AAAAAAAADMc/SrCJItPxZqwJi61ol7hYuWPj5l9jXVG6wCLcBGAs/s1600/48.jpg)
+![](/images/yunnanham.jpg)
 
 真的是一！整！條！童叟無欺！  
   

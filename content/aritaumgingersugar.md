@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 以美麗的唇色配合笑容，很快樂對吧！  
 
-[![](https://farm8.staticflickr.com/7535/15855244727_3d0535463f_z.jpg)](https://farm8.staticflickr.com/7535/15855244727_3d0535463f_z.jpg)
+![](/images/aritaumgingersugar.jpg)
 
 帶有幸福的薑糖香甜氣味  
 02號粉桃紅色，微微改變了唇色不誇張  

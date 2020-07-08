@@ -8,7 +8,7 @@ tags : [glamorous - 畫皮？]
 
 素顏， 是沒有把皮膚的顏色輪廓修飾過  
 
-[![](https://2.bp.blogspot.com/-t1NDPAxrw7M/XFbK0Fe1YlI/AAAAAAAAH3g/eUUDU1Vw-ywxRlQRTmFcnW-a9BWr82QFQCLcBGAs/s640/15821115412_d1f5c8f4ef_z.jpg)](https://2.bp.blogspot.com/-t1NDPAxrw7M/XFbK0Fe1YlI/AAAAAAAAH3g/eUUDU1Vw-ywxRlQRTmFcnW-a9BWr82QFQCLcBGAs/s1600/15821115412_d1f5c8f4ef_z.jpg)
+![](/images/naturerepubliccccream.jpg)
 
 所以用了CC cream，只能稱之為偽素顏  
 始終，有化妝就是有化妝騙不了人的  

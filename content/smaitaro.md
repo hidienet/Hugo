@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 之前買了這家的香芋雪條，很香芋頭味很好吃  
 在三越看到先麥again，當然要試試起家的芋頭酥  
 
-[![](https://4.bp.blogspot.com/-JzLLw2s_n4o/XCRR8G76_9I/AAAAAAAACCk/3CscnaJS1IwVzid431OYjutXijKy-k-TACLcBGAs/s640/78.jpg)](https://4.bp.blogspot.com/-JzLLw2s_n4o/XCRR8G76_9I/AAAAAAAACCk/3CscnaJS1IwVzid431OYjutXijKy-k-TACLcBGAs/s1600/78.jpg)
+![](/images/smaitaro.jpg)
 
 這非獨立包裝的蓋子是催我快點吃的樣子  
 香酥的外皮，一咬便有小片小片落下  
@@ -23,3 +23,7 @@ tags : [flavor - 螞蟻族]
 另，也買了這家的芋頭牛軋糖  
 雖然芋頭味跟牛奶糖也很香  
 不這個人覺得不好味，照也沒拍
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺南喪食遊 w/六龜 (5D4N)](https://hidie.net/tainan5d4n/)

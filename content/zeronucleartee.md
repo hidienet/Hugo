@@ -24,3 +24,7 @@ tags : [glamorous-裝身, lifestyle - 嗨啲的極樂世界]
 ps, 件tee質地好好又夠厚（唔係MIC）  
 不過個領口cutting有D怪  
 唔... 著唔到，最後我直頭將條領cut咗佢先著！
+  
+\-----------------------------------------------  
+  
+延伸閱讀：[臺東瘋食遊（8D7N）](https://hidie.net/taitung8d7n/)

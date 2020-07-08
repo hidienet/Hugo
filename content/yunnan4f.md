@@ -13,17 +13,17 @@ tags : [flavor - 行膳積腹, travel - 中國・昆明]
   
 （以下所謂的特色菜已經是店員介紹＋看了n遍餐牌挑出來）  
 
-[![](https://2.bp.blogspot.com/-01zr4doU_LQ/XCiYR5a_MxI/AAAAAAAADYo/HNeu8ZdwKNY3SduzlwJGneIUGgsYqjFQQCLcBGAs/s640/54.jpg)](https://2.bp.blogspot.com/-01zr4doU_LQ/XCiYR5a_MxI/AAAAAAAADYo/HNeu8ZdwKNY3SduzlwJGneIUGgsYqjFQQCLcBGAs/s1600/54.jpg)
+![](/images/yunnan4f1.jpg)
 
 竹筒x竹葉包的東西，在世界很多角落都能吃到  
 最重要是：裡面的沒有甚麼令人驚豔的味道  
 然後，事後還記不起來其實吃了甚麼落肚 ＝＝  
 
-[![](https://4.bp.blogspot.com/-T15UJev8vTY/XCiYXb0CqBI/AAAAAAAADYw/qmJYJd9y0gMSorrc6xE4U11mlg7VMOVWACLcBGAs/s640/55.jpg)](https://4.bp.blogspot.com/-T15UJev8vTY/XCiYXb0CqBI/AAAAAAAADYw/qmJYJd9y0gMSorrc6xE4U11mlg7VMOVWACLcBGAs/s1600/55.jpg)
+![](/images/yunnan4f2.jpg)
 
 小炒，辣的菜跟菌，沒什麼好講  
 
-[![](https://4.bp.blogspot.com/-EIZldEwA3g4/XCiYcY-p0cI/AAAAAAAADY0/jukHpPkxCasR5wjqwQaayWRPTnAOSn6rgCLcBGAs/s640/56.jpg)](https://4.bp.blogspot.com/-EIZldEwA3g4/XCiYcY-p0cI/AAAAAAAADY0/jukHpPkxCasR5wjqwQaayWRPTnAOSn6rgCLcBGAs/s1600/56.jpg)
+![](/images/yunnan4f3.jpg)
 
 再來的另一道小炒，微辣的  
 也是沒什麼好說  
@@ -33,4 +33,4 @@ tags : [flavor - 行膳積腹, travel - 中國・昆明]
   
 \-----------------------------------------------  
   
-延伸閱讀：[昆明飽hihi（5D4N）](http://www.hidie.net/2013/12/hihi5d4n.html)
+延伸閱讀：[昆明飽hihi（5D4N）](https://hidie.net/yunnan5d4n/)

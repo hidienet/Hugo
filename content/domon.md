@@ -8,11 +8,11 @@ tags : [flavor - 行膳積腹]
 
 冬天就會想吃肥膩膩的北海道札幌牛油拉麵  
 
-[![](https://farm9.staticflickr.com/8602/15881116568_9cc4fff9df_z.jpg)](https://farm9.staticflickr.com/8602/15881116568_9cc4fff9df_z.jpg)
+![](/images/domon.jpg)
 
 **札幌拉麵domon**  
 
-[![](https://farm8.staticflickr.com/7491/16067785472_98f5df760b_z.jpg)](https://farm8.staticflickr.com/7491/16067785472_98f5df760b_z.jpg)
+![](/images/domon1.jpg)
 
 **札幌拉麵miso no.1**  
   

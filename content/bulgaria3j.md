@@ -7,19 +7,17 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 ---
 
 原本是想一直試保加利亞的酒  
-
 怎料這次買錯了意大利的返apartment
 
-[![](https://4.bp.blogspot.com/-3o4Mh9YTEzg/XDNDCBxG5jI/AAAAAAAAE1A/70mvxStp5SU695NbJT3RtEd-SwgojvUHgCLcBGAs/s640/96.jpg)](https://4.bp.blogspot.com/-3o4Mh9YTEzg/XDNDCBxG5jI/AAAAAAAAE1A/70mvxStp5SU695NbJT3RtEd-SwgojvUHgCLcBGAs/s1600/96.jpg)
+![](/images/bulgaria3j.jpg)
 
 （當然是凍飲！）
 
   
 
-rosé就是夠甜、易入口
-
+rosé就是夠甜、易入口  
 幸好是意大利的，怎買也不會太難喝  
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

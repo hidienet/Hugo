@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 給美好早上的穀類營養早餐  
 
-[![](https://farm8.staticflickr.com/7794/18295300321_9435061df6_z.jpg)](https://farm8.staticflickr.com/7794/18295300321_9435061df6_z.jpg)
+![](/images/harboepilsner.jpg)
 
 酒味不濃麥味香  
 一丁點苦味也沒有  

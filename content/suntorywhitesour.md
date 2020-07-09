@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 Happy Friday嘅lunchtime飲少少酒都唔過份吖  
 （我話嘅！）  
 
-[![](https://c1.staticflickr.com/5/4562/26557108369_56c5eb0f2f_z.jpg)](https://c1.staticflickr.com/5/4562/26557108369_56c5eb0f2f_z.jpg)
+![](/images/suntorywhitesour.jpg)
 
 呢罐乜形容都冇  
 只係寫白色sour無啦啦梗係唔知咩味啦  

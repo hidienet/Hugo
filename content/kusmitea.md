@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 混合tea set真好，可以一次果試多款味道（露齒笑）  
 
-[![](https://1.bp.blogspot.com/-rp1ZHX9Ma-4/XDCyZPJJggI/AAAAAAAAEQw/ChWyCw1Fjf8oOJiTBe7H-nmC6-R8o4RngCLcBGAs/s640/72.jpg)](https://1.bp.blogspot.com/-rp1ZHX9Ma-4/XDCyZPJJggI/AAAAAAAAEQw/ChWyCw1Fjf8oOJiTBe7H-nmC6-R8o4RngCLcBGAs/s1600/72.jpg)
+![](/images/kusmitea.jpg)
 
 源自俄羅斯，再成為巴黎的品牌  
 所以就是俄羅斯口味  

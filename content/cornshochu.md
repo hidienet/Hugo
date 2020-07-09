@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 呢枝粟米釀嘛...  
 
-[![](https://c1.staticflickr.com/5/4371/35653821623_680a024755_z.jpg)](https://c1.staticflickr.com/5/4371/35653821623_680a024755_z.jpg)
+![](/images/cornshochu.jpg)
 
 聞落係幾香粟米味嘅  
 飲嘅話，個酒精味濃度爆  

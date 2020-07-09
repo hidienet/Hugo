@@ -10,11 +10,11 @@ tags : [flavor - 飲！]
 甚至係為瘦身都好  
 黑豆都係我上午返工必備嘅食物  
   
-之前都有講過會食黑豆  
+之前都有講過會[食黑豆](https://hidie.net/blackbeanbook/)  
 但係相比起脆口嘅  
 朝早都係鍾意食濕口啲嘅嘢...  
 
-[![](https://c1.staticflickr.com/5/4452/37401490706_3484567580_z.jpg)](https://c1.staticflickr.com/5/4452/37401490706_3484567580_z.jpg)
+![](/images/blackbeantea.jpg)
 
 所以**黑豆茶**就成為近年嘅最愛早餐  
 呢兜仲係朋友**自家炒**嘅黑豆（！）  
@@ -24,7 +24,7 @@ tags : [flavor - 飲！]
 飲完啖茶就跟手食埋啲豆  
 簡單夠味又算飽肚  
 
-[![](https://c1.staticflickr.com/5/4458/37401491446_268b644f3c_z.jpg)](https://c1.staticflickr.com/5/4458/37401491446_268b644f3c_z.jpg)
+![](/images/blackbeantea1.jpg)
 
 咁當然唔可以幾時都要朋友炒㗎嘛  
 如果連自己都懶得炒  
@@ -37,7 +37,3 @@ tags : [flavor - 飲！]
   
 幾時都係咁懶㗎啦～～～  
   
-  
-\-----------------------------------------------  
-  
-延伸閱讀：[\[閱讀瘦身法\] 食住瘦：早餐吃黑豆減肥](https://www.hidie.net/2013/12/blog-post_10.html)

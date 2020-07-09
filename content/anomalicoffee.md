@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 一日不咖啡；一天不工作  
 
-[![](https://4.bp.blogspot.com/-G9SpDIAGO7s/XCOM8A-6ESI/AAAAAAAAB0w/1op9RC4eukUAOJulkow8Pz849WCuNzM5gCLcBGAs/s640/5.jpg)](https://4.bp.blogspot.com/-G9SpDIAGO7s/XCOM8A-6ESI/AAAAAAAAB0w/1op9RC4eukUAOJulkow8Pz849WCuNzM5gCLcBGAs/s1600/5.jpg)
+![](/images/anomalicoffee.jpg)
 
 哥哥從印尼買的，terima kasih!  
   

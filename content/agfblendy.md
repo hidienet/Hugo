@@ -8,14 +8,14 @@ tags : [flavor - 飲！]
 
 夏天的下午，一杯凍咖啡  
 
-[![](https://farm1.staticflickr.com/503/19798796730_9f0fb35b40_z.jpg)](https://farm1.staticflickr.com/503/19798796730_9f0fb35b40_z.jpg)
+![](/images/agfblendy.jpg)
 
 懶人用的樽裝咖啡  
 香氣足，不苦也不帶酸  
 微糖裡再加上鹽  
 不濃烈的口味適合任何時候享用  
 
-[![](https://farm1.staticflickr.com/328/19365795073_0f07e3c2fe_z.jpg)](https://farm1.staticflickr.com/328/19365795073_0f07e3c2fe_z.jpg)
+![](/images/agfblendy1.jpg)
 
 手調的iced latte！  
 根據包裝寫著的coffee x milk 7:3比例  

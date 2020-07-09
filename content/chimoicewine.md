@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 係就係「慈母多敗兒」  
 但係有個慈母又會有幾sweet呢？  
 
-[![](https://c1.staticflickr.com/5/4480/37818706152_d1fe61a9bb_z.jpg)](https://c1.staticflickr.com/5/4480/37818706152_d1fe61a9bb_z.jpg)
+![](/images/chimoicewine.jpg)
 
 超～ 甜～ 嘅果香  
 配以順滑嘅質地  

@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 撇除寒涼的問題，綠茶對身體也是有益處的  
 （好吧，看來源：又怕日本的有輻射；臺灣的有農藥；中國的更可怕等等，要怕就練仙了～）  
 
-[![](https://farm9.staticflickr.com/8782/17571624100_9bdd0bc20b_z.jpg)](https://farm9.staticflickr.com/8782/17571624100_9bdd0bc20b_z.jpg)
+![](/images/haradatea.jpg)
 
 好愛這種即溶的抹茶粉！  
 静岡県産的100%綠茶，粉末裝可冷可熱  

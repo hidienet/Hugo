@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 這陣兒真的喝了很多不同口味的harboe呢  
 
-[![](https://farm6.staticflickr.com/5499/18645904028_28e263954f_z.jpg)](https://farm6.staticflickr.com/5499/18645904028_28e263954f_z.jpg)
+![](/images/harboegold.jpg)
 
 應該是因為天氣太熱了！  
 （你看！啤酒罐也熱到出汗啦～）  

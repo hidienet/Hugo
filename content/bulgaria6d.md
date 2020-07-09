@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 宵夜時段喝光光的紅酒  
 
-[![](https://2.bp.blogspot.com/-b62O2yutuqI/XDrPasyoCiI/AAAAAAAAFHQ/QcX4GByt3XI3_mLcEbBEaMXh_88nZVW2gCLcBGAs/s640/14241099001_d987c631c8_z.jpg)](https://2.bp.blogspot.com/-b62O2yutuqI/XDrPasyoCiI/AAAAAAAAFHQ/QcX4GByt3XI3_mLcEbBEaMXh_88nZVW2gCLcBGAs/s1600/14241099001_d987c631c8_z.jpg)
+![](/images/bulgaria6d.jpg)
 
 可惡地之前開了一枝相信是變壞了的  
 然後這枝就自然地入口香滑醇厚  
@@ -17,4 +17,4 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

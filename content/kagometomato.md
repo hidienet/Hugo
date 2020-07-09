@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 用甚麼去抓住紀念2014的尾巴？  
 
-[![](https://farm9.staticflickr.com/8416/15634926720_9ffe482cae_z.jpg)](https://farm9.staticflickr.com/8416/15634926720_9ffe482cae_z.jpg)
+![](/images/kagometomato.jpg)
 
 2014數量限定的premium版直榨番茄汁！  
   

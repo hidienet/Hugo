@@ -6,9 +6,9 @@ aliases: [ "/2014/02/coffee-looka-coffee.html" ]
 tags : [flavor - 飲！]
 ---
 
-黑x紫，好型格的樣子  
+黑 x 紫，好型格的樣子  
 
-[![](https://4.bp.blogspot.com/-rXBt7Rlb8rc/XCir5ozoouI/AAAAAAAADbM/uz2L7ilb7EwX_ogz_UZoBYy7JyH13iMpACLcBGAs/s640/17.jpg)](https://4.bp.blogspot.com/-rXBt7Rlb8rc/XCir5ozoouI/AAAAAAAADbM/uz2L7ilb7EwX_ogz_UZoBYy7JyH13iMpACLcBGAs/s1600/17.jpg)
+![](/images/looka.jpg)
 
 長條型的獨立包裝  
 放在袋裡隨時想喝就喝  

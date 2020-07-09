@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 意猶未盡當然要在apartment飲返杯  
 
-[![](https://3.bp.blogspot.com/-hxSuqHqFkz0/XDshFm5zsRI/AAAAAAAAFfU/3x37YOpwT2wqD4E0LxccinzCgeWQxGf8wCLcBGAs/s640/14139076399_b87bd43d69_z.jpg)](https://3.bp.blogspot.com/-hxSuqHqFkz0/XDshFm5zsRI/AAAAAAAAFfU/3x37YOpwT2wqD4E0LxccinzCgeWQxGf8wCLcBGAs/s1600/14139076399_b87bd43d69_z.jpg)
+![](/images/bulgaria11i.jpg)
 
 保加利亞的提子s  
 不過是幾種不同的乾身提子  
@@ -19,4 +19,4 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

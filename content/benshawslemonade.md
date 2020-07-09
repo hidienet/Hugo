@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 平日不愛喝白糖飲料  
 但不代表在生命裡完全杜絕  
 
-[![](https://farm8.staticflickr.com/7799/18001914316_e7549586e7_z.jpg)](https://farm8.staticflickr.com/7799/18001914316_e7549586e7_z.jpg)
+![](/images/benshawslemonade.jpg)
 
 忽然想「ahhhhh～～～」一下  
 就拿起罐又有點酸帶點甜  

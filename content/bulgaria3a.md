@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 早上當然要來杯咖啡  
 
-[![](https://4.bp.blogspot.com/-nCaye1AQKww/XDM79pl7sOI/AAAAAAAAEuo/QWEeFpqYaYs1NpBr48VXA0dVaBQN11GAwCLcBGAs/s640/39.jpg)](https://4.bp.blogspot.com/-nCaye1AQKww/XDM79pl7sOI/AAAAAAAAEuo/QWEeFpqYaYs1NpBr48VXA0dVaBQN11GAwCLcBGAs/s1600/39.jpg)
+![](/images/bulgaria3a.jpg)
 
 caramel latte，甜甜的味道耶～  
   
@@ -20,4 +20,4 @@ caramel latte，甜甜的味道耶～
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

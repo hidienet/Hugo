@@ -6,10 +6,10 @@ aliases: [ "/2015/05/coffee-ucc-gold-special-rich-blend.html" ]
 tags : [flavor - 飲！]
 ---
 
-大概是價格同水準的關係  
+大概是價格的關係  
 近期真的入手了不少UCC  
 
-[![](https://farm6.staticflickr.com/5455/18031950725_897b659816_z.jpg)](https://farm6.staticflickr.com/5455/18031950725_897b659816_z.jpg)
+![](/images/uccgold.jpg)
 
 今天就喝disposal裝濾紙式的gold special系列  
 說白了是regular coffee  
@@ -24,4 +24,4 @@ tags : [flavor - 飲！]
   
 \-----------------------------------------------  
   
-延伸閱讀：[\[coffee\] UCC coffee](http://www.hidie.net/2014/04/coffee-ucc-coffee.html)
+延伸閱讀：[\[coffee\] UCC coffee](https://hidie.net/ucccoffee/)

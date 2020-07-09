@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 一大清早起來又出發  
 
-[![](https://2.bp.blogspot.com/-T1UqSWwNplQ/XDNQBJ1EnhI/AAAAAAAAE6U/SHlQltjgt0IxZaoU_eIUHw7OO7UaTztigCLcBGAs/s640/41.jpg)](https://2.bp.blogspot.com/-T1UqSWwNplQ/XDNQBJ1EnhI/AAAAAAAAE6U/SHlQltjgt0IxZaoU_eIUHw7OO7UaTztigCLcBGAs/s1600/41.jpg)
+![](/images/bulgaria5a.jpg)
 
 別看這是像乳酪包裝的айран會好麻煩喝  
 開蓋之後會發現只有一個小小的洞  
@@ -22,4 +22,4 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

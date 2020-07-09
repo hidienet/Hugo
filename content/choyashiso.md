@@ -6,9 +6,9 @@ aliases: [ "/2015/04/cheers-choya-nonsugar-natural-shiso.html" ]
 tags : [flavor - 飲！]
 ---
 
-先強調本人並沒有酗酒的習慣！  
+先強調本人並沒有酗酒的問題！  
 
-[![](https://farm8.staticflickr.com/7612/16765879869_7a14f85b9d_z.jpg)](https://farm8.staticflickr.com/7612/16765879869_7a14f85b9d_z.jpg)
+![](/images/choyashiso.jpg)
 
 只不過這梅酒加了紫蘇，可以預防感冒  
 酒精可以殺菌，梅子更能增加體力跟食慾  

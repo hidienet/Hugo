@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 食得多就會肥，肥就去減肥  
 
-[![](https://4.bp.blogspot.com/-ARrvFRE78jw/XC4P7N3TAXI/AAAAAAAAD6U/smAuGkAKAu4Sw1Bmkl90n4mIEfOOjFmzwCLcBGAs/s640/96.jpg)](https://4.bp.blogspot.com/-ARrvFRE78jw/XC4P7N3TAXI/AAAAAAAAD6U/smAuGkAKAu4Sw1Bmkl90n4mIEfOOjFmzwCLcBGAs/s1600/96.jpg)
+![](/images/kaohealthya.jpg)
 
 綠茶本身的兒茶素能去除脂肪  
 這枝更聲稱能加強燃燒脂肪  

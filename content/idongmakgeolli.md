@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 終於有不喜歡的막걸리了！  
 
-[![](https://farm8.staticflickr.com/7520/15620693064_8f24bb526d_z.jpg)](https://farm8.staticflickr.com/7520/15620693064_8f24bb526d_z.jpg)
+![](/images/idongmakgeolli.jpg)
 
 這隻的味道其實沒有甚麼大問題  
 都是在甜米味裡面有點酒味  

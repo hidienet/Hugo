@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 生活，總不能少了一杯好喝的茶    
 
-[![](https://4.bp.blogspot.com/-Ro0g2Pw4a0k/XCh0CaYdfiI/AAAAAAAADA0/oNrfMpd1bTkV5E_OVTvHR_pgIZxiy6cBQCLcBGAs/s640/29.jpg)](https://4.bp.blogspot.com/-Ro0g2Pw4a0k/XCh0CaYdfiI/AAAAAAAADA0/oNrfMpd1bTkV5E_OVTvHR_pgIZxiy6cBQCLcBGAs/s1600/29.jpg)
+![](/images/mariagefreres.jpg)
 
 尤其在生活忙碌的辦公室和豆腐潤式的家裡  
 嘆一杯真的身心愉快    

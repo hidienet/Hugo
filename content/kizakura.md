@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 明天假期，今晚應該要好好慶祝  
 
-[![](https://4.bp.blogspot.com/-q2M4yrbc8Xw/XCOK5_bfIYI/AAAAAAAABz8/Bh6VEkROqoc2ya2VteOseOQ_Ly8uq4hMgCLcBGAs/s640/p10.jpg)](https://4.bp.blogspot.com/-q2M4yrbc8Xw/XCOK5_bfIYI/AAAAAAAABz8/Bh6VEkROqoc2ya2VteOseOQ_Ly8uq4hMgCLcBGAs/s1600/p10.jpg)
+![](/images/kizakura.jpg)
 
 金！箔！酒！氣派得像個暴發戶般  
 沒有啦，只是小家氣的小瓶裝清酒  

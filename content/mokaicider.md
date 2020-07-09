@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 \[Tak Tak召喚\]Tak Tak Tak你在看這個post嗎？\[/Tak Tak召喚\]  
 
-[![](https://farm8.staticflickr.com/7616/17167148505_5edede4ab1_z.jpg)](https://farm8.staticflickr.com/7616/17167148505_5edede4ab1_z.jpg)
+![](/images/mokaicider.jpg)
 
 這枝cider只是$2.5一枝（偽C9精明眼？）  
 酒精度4.5%，淡淡花味而且不算太甜  

@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 好好飲的氣泡清酒  
 
-[![](https://farm9.staticflickr.com/8705/16670812427_90f5544d6f_z.jpg)](https://farm9.staticflickr.com/8705/16670812427_90f5544d6f_z.jpg)
+![](/images/mio.jpg)
 
 微酸偏甜帶有麴香味  
 加上細密的泡泡  

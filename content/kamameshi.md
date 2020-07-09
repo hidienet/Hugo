@@ -6,7 +6,7 @@ aliases: [ "/2019/07/blog-post.html" ]
 tags : [flavor - 行膳積腹, flavor - 飲！]
 ---
 
-冇得搭程機去[奈良志津香](https://hidie.net/kamameshi/)  
+冇得搭程機去[奈良志津香](https://hidie.net/nara1a/)  
 咪留响香港食慰藉吓心靈同五臟囉...  
 
 ![](/images/kamameshi1.jpg)

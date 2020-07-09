@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 從1948年到現在的純粹清甜美味  
 
-[![](https://3.bp.blogspot.com/-0ST4rr_SJk4/XE29vmOl3_I/AAAAAAAAHw8/YtfP5yxAtzQ1xHX5x2eY9rqnboJaBADDQCLcBGAs/s640/15168054874_41b2f56fe8_z.jpg)](https://3.bp.blogspot.com/-0ST4rr_SJk4/XE29vmOl3_I/AAAAAAAAHw8/YtfP5yxAtzQ1xHX5x2eY9rqnboJaBADDQCLcBGAs/s1600/15168054874_41b2f56fe8_z.jpg)
+![](/images/kunglee.jpg)
 
 每條蔗都要蒸兩個小時  
 再用舊式榨汁機將蔗壓得「汁肉分離」  

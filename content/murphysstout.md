@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 古語有云：清明時節醉醺醺（咦？）  
 今日唔可以唔應吓節嘅～  
 
-[![](https://c1.staticflickr.com/1/795/27379743608_ced22c44d9_z.jpg)](https://c1.staticflickr.com/1/795/27379743608_ced22c44d9_z.jpg)
+![](/images/murphysstout.jpg)
 
 呢隻係就係黑啤  
 不過一啲都唔會好濃呀苦味重咁  

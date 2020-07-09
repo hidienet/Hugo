@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹]
 
 ![](https://0hohcw.ch.files.1drv.com/y4mCAwuhfQlNYbkn2SoS0sZ8uKytT31vWz_jM-YxLYeLEQ0X0FDinpYAQliU8mGTd71EzFtrdaQSNpozCrF0R5Cqg55nigaTRRdZTsZbktM4ojy7r3LLzV45YWjLh94QJaZHQQIUtEF6n_x0LBVnKMTEZkrhpkzINJ68hA8syt6OJ8yHaCxFA80C5-Kp9OpaZQKJe-tUwHXOfd5KJp_oz6DuA?width=660&height=371&cropmode=none)
 
-唯有食添加臺灣威士忌嘅臺灣牛肉麵先（心）
+唯有食添加臺灣威士忌[kavalan](https://hidie.net/kavalansolistsherrysingle/)嘅臺灣牛肉麵先（心）
 
 ![](https://0hoicw.ch.files.1drv.com/y4mh9__r8EkNkAmUybKwiS-asFAD2CJ13H6K367iXwyBs6VK9-m3SsDXrRtjjFTIu4lV2NYNrxaNjp35RTFtsUJ9vuCjShBjuSad3Y2xvuWF2BfiLrAipxPhodNzenfIVPyDchC3eEpmYNWPgOhOxw4qbjmiCPQrvn26HCEsSIvc4rXdCZVB8TeoieSqLbgFWR51KHOXZsOzNDyuJCVTSyqXw?width=660&height=371&cropmode=none)
 

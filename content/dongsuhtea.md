@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 很厲害的一隻茶  
 
-[![](https://2.bp.blogspot.com/-g8A6xuYYvK4/XCjI9p-TVZI/AAAAAAAADg4/uCPxEo8UlA0eF49DpdgzK2kPhtJ7G3IsACLcBGAs/s640/01.jpg)](https://2.bp.blogspot.com/-g8A6xuYYvK4/XCjI9p-TVZI/AAAAAAAADg4/uCPxEo8UlA0eF49DpdgzK2kPhtJ7G3IsACLcBGAs/s1600/01.jpg)
+![](/images/dongsuhtea.jpg)
 
 五穀茶，不像平常的茶葉般有咖啡因  
 以不織布包起一袋袋很方便  

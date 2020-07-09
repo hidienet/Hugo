@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 lassi，南亞式乳酪based飲料  
 
-[![](https://4.bp.blogspot.com/-2UtzPHJKJNI/XE1FPkf-NZI/AAAAAAAAHAs/xdJyCYPe0VYAQbW_xdXgUY85L7zb7EAawCLcBGAs/s640/15183336410_36da0656b7_z.jpg)](https://4.bp.blogspot.com/-2UtzPHJKJNI/XE1FPkf-NZI/AAAAAAAAHAs/xdJyCYPe0VYAQbW_xdXgUY85L7zb7EAawCLcBGAs/s1600/15183336410_36da0656b7_z.jpg)
+![](/images/saltylassi.jpg)
 
 以前很愛果味濃，甜甜的mango lassi  
 當然也少不了濃郁花香的rose lassi  

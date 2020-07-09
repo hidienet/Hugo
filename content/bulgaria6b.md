@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 好好味的德國啤酒  
 
-[![](https://4.bp.blogspot.com/-NqLX73ogLQU/XDrOHhoFCpI/AAAAAAAAFF8/KJso1uisOd0U6inyfEpV1ltsIoICs6dmwCLcBGAs/s640/14051460088_3c54b8eeea_z.jpg)](https://4.bp.blogspot.com/-NqLX73ogLQU/XDrOHhoFCpI/AAAAAAAAFF8/KJso1uisOd0U6inyfEpV1ltsIoICs6dmwCLcBGAs/s1600/14051460088_3c54b8eeea_z.jpg)
+![](/images/bulgaria6b.jpg)
 
 甜甜的西柚味  
 加上淡淡的麥味  
@@ -19,4 +19,4 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

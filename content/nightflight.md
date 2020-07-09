@@ -8,7 +8,7 @@ tags : [amusement - films]
 
 看似有點誇張，但看真這些事很寫實  
 
-![](/images/nightflight.jpg)
+![](/images/nightflight1.jpg)
 
 校園欺凌... 好吧，宅宅的肥仔  
 就是沒做錯甚麼也會比較容易成為被欺負的對象  

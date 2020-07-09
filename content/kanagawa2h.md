@@ -116,7 +116,7 @@ tags : [amusement-exhibition, travel-日本関東東海道-相模神奈川三浦
 ![](/images/kanagawa2h23.jpg)
 
 **UNTERACTIVE AREA**  
-影完相就開玩屎嘅時間
+影完相就係玩屎嘅時間
 
 ![](/images/kanagawa2h20.jpg)
 

@@ -10,7 +10,7 @@ tags : [flavor - 飲！]
 更有6枝johnnie walker，抵到震～  
 （讚讚搶到package的龍爺同請客的HIMHIM！）  
 
-[![](https://1.bp.blogspot.com/-ZEvc7SN5ip4/XE26WJsoPiI/AAAAAAAAHvU/mCbRi57ckAoG8Wm8rV2d6B-XGCArCPXRQCLcBGAs/s640/15137118564_9ed2bffa03_z.jpg)](https://1.bp.blogspot.com/-ZEvc7SN5ip4/XE26WJsoPiI/AAAAAAAAHvU/mCbRi57ckAoG8Wm8rV2d6B-XGCArCPXRQCLcBGAs/s1600/15137118564_9ed2bffa03_z.jpg)
+![](/images/johnniewalkergold.jpg)
 
 （圖中那個未到三歲的小朋友是並沒有喝酒的）  
 雖然未及拿99部埃瘋6求婚般，但也感覺很土豪  

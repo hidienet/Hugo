@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 
 下午茶時間～  
 
-[![](https://farm8.staticflickr.com/7561/15717006640_fffae59f33_z.jpg)](https://farm8.staticflickr.com/7561/15717006640_fffae59f33_z.jpg)
+![](/images/ilmeglioristorantedivenezia.jpg)
 
 超豐富豬的palette（心）  
 餐包，沒有甚麼特別好了  
@@ -21,7 +21,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 蕎頭包火腿，又另一種風味  
 一次過滿足N種願望，超讚（大拇指）  
 
-[![](https://farm8.staticflickr.com/7544/15904306915_ee9e772a86_z.jpg)](https://farm8.staticflickr.com/7544/15904306915_ee9e772a86_z.jpg)
+![](/images/ilmeglioristorantedivenezia1.jpg)
 
 新鮮的啤酒，是店家自釀的  
 香港很少很少很少有的喔！  

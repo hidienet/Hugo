@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 襯冬天還未離我而去  
 
-[![](https://farm8.staticflickr.com/7442/9756299756_2c8ea8a4f8_z.jpg)](https://farm8.staticflickr.com/7442/9756299756_2c8ea8a4f8_z.jpg)
+![](/images/kirinwinter.jpg)
 
 就以淡淡然的感覺留住冬天的尾巴吧～（抓）  
   

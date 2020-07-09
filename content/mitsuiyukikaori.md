@@ -10,7 +10,7 @@ tags : [flavor - 飲！]
 於這個存輻射的國度  
 是不是有機其實並不重要  
 
-[![](https://farm9.staticflickr.com/8642/16052140993_6ec028f7df_z.jpg)](https://farm9.staticflickr.com/8642/16052140993_6ec028f7df_z.jpg)
+![](/images/mitsuiyukikaori.jpg)
 
 但茶味芳香，入口不乾  
 味道在口裡久久不散  

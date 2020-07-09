@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day3： 공원집－貴價好味烤牛
 date: 2014-01-14T18:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day3_14.html" ]
-tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
 ---
 
 去韓國不是不去吃烤肉（숯불구이）吧  

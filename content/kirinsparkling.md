@@ -10,7 +10,7 @@ tags : [flavor - 飲！]
 呢次就唔同喇！  
 仲周圍同人講見到記住買呀，好好飲㗎佢～（心）  
 
-[![](https://c1.staticflickr.com/5/4606/38994052295_a63141479d_z.jpg)](https://c1.staticflickr.com/5/4606/38994052295_a63141479d_z.jpg)
+![](/images/kirinsparkling.jpg)
 
 （左）rose：ロゼスパークリング ＜期間限定＞  
 （右）chardonny：シャルドネスパークリング  

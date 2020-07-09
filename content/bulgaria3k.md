@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 保加利亞的Muscat提子白酒  
 
-[![](https://2.bp.blogspot.com/-nWnzRhbdP08/XDNGfNNqWkI/AAAAAAAAE1M/GabZ2slRl80KZxiVt3xiQw06l1YteExAwCLcBGAs/s640/97.jpg)](https://2.bp.blogspot.com/-nWnzRhbdP08/XDNGfNNqWkI/AAAAAAAAE1M/GabZ2slRl80KZxiVt3xiQw06l1YteExAwCLcBGAs/s1600/97.jpg)
+![](/images/bulgaria3k.jpg)
 
 說是dry wine卻入口少少甜而且很滑  
 這品牌的酒不錯  
@@ -16,4 +16,4 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

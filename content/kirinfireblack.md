@@ -15,7 +15,7 @@ tags : [flavor - 飲！]
 可是，這是清晨呢！  
 唯有在便利店買了  
 
-[![](https://farm8.staticflickr.com/7720/17840538738_8446520ce2_z.jpg)](https://farm8.staticflickr.com/7720/17840538738_8446520ce2_z.jpg)
+![](/images/kirinfireblack.jpg)
 
 喝之前已經對自己說「這是罐裝貨」（一千遍）  
 不過... 真的很淡啊沒有甚麼咖啡味  

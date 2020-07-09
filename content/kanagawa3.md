@@ -18,7 +18,7 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 再唔係就走咗去七仔  
 今朝仲唔俾我飲到你？  
 
-![](https://al3azw.ch.files.1drv.com/y4mi9WLySfWY01Hekk0E_f6_XzMz2W-Q41FytC-ICgT5oLAoJTWEZlDRGeqDevAhgvS9FxO_eOkCCc8CB6xf5eUnpmSzCUinCk5E1bhP26U1m0BEQjeKylbqdc5eBnzpvuBNxkxKKmEaZFrSjAN6X_Tlj9h3InEGT4mdg2bcFcB_ZFci4pRm9y3cLultPj2lT6EoBCjzTT08Ajii9wwKSEPZw?width=660&height=371&cropmode=none)
+![](/images/kanagawa3b2.jpg)
 
 買好[pass](https://hidie.net/kanagawa3b/)，搭車去**鎌倉**～  
 

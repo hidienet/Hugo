@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 當然是看到“antivirus”字眼那麼搞笑才買（哈哈）  
 
-![](/images/bioprogrammez.jpg)
+![](/images/bioprogramme.jpg)
 
 antivirus跟電腦在一起就最匹配 XDDD  
 不過這是茶包啦  

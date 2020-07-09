@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 近期家中雪櫃被這隻北極熊進駐  
 
-[![](https://4.bp.blogspot.com/-HS0Gq7Cq_ZM/XExy_0oaKUI/AAAAAAAAG9M/QC1cEcpoJU0DwqEcjAtcIRX_6_abRttfgCLcBGAs/s640/15117794088_a8c70832d1_z.jpg)](https://4.bp.blogspot.com/-HS0Gq7Cq_ZM/XExy_0oaKUI/AAAAAAAAG9M/QC1cEcpoJU0DwqEcjAtcIRX_6_abRttfgCLcBGAs/s1600/15117794088_a8c70832d1_z.jpg)
+![](/images/harboelager.jpg)
 
 （二十四罐五十蚊有找不買會對不住自己啦啦啦）  
 味道一點都不苦  
@@ -21,4 +21,4 @@ tags : [flavor - 飲！]
   
 \-----------------------------------------------  
   
-延伸閱讀：[harboe - bear beer strong lager](http://www.hidie.net/2014/08/day4harboe-bear-beer-strong-lager.html)
+延伸閱讀：[harboe - bear beer strong lager](https://hidie.net/taichung4b/)

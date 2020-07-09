@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 在這種霉霉的日子  
 喝些甜酒會令心情歡悅點吧～  
 
-[![](https://farm9.staticflickr.com/8611/16651535841_d10080cdf1_z.jpg)](https://farm9.staticflickr.com/8611/16651535841_d10080cdf1_z.jpg)
+![](/images/wolmaemakkoli.jpg)
 
 微微汽泡的農酒  
 不帶酸的味道卻不會爆甜  

@@ -6,12 +6,12 @@ aliases: [ "/2017/11/cheers.html" ]
 tags : [flavor - 飲！]
 ---
 
-繼上一鑊嘅[奈良梅酒 x 啤酒 crossover](https://www.hidie.net/2017/11/day2_3.html)  
+繼上一鑊嘅[奈良梅酒 x 啤酒 crossover](https://hidie.net/nara2h/)  
 
-[![](https://c1.staticflickr.com/5/4534/26856069749_519b855f79_z.jpg)](https://c1.staticflickr.com/5/4534/26856069749_519b855f79_z.jpg)
+![](/images/maksbeerkunglee.jpg)
 
 今次就本土得多：蔗汁 x 啤酒  
-蔗汁提供者梗係唔少得老字號[公利](https://www.hidie.net/2014/11/juice.html)啦  
+蔗汁提供者梗係唔少得老字號[公利](https://hidie.net/kunglee/)啦  
 啤酒釀造即係上個月想去但去唔成嘅設計展度瘋狂飲嘅麥氏  
 麥氏釀酒廠都係香港嘢嚟㗎  
   

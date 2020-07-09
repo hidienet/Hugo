@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 邪惡！極級邪惡！  
 
-[![](https://farm1.staticflickr.com/510/19698015398_6d2e27f60a_z.jpg)](https://farm1.staticflickr.com/510/19698015398_6d2e27f60a_z.jpg)
+![](/images/starbuckstriple1.jpg)
 
 根本就是一大杯有咖啡味的糖 + 脂肪！  
 那pat cream、咖啡沙冰、jelly...  
@@ -18,7 +18,7 @@ tags : [flavor - 飲！]
 肥就肥啦，反正覺得不錯喝！  
 底層的coffee jelly好好食（棒棒噠）  
 
-[![](https://farm1.staticflickr.com/441/19698044430_5474a07d6b_z.jpg)](https://farm1.staticflickr.com/441/19698044430_5474a07d6b_z.jpg)
+![](/images/starbuckstriple.jpg)
 
 要不然這種兩口吃完的會能滿足我嗎？哈哈哈～  
 （超～ 可～ 愛～ 啦！）

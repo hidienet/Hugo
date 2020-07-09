@@ -8,12 +8,12 @@ tags : [flavor - 飲！, flavor - 螞蟻族]
 
 落銅鑼灣搵大阪嘢  
 
-![](https://qfzjqq.ch.files.1drv.com/y4mlGRNn-J_vJpUD9kQ6MA4AHFsPTMISAPrbWtYSymESyXGg2nULfbC9PS1zIky7ivhkk1q0BIGVq1ARnUeJ_2FEu6C2KUFPfMqYGcHLUrb5pqbwJ6ySNTDTZS8Ft9TyxGRS1f8gH7nrvm8_r-BQd9sMLHCRpRPdC7syPv_XCCdvN76t8IU76L_0pRr0z9NKJjSdOgl3_O46YZbMrWrZ5OhQQ?width=660&height=371&cropmode=none)
+![](/images/yukinoshita.jpg)
 
 **蜂蜜とバター 厚焼きパンケーキ | 橘子蜂蜜班戟**  
 唔係平時食陣風嗰種輕飄飄班戟  
 
-![](https://qfzlqq.ch.files.1drv.com/y4muuUYrkyDt6uMTYkaINBZbx-loSpN6ynEETmQ3tJRIz1uj-rdy4XfJoCwp7Q85DHFyVRRR_2ISQN451QHB26T83GPVYWUcbbW8SQzVcIy1DBGVS3Himw5B4vBtd9mSYZbd1cr1yvY_H3g8VojNBkePIHbIZCd1XLhmyFfiTscVjGTxNKKgMFGn3T9Ucjg9wmrcVxeZvJvHHCEYCVzx7ivXg?width=660&height=371&cropmode=none)
+![](/images/yukinoshita1.jpg)
 
 佢係似舊式餅店嗰啲雞蛋糕鬆糕咁  
 蛋味濃郁成舊嘢又夠香甜  
@@ -25,7 +25,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族]
 宮崎縣高千穗發酵牛油  
 就係每樣都用心咪整到啲嘢好食囉  
 
-![](https://p1zpqq.ch.files.1drv.com/y4m7svqJAVMsNkULbSKzCD5ppnjU-2vBaV4b0tuqY-KRGPAm-s3BRjFGOgaXDu7TVY7Nh867pk0dD4CkFUsXaAT4cQWX0R95LTT4NCNK_95CCu2cFMjHcK5HXYBXkOLntFXDMCDD_XELKu1x6pRQZenxOv_iRQrPyQjYMVMpO-HCyEEMdBeLQeXxp9SSMgoPfZzrDKwdbXZQ75owZqEiE4pZw?width=660&height=371&cropmode=none)
+![](/images/yukinoshita2.jpg)
 
 **Uji Matcha Milk**  
 因為pancake製作需時（大概15－20分鐘啦）  
@@ -35,7 +35,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族]
 不過係唔記得嗌走糖  
 之後食埋pancake就變得甜咗少少  
 
-![](https://qfzqqq.ch.files.1drv.com/y4mX2d1DXusEJ2idCvNni6OmRbfBJST2fMeqYi10aK4y6PCm0vjLsbLYpiozNcTGFEcReXnMwBkGNjaFbFI0eh2fJjncpdAepjrV1yKDP3CGIwSgsrERIUs6GYLOvr7qTtnZL15lmmw0f6Fx7U141m37PJozxL8JMFpF-2iO4_4C5QKQpXmqhJOWpUbwJ0kkJVGD58P2nnjRLEmyqxuCgpsGA?width=660&height=371&cropmode=none)
+![](/images/yukinoshita3.jpg)
 
 **土佐黃金生姜氷 | 高知縣黃金の里生薑 かき氷**  
 諗緊食佢定係沖繩黑糖黃豆粉冰之間佢贏咗  
@@ -43,7 +43,7 @@ tags : [flavor - 飲！, flavor - 螞蟻族]
 冰粉粉碎碎咁，入口即溶凍到震  
 個口好凍但喉嚨灼熱好過癮（心）  
 
-![](https://qfzoqq.ch.files.1drv.com/y4moi3qyaG_LRYiNo7DzBmZHRO2pMLOyyzFK9F-zZAZ2F6CvqpTEyP06mWARQm8qCLUEgYSJNbCnEAoaiHyAZN40NpzgwCr2j97OirjVwv_gyhDPSCkQkUqWxbHiu_7jLwTndb3u3VFXE2SSy11zAnXgq6KCtp6PRZz7VBVPFMaBbuXBBE4bkWXOeLjfvsDKO2vn0kIhYPgPDDJ-O30ZMfJ-A?width=660&height=371&cropmode=none)
+![](/images/yukinoshita4.jpg)
 
 食食吓覺得個味唔同咗又好綿滑咁  
 院內水冰嘅內圍係牛奶冰  

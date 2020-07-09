@@ -3,22 +3,32 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
+    <loc>https://hidie.net/relaxdear/</loc>
+    <lastmod>2020-07-09T19:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</loc>
+    <lastmod>2020-07-09T19:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/</loc>
+    <lastmod>2020-07-09T19:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/</loc>
+    <lastmod>2020-07-09T19:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/kanagawa2h/</loc>
     <lastmod>2020-07-09T07:30:00+08:00</lastmod>
   </url>
   
   <url>
     <loc>https://hidie.net/tags/amusement-exhibition/</loc>
-    <lastmod>2020-07-09T07:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/</loc>
-    <lastmod>2020-07-09T07:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/</loc>
     <lastmod>2020-07-09T07:30:00+08:00</lastmod>
   </url>
   
@@ -99,11 +109,6 @@
   
   <url>
     <loc>https://hidie.net/kanagawa1o/</loc>
-    <lastmod>2020-06-30T07:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</loc>
     <lastmod>2020-06-30T07:30:00+08:00</lastmod>
   </url>
   

@@ -8,12 +8,12 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 morning boza～  
 
-[![](https://4.bp.blogspot.com/-NDqXfGsV3TM/XDsmp01phtI/AAAAAAAAFiM/Fr0fD16CUQEiT2t04ghX_ihUWGZnb2p6ACLcBGAs/s640/14157831928_d4476a5820_z.jpg)](https://4.bp.blogspot.com/-NDqXfGsV3TM/XDsmp01phtI/AAAAAAAAFiM/Fr0fD16CUQEiT2t04ghX_ihUWGZnb2p6ACLcBGAs/s1600/14157831928_d4476a5820_z.jpg)
+![](/images/bulgaria13a1.jpg)
 
 究竟香港哪裏會有得賣？  
 好香好好味啊！  
 
-[![](https://2.bp.blogspot.com/-k2ChakMkb5U/XDsmvsflAOI/AAAAAAAAFiQ/_s5jjfwayv8sucfUB5Fb9_gzxM206qOnQCLcBGAs/s640/14344489285_c163a1fcbb_z.jpg)](https://2.bp.blogspot.com/-k2ChakMkb5U/XDsmvsflAOI/AAAAAAAAFiQ/_s5jjfwayv8sucfUB5Fb9_gzxM206qOnQCLcBGAs/s1600/14344489285_c163a1fcbb_z.jpg)
+![](/images/bulgaria13a.jpg)
 
 banitsa with boza  
 好保加利亞的早餐呢  
@@ -25,4 +25,4 @@ apartment隔離間麵包店不開舖
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

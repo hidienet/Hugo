@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 差不多中午才出門  
 又熱又曬，要喝冰涼的飲料  
 
-[![](https://2.bp.blogspot.com/-y7W0_3Sqfvk/XDshQ1FJ9bI/AAAAAAAAFfY/a__3VwR4s0UCxqDyD8edWaegt2rZiLhdwCLcBGAs/s640/14325209484_5913f545f5_z.jpg)](https://2.bp.blogspot.com/-y7W0_3Sqfvk/XDshQ1FJ9bI/AAAAAAAAFfY/a__3VwR4s0UCxqDyD8edWaegt2rZiLhdwCLcBGAs/s1600/14325209484_5913f545f5_z.jpg)
+![](/images/bulgaria12a.jpg)
 
 有氣意大利rose  
 聞到香香的莓果氣味  
@@ -18,10 +18,10 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 加上有微微氣泡的  
 消暑解渴味道好  
 
-[![](https://1.bp.blogspot.com/-xheDX0ZUcOc/XDshWNp8ftI/AAAAAAAAFfg/Qcf5PIGOA-wt1ljR0f_xNcqUIFZPLiOOACLcBGAs/s640/14346077153_ea5ffe1ca1_z.jpg)](https://1.bp.blogspot.com/-xheDX0ZUcOc/XDshWNp8ftI/AAAAAAAAFfg/Qcf5PIGOA-wt1ljR0f_xNcqUIFZPLiOOACLcBGAs/s1600/14346077153_ea5ffe1ca1_z.jpg)
+![](/images/bulgaria12a1.jpg)
 
 Nazdráve～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

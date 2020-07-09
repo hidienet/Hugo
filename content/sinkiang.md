@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 新年要喜氣洋洋要大紫大紅？  
 我偏愛黑色～  
 
-[![](https://farm8.staticflickr.com/7389/16389785489_615d0ea0be_z.jpg)](https://farm8.staticflickr.com/7389/16389785489_615d0ea0be_z.jpg)
+![](/images/sinkiang.jpg)
 
 黑啤本身沈穩帶香  
 而平日的黑啤有點苦  

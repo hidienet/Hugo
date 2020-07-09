@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 relax, take it easy...  
 
-[![](https://4.bp.blogspot.com/-Y_meurlFgq8/XExzhBGw26I/AAAAAAAAG9k/_4swrK3T6gInG0Ge0lennrN_EI-vxyedQCLcBGAs/s640/15301482971_c23aa0d8be_z.jpg)](https://4.bp.blogspot.com/-Y_meurlFgq8/XExzhBGw26I/AAAAAAAAG9k/_4swrK3T6gInG0Ge0lennrN_EI-vxyedQCLcBGAs/s1600/15301482971_c23aa0d8be_z.jpg)
+![](/images/relaxcoolred.jpg)
 
 不是每種紅酒都是高傲的  
 這枝德國來的朋友  

@@ -11,7 +11,7 @@ tags : [flavor - 飲！]
 極度好喝  
 上癮度高到破錶  
 
-[![](https://farm8.staticflickr.com/7693/17150888368_b64b11c4ca_z.jpg)](https://farm8.staticflickr.com/7693/17150888368_b64b11c4ca_z.jpg)
+![](/images/choyamattcha.jpg)
 
 平日梅酒太甜要跟水1:1  
 （well，有時沒有凍水會用清酒）  

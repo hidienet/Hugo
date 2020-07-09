@@ -8,20 +8,20 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 
 週末係絕對可以放縱地食嘢！  
 
-![](https://1.bp.blogspot.com/-XcrIqFxvwGQ/XOlJie2vQMI/AAAAAAAAJuY/QFs2UwAXSnUXxwBhqESc4pUIY_0Uf90FwCLcBGAs/s640/IMG_20190525_193904.jpg)
+![](/images/prostbykingludwig1.jpg)
 
 **Acrobrau Weissbeer Hell**  
 食德國嘢唔飲啤酒飲咩呀？  
 冇咩㗎咪就係入口香囉！  
 一公升巨巨杯飲完有排去洗手間之嘛…  
 
-![](https://1.bp.blogspot.com/-zfAO9nqaRHc/XOlJnKbDMEI/AAAAAAAAJuc/CrktKzmD6yMQWJgQfDQx2cAHwSLG1Z5dwCLcBGAs/s640/IMG_20190525_193953.jpg)
+![](/images/prostbykingludwig2.jpg)
 
 冇dunkel所以嚟咗呢杯黑啤  
 一公升also，呃！個味淡咗啲啲  
 都有淡淡香味… 嘅……  
 
-![](https://1.bp.blogspot.com/-V3VGH9gXuQY/XOlJXKGfAhI/AAAAAAAAJuQ/pYTwIQF9wFEz10UkIPVsYPUD9wO7306BwCLcBGAs/s640/IMG_20190525_194840.jpg)
+![](/images/prostbykingludwig3.jpg)
 
 **Nuremberg Sausages**  
 豬肉味好香！  
@@ -29,14 +29,14 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 薯仔炸得外脆內粉  
 完成度好高嘅菜式呢~  
 
-![](https://1.bp.blogspot.com/-E2QEwsVn7OY/XOlJuviTtEI/AAAAAAAAJuk/U-hZOmRg-MkXcnq-blQWqOg48S34u_XXACLcBGAs/s640/IMG_20190525_194933.jpg)
+![](/images/prostbykingludwig4.jpg)
 
 **Strudels (Open Face)**  
 開口雲吞咁，酥皮 x 脆芝士 w/菠菜餡  
 配菜嘅三色蘿蔔好好味  
 連埋番茄蓉醬真係好好食  
 
-![](https://1.bp.blogspot.com/-H70kJCAj-a4/XOlJeMkyZNI/AAAAAAAAJuU/XvN8TVVRkyMqyktkuuzTSwRiBs20L47YwCLcBGAs/s640/IMG_20190525_200407.jpg)
+![](/images/prostbykingludwig5.jpg)
 
 **White Asparagus w/Veal Rack**  
 白蘆筍季節嘛…  

@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 happy happy hour~  
 
-[![](https://2.bp.blogspot.com/-DLhWH60EFKo/XCOSQEi490I/AAAAAAAAB3I/TDtsYZhOU0MMLOlGpEEDAw-GnbKm01gKwCLcBGAs/s640/24.jpg)](https://2.bp.blogspot.com/-DLhWH60EFKo/XCOSQEi490I/AAAAAAAAB3I/TDtsYZhOU0MMLOlGpEEDAw-GnbKm01gKwCLcBGAs/s1600/24.jpg)
+![](/images/hoegaarden.jpg)
 
 hoegaarden大大的一杯，通常都是雙手拿起杯來喝  
 又因為此啤酒淡口而帶點甜蜂蜜味道  

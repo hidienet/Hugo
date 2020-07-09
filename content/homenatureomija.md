@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 紅色一粒粒的五味子  
 
-[![](https://farm8.staticflickr.com/7371/16167043799_7defd55fff_z.jpg)](https://farm8.staticflickr.com/7371/16167043799_7defd55fff_z.jpg)
+![](/images/homenatureomija.jpg)
 
 沖泡超容易  
 只需拿一把放入水壺  

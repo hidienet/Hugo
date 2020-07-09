@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 甜美的汽泡在口中盤旋  
 心情也跟著會興奮起來喔～  
 
-[![](https://1.bp.blogspot.com/-qvrz3W7gT7k/XE1AH_hdZEI/AAAAAAAAG-Y/wUZiRNNikI4VjpPMMUDVaviAwGeZuNIGwCLcBGAs/s640/9756298996_0fcfd7c03b_z.jpg)](https://1.bp.blogspot.com/-qvrz3W7gT7k/XE1AH_hdZEI/AAAAAAAAG-Y/wUZiRNNikI4VjpPMMUDVaviAwGeZuNIGwCLcBGAs/s1600/9756298996_0fcfd7c03b_z.jpg)
+![](/images/lasmorasrose.jpg)
 
 果味甜甜而帶有微微的酸味  
 不像濁酒（米酒）般濃郁  

@@ -11,7 +11,7 @@ tags : [flavor - 飲！]
 散髮著清爽的甜味  
 加上...  
 
-[![](https://farm1.staticflickr.com/479/19800540359_927e3ac393_z.jpg)](https://farm1.staticflickr.com/479/19800540359_927e3ac393_z.jpg)
+![](/images/takarashuzo.jpg)
 
 這個樽好可愛啊～～～  
 樽蓋還是一個平闊的杯  

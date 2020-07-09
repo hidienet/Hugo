@@ -6,10 +6,10 @@ aliases: [ "/2014/12/cheers.html" ]
 tags : [flavor - 飲！]
 ---
 
-因為有日在3B家做客  
+因為有日在3B家作客  
 給了我喝這清新的柚子米酒，就愛上了  
 
-[![](https://farm8.staticflickr.com/7464/15345594793_ed2cdb4231_z.jpg)](https://farm8.staticflickr.com/7464/15345594793_ed2cdb4231_z.jpg)
+![](/images/umenoyadoyuzu.jpg)
 
 酒精度只有8%，適合任何時間享用  
 不辛口，帶著清香的柚子味  

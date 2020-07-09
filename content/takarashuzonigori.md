@@ -8,9 +8,9 @@ tags : [flavor - 飲！]
 
 啦啦啦～ 濃濃甜味的濁酒  
 
-[![](https://4.bp.blogspot.com/-_RBsVPdqnp8/XE1ArPaQDUI/AAAAAAAAG-w/jN8NBZ6arU8PLctsSUTnlyZOf7zmFw0qQCLcBGAs/s640/9756317005_52595fe5a8_z.jpg)](https://4.bp.blogspot.com/-_RBsVPdqnp8/XE1ArPaQDUI/AAAAAAAAG-w/jN8NBZ6arU8PLctsSUTnlyZOf7zmFw0qQCLcBGAs/s1600/9756317005_52595fe5a8_z.jpg)
+![](/images/takarashuzonigori.jpg)
 
-平日大剌剌地喝韓式的막걸리（makgeolli）  
+平日大剌剌地喝韓式的[막걸리](https://hidie.net/busanjj1j/)（makgeolli）  
 今天用小杯子有點不習慣（笑）  
 但にごり酒甜度比較高  
 如果大碗大碗大啖喝  

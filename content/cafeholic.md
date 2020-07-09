@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 係㗎喇，就嚟無聊到去茶餐廳都影相㗎喇！  
 
-[![](https://c1.staticflickr.com/1/889/41364367731_aeb5c7f8be_z.jpg)](https://c1.staticflickr.com/1/889/41364367731_aeb5c7f8be_z.jpg)
+![](/images/cafeholic.jpg)
 
 今朝飲咗咖啡就唔想下午茶又飲  
 咪試吓叫其他嘢飲吓  
@@ -21,7 +21,7 @@ tags : [flavor - 飲！]
 仲要個面層係厚厚嘅奶泡  
 睇落感覺較西化同優雅少少  
 
-[![](https://c1.staticflickr.com/1/883/26492789887_36e2bcbea2_z.jpg)](https://c1.staticflickr.com/1/883/26492789887_36e2bcbea2_z.jpg)
+![](/images/cafeholic1.jpg)
 
 份下午茶嘅waffle就一般般啦  
 都外脆內OK軟嘅  

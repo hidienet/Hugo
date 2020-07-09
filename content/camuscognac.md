@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 响法國機場見到呢枝當地嘢喎  
 咪開開心心拎佢返屋企囉  
 
-[![](https://c1.staticflickr.com/5/4449/37400134972_c5ae16c7a8_z.jpg)](https://c1.staticflickr.com/5/4449/37400134972_c5ae16c7a8_z.jpg)
+![](/images/camuscognac.jpg)
 
 Limited Release㗎  
 出品嘅51060枝中第24204枝  

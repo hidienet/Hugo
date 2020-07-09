@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 放工、放假就是happy hour吧  
 
-[![](https://farm6.staticflickr.com/5469/9756337305_f0a6d4f67a_z.jpg)](https://farm6.staticflickr.com/5469/9756337305_f0a6d4f67a_z.jpg)
+![](/images/leffeblonde.jpg)
 
 ビール　ビール　ビール（啦啦啦）  
 （明明是比利時啤酒卻在說日文，醉了嗎？）  

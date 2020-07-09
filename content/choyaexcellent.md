@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 繼續霉霉的天配梅酒...  
 
-[![](https://farm9.staticflickr.com/8577/16651966452_eb5ed6860b_z.jpg)](https://farm9.staticflickr.com/8577/16651966452_eb5ed6860b_z.jpg)
+![](/images/choyaexcellent.jpg)
 
 厚身順滑的梅味  
 除了日產梅外還加入法國白蘭地  

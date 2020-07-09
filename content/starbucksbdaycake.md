@@ -10,7 +10,7 @@ tags : [flavor - 飲！]
 但也說不上很差，只是淡了點  
 （不是指caffe latte；我已經是在喝double shot on ice的說！）  
 
-[![](https://farm1.staticflickr.com/359/18489906106_a4b1ef5a64_z.jpg)](https://farm1.staticflickr.com/359/18489906106_a4b1ef5a64_z.jpg)
+![](/images/starbucksbdaycake.jpg)
 
 不過喝這杯vanilla榛子加紅梅cream的我  
 忽然覺得自己好白癡（淚）  

@@ -6,7 +6,7 @@ aliases: [ "/2014/01/day1_3554.html" ]
 tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
 ---
 
-慶州法酒是甜甜的濁酒  
+막걸리（makgeolli）是甜甜的濁酒  
 
 ![](/images/busanjj1j.jpg)
 

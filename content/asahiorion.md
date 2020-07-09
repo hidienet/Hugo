@@ -8,12 +8,10 @@ tags : [flavor - 飲！]
 
 悶熱的天氣就喝些入口很爽的東西
 
-[![](https://farm4.staticflickr.com/3954/19006561650_78a3322b56_z.jpg)](https://farm4.staticflickr.com/3954/19006561650_78a3322b56_z.jpg)
+![](/images/asahiorion.jpg)
 
-甜甜的orion啤酒
-
-加上asahi的微甘味
-
+甜甜的orion啤酒  
+加上asahi的微甘味  
 悶・氣・全・消（yeah～）
 
   

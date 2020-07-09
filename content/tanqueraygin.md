@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 yeah～ 去細e屋企黐酒飲  
 
-[![](https://farm9.staticflickr.com/8583/16017227261_cbe59069c4_z.jpg)](https://farm9.staticflickr.com/8583/16017227261_cbe59069c4_z.jpg)
+![](/images/tanqueraygin.jpg)
 
 酒精度47.3%  
 這gin有香濃的青檸味  

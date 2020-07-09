@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 放工！「走」時樂～  
 
-[![](https://farm9.staticflickr.com/8855/18295762481_505ce80986_z.jpg)](https://farm9.staticflickr.com/8855/18295762481_505ce80986_z.jpg)
+![](/images/sparklingmakgeolli.jpg)
 
 雖然說有微微的6%酒精  
 不過喝起來卻沒有酒精味道  

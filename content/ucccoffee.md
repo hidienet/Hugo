@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 下午啡時間～  
 
-[![](https://3.bp.blogspot.com/-0Y0Es-IAy84/XDGFCWPnJ6I/AAAAAAAAEcs/RdFFWVUidewErvsPviyGiorlOTWVrbw6QCLcBGAs/s640/30.jpg)](https://3.bp.blogspot.com/-0Y0Es-IAy84/XDGFCWPnJ6I/AAAAAAAAEcs/RdFFWVUidewErvsPviyGiorlOTWVrbw6QCLcBGAs/s1600/30.jpg)
+![](/images/ucccoffee.jpg)
 
 咖啡味道不濃郁  
 所以加奶會比較好喝  

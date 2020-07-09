@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 好一個relax的星期五  
 
-[![](https://2.bp.blogspot.com/-4Q1K27qLawg/XExwWQn2E8I/AAAAAAAAG8M/GkXcGgMWWoEHuSPvxII1hkb5l6S8TF9nQCLcBGAs/s640/15071479198_171d358e0b_z.jpg)](https://2.bp.blogspot.com/-4Q1K27qLawg/XExwWQn2E8I/AAAAAAAAG8M/GkXcGgMWWoEHuSPvxII1hkb5l6S8TF9nQCLcBGAs/s1600/15071479198_171d358e0b_z.jpg)
+![](/images/caffekenon.jpg)
 
 最適合嘆一杯不太濃味的cappuccino  
 口味偏淡，可味道也不會太快消失  

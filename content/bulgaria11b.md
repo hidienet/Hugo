@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 boza是種發酵麥的飲料  
 
-[![](https://1.bp.blogspot.com/-MmXlUPff2qA/XDsYWvlUp3I/AAAAAAAAFZQ/UeIcE9fmGmk6dzEIS7ZLexp1-Z0Q5rTqwCLcBGAs/s640/14286667656_839f900712_z.jpg)](https://1.bp.blogspot.com/-MmXlUPff2qA/XDsYWvlUp3I/AAAAAAAAFZQ/UeIcE9fmGmk6dzEIS7ZLexp1-Z0Q5rTqwCLcBGAs/s1600/14286667656_839f900712_z.jpg)
+![](/images/bulgaria11b.jpg)
 
 這隻以rye（黑麥）造的  
 boza是甜甜味道帶有微酸性的飲料  
@@ -21,4 +21,4 @@ boza是甜甜味道帶有微酸性的飲料
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

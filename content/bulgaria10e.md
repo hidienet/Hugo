@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 有少少餓加上好口乾  
 隊枝ayran也不錯！  
 
-[![](https://2.bp.blogspot.com/-pCSFty8xaTg/XDsXH95-q7I/AAAAAAAAFYg/AzMzWhiq2QMcoMNlghAO6dmKh1VdNoJ4wCLcBGAs/s640/14329839073_589c1771e9_z.jpg)](https://2.bp.blogspot.com/-pCSFty8xaTg/XDsXH95-q7I/AAAAAAAAFYg/AzMzWhiq2QMcoMNlghAO6dmKh1VdNoJ4wCLcBGAs/s1600/14329839073_589c1771e9_z.jpg)
+![](/images/bulgaria10e.jpg)
 
 真的不錯！是非常不錯！  
 這隻味道濃郁，質地很軟滑濃厚  
@@ -20,4 +20,4 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

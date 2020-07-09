@@ -6,11 +6,11 @@ aliases: [ "/2015/01/cheers-suntory-premium-malts.html" ]
 tags : [flavor - 飲！]
 ---
 
-一般覺得日本的啤酒都很淡對吧  
+一般覺得日本的啤酒都不夠香對吧  
 但這隻suntory可能會令人有些改觀  
 絕對不輸歐洲貨色  
 
-[![](https://farm9.staticflickr.com/8671/16166963819_89c408e27f_z.jpg)](https://farm9.staticflickr.com/8671/16166963819_89c408e27f_z.jpg)
+![](/images/suntorypremium.jpg)
 
 入口味道感覺微微濃  
 而且很香醇，同時也很美味  

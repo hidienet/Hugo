@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 過了中秋天氣還是那麼熱  
 有甚麼比得上喝一杯冰冷飲料更消暑？  
 
-[![](https://1.bp.blogspot.com/-y4H9iJEHP3o/XExrtzrCEBI/AAAAAAAAG5k/ZTedgb2Ig6UHti41TwbGM_ooHgbV9nfBwCLcBGAs/s640/15221378162_1c7b28e45c_z.jpg)](https://1.bp.blogspot.com/-y4H9iJEHP3o/XExrtzrCEBI/AAAAAAAAG5k/ZTedgb2Ig6UHti41TwbGM_ooHgbV9nfBwCLcBGAs/s1600/15221378162_1c7b28e45c_z.jpg)
+![](/images/budejovickybudvar.jpg)
 
 入口超順滑的捷克draft  
 汽泡細密，一點苦味都沒有  

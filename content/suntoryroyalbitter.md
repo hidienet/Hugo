@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 就是說年紀越大越能吃苦嗎？  
 
-[![](https://farm4.staticflickr.com/3854/19397042702_a37039e084_z.jpg)](https://farm4.staticflickr.com/3854/19397042702_a37039e084_z.jpg)
+![](/images/suntoryroyalbitter.jpg)
 
 這個我還是不知道（遠望）  
   

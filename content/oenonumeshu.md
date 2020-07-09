@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 季節的問題嗎？  
 身邊都有很多人生病喔～  
 
-[![](https://farm6.staticflickr.com/5463/17844372218_6d2af84543_z.jpg)](https://farm6.staticflickr.com/5463/17844372218_6d2af84543_z.jpg)
+![](/images/oenonumeshu.jpg)
 
 酒 + 梅子 + 紫蘇 = 提神抗病組合  
 在家中又怎能缺少了呢？  

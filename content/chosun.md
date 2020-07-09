@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 像牛奶一般的濃郁感覺  
 
-[![](https://1.bp.blogspot.com/-FIuknmKqASw/XEx0U7OfFQI/AAAAAAAAG-E/kbo2-VRGVcom1MblrYhOW59KiGGqMXQQACLcBGAs/s640/15304415242_987f2ca373_z.jpg)](https://1.bp.blogspot.com/-FIuknmKqASw/XEx0U7OfFQI/AAAAAAAAG-E/kbo2-VRGVcom1MblrYhOW59KiGGqMXQQACLcBGAs/s1600/15304415242_987f2ca373_z.jpg)
+![](/images/chosun.jpg)
 
 有汽泡同營養豐富加上甜甜的酒  
 6%微酒精對身體不算很大的負擔  
@@ -18,4 +18,4 @@ tags : [flavor - 飲！]
 很容易「一不小心」酒喝多了（嗝～）  
 \-----------------------------------------------  
   
-延伸閱讀：[국순당 막걸리 - 우국생](http://www.hidie.net/2014/01/day3_695.html)
+延伸閱讀：[국순당 막걸리 - 우국생](https://hidie.net/busanjj3a/)

@@ -9,7 +9,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 Muscat Ottonel是保加利亞種的提子  
 不試試沒道理吧～  
 
-[![](https://3.bp.blogspot.com/-ku81DBmgEys/XDM7y1VKM1I/AAAAAAAAEuk/EJca4YFOtswPEXRjXBhsQbUa5KPGh7AawCLcBGAs/s640/38.jpg)](https://3.bp.blogspot.com/-ku81DBmgEys/XDM7y1VKM1I/AAAAAAAAEuk/EJca4YFOtswPEXRjXBhsQbUa5KPGh7AawCLcBGAs/s1600/38.jpg)
+![](/images/bulgaria2j.jpg)
 
 （當然要雪凍先飲啦～）  
 雖然被成為dry white wine  
@@ -20,4 +20,4 @@ Muscat Ottonel是保加利亞種的提子
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

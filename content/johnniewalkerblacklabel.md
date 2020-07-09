@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 龍爺又一K+酒套餐巨獻！  
 
-[![](https://farm8.staticflickr.com/7567/15956000535_177dde7a8c_z.jpg)](https://farm8.staticflickr.com/7567/15956000535_177dde7a8c_z.jpg)
+![](/images/johnniewalkerblacklabel.jpg)
 
 （謝謝HIMHIM打燈兼請客～）  
 這次是在CEO同4枝black label  

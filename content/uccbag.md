@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 沒有特別(不)喜歡日本的咖啡  
 
-[![](https://farm6.staticflickr.com/5462/16805696843_884957f730_z.jpg)](https://farm6.staticflickr.com/5462/16805696843_884957f730_z.jpg)
+![](/images/uccbag.jpg)
 
 但又來C9上身的情況：  
 獨立濾紙裝8回分  

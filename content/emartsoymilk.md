@@ -6,9 +6,9 @@ aliases: [ "/2014/12/soymilk-emart.html" ]
 tags : [flavor - 飲！]
 ---
 
-平日愛喝自家製的豆漿  
+平日愛喝[自家製](https://hidie.net/gingersoymilk/)的豆漿  
 
-[![](https://farm8.staticflickr.com/7580/15743527390_54bd87e139_z.jpg)](https://farm8.staticflickr.com/7580/15743527390_54bd87e139_z.jpg)
+![](/images/emartsoymilk.jpg)
 
 （豆・漿・牆，哈哈）  
 不過細細盒方便攜帶  

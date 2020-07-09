@@ -20,7 +20,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 裡面啲肉都仲係又嫩又熱㗎！  
 點唔點個乳酪醬都OK呀  
 
-![](https://1.bp.blogspot.com/-JvaIKCVYdnI/XE2p0H3BpKI/AAAAAAAAHm4/904MjgKq3nAeW09LK3HXJLc6Uod82NM7ACLcBGAs/s640/IMG_20181213_205020.jpg)
+![](/images/bhc1.jpg)
 
 齋食炸雞好悶嘅  
 啲炸薯條細細條咁  
@@ -30,7 +30,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
   
 而右手邊嘅波波好正呀  
 
-![](https://2.bp.blogspot.com/-dVEAcmcey0A/XE2qCllRtYI/AAAAAAAAHnA/V7Yik5B7078tUjrv8_aGDDokkKWZW5sVgCLcBGAs/s640/IMG_20181213_205316.jpg)
+![](/images/bhc2.jpg)
 
 （咬～）  
 係芝士波呢！  
@@ -39,13 +39,13 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 漏嘅程度唔會輸俾芝士炸雞  
 但係實在好好食，漏就漏啦哈哈  
 
-![](https://2.bp.blogspot.com/-Gv4jr6EMi8E/XE2qRU_bVVI/AAAAAAAAHnI/TrTPCBOEj-c-nEFsSJ1pZ4wJscOnLLqnwCLcBGAs/s640/IMG_20181213_204547.jpg)
+![](/images/bhc3.jpg)
 
 set裡面嘅salad  
 大大兜幾足料  
 味道唔錯嘅冇咩特別咁啦  
 
-![](https://1.bp.blogspot.com/-v1aGNKVZvQU/XE2qc7aP1mI/AAAAAAAAHnQ/Xy7BK5CRFO0PHQbvC1knvxMTaT4i20owACLcBGAs/s640/IMG_20181213_212745.jpg)
+![](/images/jinropeach.jpg)
 
 **Jinro TokTok Peach**  
 今晚食炸雞唔想配冇味韓啤  
@@ -54,4 +54,4 @@ set裡面嘅salad
 唔會太好飲亦唔會好差咁囉  
 飲有氣嘅嘢配炸嘢都算OK嘅...  
   
-延伸閱讀：[\[seoul time\] Day6：BHC치킨](https://www.hidie.net/2014/11/seoul-time-day6bhc.html)
+延伸閱讀：[\[seoul time\] Day6：BHC치킨](https://hidie.net/seoul6g/)

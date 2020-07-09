@@ -8,21 +8,21 @@ tags : [flavor - 飲！]
 
 Lotte出的即沖杯湯  
 
-[![](https://3.bp.blogspot.com/-mzUjs8bI5Tg/XC4RhLzuxCI/AAAAAAAAD7E/jUI7yWHuHD4eBTK5o4UlF2CuHmjbUmizQCLcBGAs/s640/e.jpg)](https://3.bp.blogspot.com/-mzUjs8bI5Tg/XC4RhLzuxCI/AAAAAAAAD7E/jUI7yWHuHD4eBTK5o4UlF2CuHmjbUmizQCLcBGAs/s1600/e.jpg)
+![](/images/lottekoreansoup1.jpg)
 
 在Lotte Supermarket一次過掃三隻味  
 
-[![](https://4.bp.blogspot.com/-F1qE2_J0amE/XC4RoejWttI/AAAAAAAAD7M/pv83sr3IC28-IgMsjjFRwuX_y7wE6IkNQCLcBGAs/s640/r.jpg)](https://4.bp.blogspot.com/-F1qE2_J0amE/XC4RoejWttI/AAAAAAAAD7M/pv83sr3IC28-IgMsjjFRwuX_y7wE6IkNQCLcBGAs/s1600/r.jpg)
+![](/images/lottekoreansoup.jpg)
 
 不能吃辣的我覺得辣牛肉湯挺辣  
 那牛肉粒都算有兩三下咬咬  
   
 
-[![](https://1.bp.blogspot.com/-d38kCVboUDg/XC4RvlZH22I/AAAAAAAAD7Q/hLzqblOlnIYZvT1Cmxr7pQ8-554BY0oLQCLcBGAs/s640/t.jpg)](https://1.bp.blogspot.com/-d38kCVboUDg/XC4RvlZH22I/AAAAAAAAD7Q/hLzqblOlnIYZvT1Cmxr7pQ8-554BY0oLQCLcBGAs/s1600/t.jpg)
+![](/images/lottekoreansoup2.jpg)
 
   
 
-[![](https://1.bp.blogspot.com/-Vx5QTmhcWK8/XC4R1KgSFwI/AAAAAAAAD7Y/IHiRPaEq7K84SwPMjKIbiyNgREwpRtcBQCLcBGAs/s640/y.jpg)](https://1.bp.blogspot.com/-Vx5QTmhcWK8/XC4R1KgSFwI/AAAAAAAAD7Y/IHiRPaEq7K84SwPMjKIbiyNgREwpRtcBQCLcBGAs/s1600/y.jpg)
+![](/images/lottekoreansoup3.jpg)
 
 不辣的那兩款味道鹹鹹的  
 就跟一般味精湯無異  

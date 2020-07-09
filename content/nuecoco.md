@@ -11,7 +11,7 @@ tags : [flavor - 飲！]
 至少是無白糖為購買原則  
 所以忽然想喝能解渴的果汁  
 
-[![](https://farm8.staticflickr.com/7692/17138165184_a004f627fb_z.jpg)](https://farm8.staticflickr.com/7692/17138165184_a004f627fb_z.jpg)
+![](/images/nuecoco.jpg)
 
 就選了這罐來自泰國的100%純椰子水  
 說那些甚麼椰子水減肥或乜乜乜  

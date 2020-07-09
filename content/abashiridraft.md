@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 藍色泡泡酒（啤酒就啤酒啦！）  
 
-[![](https://c2.staticflickr.com/8/7468/29280460256_f8f2e5f347_z.jpg)](https://c2.staticflickr.com/8/7468/29280460256_f8f2e5f347_z.jpg)
+![](/images/abashiridraft.jpg)
 
 隻酒都幾清香帶少少甜嘅  
 酒味淡淡咁，隊五十枝都無可能醉  

@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 有媽的孩子像個寶？  
 有tak的hidie比寶還要寶！  
 
-[![](https://farm9.staticflickr.com/8835/17710395431_ab75b032cb_z.jpg)](https://farm9.staticflickr.com/8835/17710395431_ab75b032cb_z.jpg)
+![](/images/kavalansolistsherrysingle.jpg)
 
 是超～～～ 美～ 味～ 的雪莉桶威士忌！！！  
 tak從臺灣帶來的最強手信～（撒花）  
@@ -18,17 +18,14 @@ tak從臺灣帶來的最強手信～（撒花）
 單一麥芽單一酒桶味道就是純粹  
 喝少少就很滿足  
 
-[![](https://farm6.staticflickr.com/5326/17683773836_b3380b3e9c_z.jpg)](https://farm6.staticflickr.com/5326/17683773836_b3380b3e9c_z.jpg)
+![](/images/kavalansolistsherrysingle1.jpg)
 
 have a have a good time  
 have a have a good night  
 用這個附送的威士忌杯  
 香味更集中，很讚！  
 配西班牙腿當然地好  
-不過居然吃那盒馬來西亞辣椒朱古力  
+不過居然吃那盒馬來西亞[辣椒朱古力](https://hidie.net/vezzo/)  
 兩種辛辣感覺非常非常棒！  
 有機會一定要試試，不過這會上癮的喔～  
   
-\-----------------------------------------------  
-  
-延伸閱讀：[\[chocolate\] VEZZO - hot chili chocolate](http://www.hidie.net/2015/03/chocolate-vezzo-hot-chili-chocolate.html)

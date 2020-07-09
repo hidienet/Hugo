@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 每飲一啖都說「好濃喔」～  
 
-[![](https://farm8.staticflickr.com/7685/16864882200_34cf5244e7_z.jpg)](https://farm8.staticflickr.com/7685/16864882200_34cf5244e7_z.jpg)
+![](/images/harboeextrastrong.jpg)
 
 真的超濃厚，麥味香濃入口豐腴  
 非常適合那些嫌棄啤酒淡如水的人！  

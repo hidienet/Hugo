@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 雖然是公司裡面的小職員  
 但我是不！能！受！氣！的！（哼）  
 
-[![](https://farm8.staticflickr.com/7515/15778945299_0f059e14df_z.jpg)](https://farm8.staticflickr.com/7515/15778945299_0f059e14df_z.jpg)
+![](/images/koreanredgintea.jpg)
 
 要喝杯蔘茶補補氣～  
 六年紅蔘，小小一包沖小杯就可以  

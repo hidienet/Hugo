@@ -10,7 +10,7 @@ tags : [flavor - 飲！]
 還是喝些能抗身體氧化的茶飲較好吧  
 （雖然很明顯這只是自我安慰重啦）  
 
-[![](https://farm1.staticflickr.com/527/18959128936_d8443c9726_z.jpg)](https://farm1.staticflickr.com/527/18959128936_d8443c9726_z.jpg)
+![](/images/nokchawonrooibos.jpg)
 
 韓國公司出品的100%南非國寶茶rooibos tea  
 不乾喉的紅茶，味道不太濃但很香  

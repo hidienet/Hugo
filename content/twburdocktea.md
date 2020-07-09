@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 去臺灣看到必買的  
 這個一定榜上有名  
 
-[![](https://1.bp.blogspot.com/-9kGBqhh3-10/XE1EWtbqpfI/AAAAAAAAHAQ/qaLNSgHMYnQyMj68GTipvLRc3tly7KUXACLcBGAs/s640/15178006560_da43a9a34c_z.jpg)](https://1.bp.blogspot.com/-9kGBqhh3-10/XE1EWtbqpfI/AAAAAAAAHAQ/qaLNSgHMYnQyMj68GTipvLRc3tly7KUXACLcBGAs/s1600/15178006560_da43a9a34c_z.jpg)
+![](/images/twburdocktea.jpg)
 
 樣子醜醜的乾牛蒡  
 沖泡出金黃色澤的牛蒡茶  

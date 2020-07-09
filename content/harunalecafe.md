@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 宇治綠茶，就算是樽裝  
 都好像有點不一樣  
 
-[![](https://farm8.staticflickr.com/7476/16120290679_1bbe5bb4fd_z.jpg)](https://farm8.staticflickr.com/7476/16120290679_1bbe5bb4fd_z.jpg)
+![](/images/harunalecafe.jpg)
 
 入口第一時間感覺不是綠茶  
 而是很飄香的但像紅茶  

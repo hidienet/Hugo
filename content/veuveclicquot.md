@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 問：「妳鍾意紅酒定白酒？」  
 答：「香檳！」(well, sometimes rakia...)  
 
-[![](https://3.bp.blogspot.com/-9ft9aTJe_34/XEMlw0lj2DI/AAAAAAAAFvw/qc3ZJl2VufQefFLnc6B6Ll-9S9ZPQiHbQCLcBGAs/s640/9756374753_4faf0e64a5_z.jpg)](https://3.bp.blogspot.com/-9ft9aTJe_34/XEMlw0lj2DI/AAAAAAAAFvw/qc3ZJl2VufQefFLnc6B6Ll-9S9ZPQiHbQCLcBGAs/s1600/9756374753_4faf0e64a5_z.jpg)
+![](/images/veuveclicquot.jpg)
 
 輕輕的汽泡，淺金色的美妙色澤  
 散發果香味道，既豐富又清新  

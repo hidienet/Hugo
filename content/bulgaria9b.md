@@ -8,11 +8,11 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 
 飲杯咖啡hea一陣～  
 
-[![](https://2.bp.blogspot.com/-RFMi1ykAlY8/XDsKX-FqMeI/AAAAAAAAFVE/oJppJos4IhUMEUElFRcu9k6xpoF7rifJwCLcBGAs/s640/14104125768_33a9077ba8_z.jpg)](https://2.bp.blogspot.com/-RFMi1ykAlY8/XDsKX-FqMeI/AAAAAAAAFVE/oJppJos4IhUMEUElFRcu9k6xpoF7rifJwCLcBGAs/s1600/14104125768_33a9077ba8_z.jpg)
+![](/images/bulgaria9b.jpg)
 
 but為甚麼都是無柄的玻璃杯？  
 熱辣辣拎唔起隻杯點飲呀大佬？？？  
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

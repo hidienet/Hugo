@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 說是有帶水樽這良好習慣  
 不過看到想喝的也是不會忍手喔  
 
-[![](https://farm4.staticflickr.com/3909/18959507936_443e3f9c26_z.jpg)](https://farm4.staticflickr.com/3909/18959507936_443e3f9c26_z.jpg)
+![](/images/asahigyokuroen.jpg)
 
 飯後不想喝甜的  
 （我也是有不想碰甜東西的時候）  
@@ -21,4 +21,4 @@ tags : [flavor - 飲！]
   
 \-----------------------------------------------  
   
-延伸閱讀：[\[tea\] 玉露園 こんぶ茶 x 利休庵 わかめ茶](http://www.hidie.net/2015/05/x.html)
+延伸閱讀：[\[tea\] 玉露園 こんぶ茶 x 利休庵 わかめ茶](https://hidie.net/gyokuroen/)

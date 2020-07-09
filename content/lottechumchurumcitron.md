@@ -12,7 +12,7 @@ tags : [flavor - 飲！]
   
 係㗎！真係對韓國酒冇乜好感...  
 
-[![](https://c1.staticflickr.com/5/4588/38744817944_c9aca50a6e_z.jpg)](https://c1.staticflickr.com/5/4588/38744817944_c9aca50a6e_z.jpg)
+![](/images/lottechumchurumcitron.jpg)
 
 好彩家陣有呢啲水果味燒酒  
 係甜咗啲嘅但至少入到口  
@@ -22,6 +22,6 @@ tags : [flavor - 飲！]
 \-----------------------------------------------  
   
 延伸閱讀：（唉～）  
-[冇味一號 cass draft beer](https://www.hidie.net/2014/01/day7cass-draft-beer.html)  
-[君子二號 hite dry finish](https://www.hidie.net/2014/09/cheers-hite-dry-finish.html)  
-[人類總要重複同樣的錯誤 hite max all malt beer](https://www.hidie.net/2014/11/seoul-time-day6hite-max-all-malt-beer.html)
+[冇味一號 cass draft beer](https://hidie.net/busanjj7g/)  
+[君子二號 hite dry finish](https://hidie.net/hitebeer/)  
+[人類總要重複同樣的錯誤 hite max all malt beer](https://hidie.net/seoul6e/)

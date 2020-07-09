@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 消暑開胃又解渴  
 夏日炎炎好味推介  
 
-[![](https://3.bp.blogspot.com/-K_woRT6T1ps/XEQDtn4B00I/AAAAAAAAGAU/8sxF6POagBcc5gAqpv3tLtwWVkylCmsvgCLcBGAs/s640/9756265574_7291c67dcb_z.jpg)](https://3.bp.blogspot.com/-K_woRT6T1ps/XEQDtn4B00I/AAAAAAAAGAU/8sxF6POagBcc5gAqpv3tLtwWVkylCmsvgCLcBGAs/s1600/9756265574_7291c67dcb_z.jpg)
+![](/images/fukucholemonhoney.jpg)
 
 清爽的檸檬味  
 以及香甜的蜂蜜  

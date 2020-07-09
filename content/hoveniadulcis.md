@@ -9,7 +9,7 @@ tags : [flavor - 飲！]
 其實是買錯了茶  
 （不懂窗框文所以買錯的）  
 
-[![](https://2.bp.blogspot.com/-Bm4iJn0Yxuc/XE1S4OFW0KI/AAAAAAAAHFk/nJ9yBEtFTt0nvrerKxbIl9eRfiUcxL0kACLcBGAs/s640/15412715236_a69b3ed0b5_z.jpg)](https://2.bp.blogspot.com/-Bm4iJn0Yxuc/XE1S4OFW0KI/AAAAAAAAHFk/nJ9yBEtFTt0nvrerKxbIl9eRfiUcxL0kACLcBGAs/s1600/15412715236_a69b3ed0b5_z.jpg)
+![](/images/hoveniadulcis.jpg)
 
 這是種果加葉的茶  
 那果是一種稱為헛개나무 “hovenia dulcis”的棗  

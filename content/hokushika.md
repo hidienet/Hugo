@@ -8,10 +8,8 @@ tags : [flavor - 飲！]
 
 沒有秋田米，就喝個秋田縣的米酒吧～
 
-[![](https://farm9.staticflickr.com/8807/17486934991_dfae75fe7b_z.jpg)](https://farm9.staticflickr.com/8807/17486934991_dfae75fe7b_z.jpg)
+![](/images/hokushika.jpg)
 
-生貯蔵，帶有微香的氣味
-
-入口不嗆也沒有強勁後續的酒精味
-
+生貯蔵，帶有微香的氣味  
+入口不嗆也沒有強勁後續的酒精味  
 淡淡的米香，這就是秋田的味道？

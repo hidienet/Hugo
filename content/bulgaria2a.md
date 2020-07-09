@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 而айран（ayran）就是乳酪 + 鹽 + 水的飲料  
 相比牛奶，我更愛айран就是  
 
-[![](https://4.bp.blogspot.com/-2BLw3ajPmpY/XDGsCVZA2mI/AAAAAAAAEpQ/XIbPh49IpFoFmq_qOFZXLz2PcmJJC1llwCLcBGAs/s640/3332.jpg)](https://4.bp.blogspot.com/-2BLw3ajPmpY/XDGsCVZA2mI/AAAAAAAAEpQ/XIbPh49IpFoFmq_qOFZXLz2PcmJJC1llwCLcBGAs/s1600/3332.jpg)
+![](/imgaes/bulgaria2a.jpg)
 
 稀稀的微鹹純乳酪飲料  
 喝後帶有輕微飽肚感  
@@ -20,4 +20,4 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

@@ -8,7 +8,7 @@ tags : [flavor - 飲！]
 
 不好意思，我真是覺得這坨便便很可愛 XDDD  
 
-[![](https://3.bp.blogspot.com/-skeBBbhpx8Q/XCiMKZPNOTI/AAAAAAAADPU/OvHLRwTsE1sft-JbxZZbbN1trgJIeNmDgCLcBGAs/s640/72.jpg)](https://3.bp.blogspot.com/-skeBBbhpx8Q/XCiMKZPNOTI/AAAAAAAADPU/OvHLRwTsE1sft-JbxZZbbN1trgJIeNmDgCLcBGAs/s1600/72.jpg)
+![](/images/kirinfrozen.jpg)
 
 好了好了，浮在啤酒面的雪插上雪人  
 很有聖誕冬天氣氛呢  
@@ -24,7 +24,7 @@ kirin也是一貫淡淡的味道
 跟冰泡泡一齊其實很夾  
 冬天喝這種淡味冰啤也算是一種享受  
 
-[![](https://3.bp.blogspot.com/-bhMIHBK4l-w/XCiMPEvY1mI/AAAAAAAADPc/alUrN8OvR6wNh_2pFzHqlY9gHe-D4vTiACLcBGAs/s640/73.jpg)](https://3.bp.blogspot.com/-bhMIHBK4l-w/XCiMPEvY1mI/AAAAAAAADPc/alUrN8OvR6wNh_2pFzHqlY9gHe-D4vTiACLcBGAs/s1600/73.jpg)
+![](/images/kirinfrozen1.jpg)
 
 logo也很得意  
   

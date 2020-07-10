@@ -24,7 +24,7 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 ![](https://af07ww.ch.files.1drv.com/y4mwo-XYC5n3d1j8-x_8IT0MoVJkFercLYHi4ZE6m41usl_PC18_oFrpKdbj8fIIrHLb0OoHEkAUtkzw-Q3i6flD0V8F4bdSvmQFh5j-atE_FjgYk-rWWO0UEQFaewy-oSgoPks1llD4lAzoMMP-G4dzbq_7NQik9z4kdnSQBX0MA4YiDEigeMzxtellmptEMo9wCUYsiIoxRL6udFE5AbejA?width=660&height=371&cropmode=none)
 
-响**北鎌倉**落車，先遊一遊**円覚寺**  
+响**北鎌倉**落車，先遊一遊[円覚寺](https://hidie.net/kanagawa3c/)  
 响鎌倉時代後半嘅弘安5年（1282）開山  
 
 ![](https://al3dzw.ch.files.1drv.com/y4m7KKdgpp5yHXuvjtl0YYxLard1v7SB7mJASFpUvoO4NcFjkVmz3WmNkEaxgPjslhfe8C5y03wOnQ8YsHDung2UD7kxuGxbFXI2GQZlHM7ly9E-7Cs7nWz5YpkcW0R8JgGrFtKLA-JVyvYroRrc5NrZHxgbSbaGRelTr10T99qZ_TjRmcHsLesXOX-kaBDkxzEa31hr4FEK2uju6G3huy2xA?width=660&height=371&cropmode=none)
@@ -45,7 +45,7 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 ![](https://bl1vqq.ch.files.1drv.com/y4mhNLG4UXR1eesz4BYgNmxLGHuOVJascQqR-bmAzOjowNYxj1MJyfHcOuin5xv7kcL9f3K0Ump5P7JQ9n0JAnjJ0KNHosrClmVFy1_jwk6GtjkEWV4mDAD4ogYtpbK_5AC57POmJbS2l3lwM6-MWAf5noap8uCubN2JAo2SG8ZAYF0VLSSWqOS-3BtLUsdhZfoxgRXAYdnyYeX8dQnVqQHpA?width=660&height=371&cropmode=none)
 
-去完**円覚寺**，就去旅程中期間限定之一嘅**明月院**  
+去完円覚寺，就去旅程中期間限定之一嘅**明月院**  
 
 ![](https://q1xyqq.ch.files.1drv.com/y4m6BQxSyZgxeXUzcC564sECznEL0yPtyRta9ayy6gSiujv9e33wHPN0wnHia7KxvYRIpNE6LVynGZ5IG-G5cny9QCd4mOMJJjmONAfmYytd-rfKPlu6jxItdvOWUC6rBxgQLgl4OCOAU2PuE8pgn_vZ0NsEIiryF1iUkxlGRcyCokP3P5H3kDOBnfx8bqJSJr-ooKFBgoXSYET0NsDYNXwEg?width=660&height=371&cropmode=none)
 
@@ -266,7 +266,7 @@ craft beer真係魅力沒法擋
   
   
 今次鎌倉玩得未夠盡興又冇去到江ノ島  
-下次再嚟啦去買川越都好喎...  
+下次再嚟啦去川越都好喎...  
   
 ～完～  
   

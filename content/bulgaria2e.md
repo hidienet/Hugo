@@ -11,7 +11,7 @@ tags : [travel - България (Bulgaria)]
 土耳其在保加利亞的東南方  
 所以口味也相對叫正宗吧  
 
-[![](https://4.bp.blogspot.com/-M0L2_gT7yV8/XDM2prx2pBI/AAAAAAAAEr0/ZrXDAjCJWxAcB9FVn8jhuaJCeGIAqWZlACLcBGAs/s640/15.jpg)](https://4.bp.blogspot.com/-M0L2_gT7yV8/XDM2prx2pBI/AAAAAAAAEr0/ZrXDAjCJWxAcB9FVn8jhuaJCeGIAqWZlACLcBGAs/s1600/15.jpg)
+![](/images/bulgaria2e.jpg)
 
 合成的牛羊豬漢堡肉  
 外層微焦裡面的肉超juicy  
@@ -23,4 +23,4 @@ tags : [travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

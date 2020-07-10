@@ -8,7 +8,7 @@ tags : [travel - България (Bulgaria)]
 
 當然不是樹都會生蛋啦～  
 
-[![](https://4.bp.blogspot.com/-BycXCRq7sDk/XDNMdh1lMHI/AAAAAAAAE3I/D3R5RzvppqglRkW53vbzt5xBcSHjXAosgCLcBGAs/s640/14.jpg)](https://4.bp.blogspot.com/-BycXCRq7sDk/XDNMdh1lMHI/AAAAAAAAE3I/D3R5RzvppqglRkW53vbzt5xBcSHjXAosgCLcBGAs/s1600/14.jpg)
+![](/images/bulgaria4c.jpg)
 
 就像大埔林村拋寶碟上許願樹般拋蛋上去  
 周圍都看不到只有這一棵  
@@ -16,4 +16,4 @@ tags : [travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

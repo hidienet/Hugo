@@ -10,7 +10,7 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa2j1.jpg)
 
-港未來線：横滨 → **馬車道**
+港未來線：横浜 → **馬車道**
 
 ![](/images/kanagawa2j2.jpg)
 
@@ -22,7 +22,7 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa2j4.jpg)
 
-上返路面，滿滿西方建築風味
+上返路面，滿滿西建築風味
 
 ![](/images/kanagawa2j5.jpg)
 

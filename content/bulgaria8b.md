@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
 
 好肚餓好肚餓好肚餓好肚餓  
 
-[![](https://3.bp.blogspot.com/-UZN7moHcYXs/XDriMdHiPOI/AAAAAAAAFLw/tGvdo7cdBV8poRCd8gpYDWK46Mterh9LgCLcBGAs/s640/14076527569_3eaccce0b5_z.jpg)](https://3.bp.blogspot.com/-UZN7moHcYXs/XDriMdHiPOI/AAAAAAAAFLw/tGvdo7cdBV8poRCd8gpYDWK46Mterh9LgCLcBGAs/s1600/14076527569_3eaccce0b5_z.jpg)
+![](/images/bulgaria8b1.jpg)
 
 吃得豐富是必需的（！）  
 烤香的豬扒裡面juicy juicy  
@@ -19,23 +19,23 @@ tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
 這是番茄紅椒加香草調配的  
 鮮、香、甜又creamy，好好味  
 
-[![](https://2.bp.blogspot.com/-_rJDH1JS_OA/XDriSVJwzoI/AAAAAAAAFL0/1WWbrUxrKj8i9t_g_QEk8w1GPSjaextOgCLcBGAs/s640/14076616317_47309d3b8b_z.jpg)](https://2.bp.blogspot.com/-_rJDH1JS_OA/XDriSVJwzoI/AAAAAAAAFL0/1WWbrUxrKj8i9t_g_QEk8w1GPSjaextOgCLcBGAs/s1600/14076616317_47309d3b8b_z.jpg)
+![](/images/bulgaria8b2.jpg)
 
 lavazza的caffe latte  
 你應該不會認為我喪得早上喝rakia的 XDDD  
 
-[![](https://3.bp.blogspot.com/-EyM9fxG8YAQ/XDriXMzJt-I/AAAAAAAAFL4/3zF-a390AAklutltWVtBi2fCZ7VTIRF_ACLcBGAs/s640/14240065786_d5831386f6_z.jpg)](https://3.bp.blogspot.com/-EyM9fxG8YAQ/XDriXMzJt-I/AAAAAAAAFL4/3zF-a390AAklutltWVtBi2fCZ7VTIRF_ACLcBGAs/s1600/14240065786_d5831386f6_z.jpg)
+![](/images/bulgaria8b3.jpg)
 
 鄰座的「拆散三文治」  
 有多士有芝士火腿番茄青瓜  
 不過我一直就去吃這份的黑橄欖  
 （sometimes cheese :p ）  
 
-[![](https://2.bp.blogspot.com/-BGEaWy3Xmzk/XDrib7T9wgI/AAAAAAAAFL8/Kixj9yd0ihYIVKnEIcj0vfA2VDORKbZBACLcBGAs/s640/14262788584_1bdc0fa21b_z.jpg)](https://2.bp.blogspot.com/-BGEaWy3Xmzk/XDrib7T9wgI/AAAAAAAAFL8/Kixj9yd0ihYIVKnEIcj0vfA2VDORKbZBACLcBGAs/s1600/14262788584_1bdc0fa21b_z.jpg)
+![](/images/bulgaria8b4.jpg)
 
 這邊拍的Veliko Tarnovo  
 其實怎樣拍哪個角度哪個時間拍都好美～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

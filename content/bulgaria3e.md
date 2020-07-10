@@ -6,10 +6,10 @@ aliases: [ "/2014/05/day3supa-star.html" ]
 tags : [flavor - 飲！, travel - България (Bulgaria)]
 ---
 
-昨天的[balkan bites](http://www.hidie.net/2014/05/day2balkan-bites-free-food-tour-sofia.html)實在食得太興奮  
+昨天的[balkan bites](https://hidie.net/bulgaria2f/)實在食得太興奮  
 不encore又怎能對得住自己？  
 
-[![](https://1.bp.blogspot.com/-xi7bv2Buo1Y/XDM9mOMF-qI/AAAAAAAAEwI/GTMegm-XIOEY8Kc-ZuVCG2bT9NdjlqayACLcBGAs/s640/52.jpg)](https://1.bp.blogspot.com/-xi7bv2Buo1Y/XDM9mOMF-qI/AAAAAAAAEwI/GTMegm-XIOEY8Kc-ZuVCG2bT9NdjlqayACLcBGAs/s1600/52.jpg)
+![](/images/bulgaria3e1.jpg)
 
 今天沒有tarator（因為每天都是不同的6款湯）  
 左邊的腸仔湯  
@@ -26,10 +26,10 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 別小看這些湯，全都好飽肚  
 加份sandwich就是一餐完美的lunch甚至dinner呢  
 
-[![](https://1.bp.blogspot.com/-Eg0mySxdRDQ/XDM9tPL_JDI/AAAAAAAAEwQ/r9VwPur9ujEr84NgBU3RTnx-hjedWohpgCLcBGAs/s640/53.jpg)](https://1.bp.blogspot.com/-Eg0mySxdRDQ/XDM9tPL_JDI/AAAAAAAAEwQ/r9VwPur9ujEr84NgBU3RTnx-hjedWohpgCLcBGAs/s1600/53.jpg)
+![](/images/bulgaria3e.jpg)
 
 鋪頭前的石狗狗～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

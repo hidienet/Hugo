@@ -8,7 +8,7 @@ tags : [travel - България (Bulgaria), flavor - 小食部]
 
 宵夜零食時段（嘻嘻）  
 
-[![](https://2.bp.blogspot.com/-8c1sSATYDjI/XDM7klvpOgI/AAAAAAAAEug/xwcCxfnG6IcPgEnEd95Lu_Cswe5dyjJBwCLcBGAs/s640/37.jpg)](https://2.bp.blogspot.com/-8c1sSATYDjI/XDM7klvpOgI/AAAAAAAAEug/xwcCxfnG6IcPgEnEd95Lu_Cswe5dyjJBwCLcBGAs/s1600/37.jpg)
+![](/images/bulgaria2i.jpg)
 
 超級推介這made in Bulgaria的美味  
 雖然這品牌是麵包片香港都有得賣  
@@ -21,4 +21,4 @@ tags : [travel - България (Bulgaria), flavor - 小食部]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

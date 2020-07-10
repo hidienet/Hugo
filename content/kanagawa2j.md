@@ -55,7 +55,7 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa2j12.jpg)
 
-排緊展，不過車同單車呢家嘢冇咩興趣睇...
+緊展，不過車同單車呢家嘢冇咩興趣睇...
 
 ![](/images/kanagawa2j13.jpg)
 

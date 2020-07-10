@@ -15,11 +15,11 @@ tags : [travel - България (Bulgaria)]
 10程只是8程價格  
 搭得夠就不妨買這張card  
 
-[![](https://3.bp.blogspot.com/-ygaU5eSbFMo/XDM8kLvwcUI/AAAAAAAAEvI/vCWeHtV69HM2uyIztWBoS7cMLORmWpwJwCLcBGAs/s640/43.jpg)](https://3.bp.blogspot.com/-ygaU5eSbFMo/XDM8kLvwcUI/AAAAAAAAEvI/vCWeHtV69HM2uyIztWBoS7cMLORmWpwJwCLcBGAs/s1600/43.jpg)
+![](/images/bulgaria3c1.jpg)
 
 車站感覺好新淨呢～  
 
-[![](https://3.bp.blogspot.com/-lzicYWUIsz0/XDM8oXXSdFI/AAAAAAAAEvM/tqPxKjrB1QcKMBOXD9LkvOKiTlI-Dm05wCLcBGAs/s640/44.jpg)](https://3.bp.blogspot.com/-lzicYWUIsz0/XDM8oXXSdFI/AAAAAAAAEvM/tqPxKjrB1QcKMBOXD9LkvOKiTlI-Dm05wCLcBGAs/s1600/44.jpg)
+![](/images/bulgaria3c2.jpg)
 
 車是蘇聯製的，所以較高大  
 但看上去好像用色有點舊舊  

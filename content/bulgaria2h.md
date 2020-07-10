@@ -9,12 +9,12 @@ tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
 昨天在一直Vitosha一直找不到吃的  
 （指保加利亞菜）  
 
-[![](https://3.bp.blogspot.com/-TTVxzSQF7FE/XDM6_EPtHSI/AAAAAAAAEt4/M3ywLRay1QoyI4lHIOaj9xYpN9QsAgsAwCLcBGAs/s640/32.jpg)](https://3.bp.blogspot.com/-TTVxzSQF7FE/XDM6_EPtHSI/AAAAAAAAEt4/M3ywLRay1QoyI4lHIOaj9xYpN9QsAgsAwCLcBGAs/s1600/32.jpg)
+![](/images/bulgaria2h1.jpg)
 
 原來就在隔離一條街  
 完全平行空間所以找不到  
 
-[![](https://2.bp.blogspot.com/-nKVZ7FsgLlU/XDM7Dw0U6yI/AAAAAAAAEuA/JXyzjCLvn8wvUTPzUK2NFugloQ8ufJ62ACLcBGAs/s640/33.jpg)](https://2.bp.blogspot.com/-nKVZ7FsgLlU/XDM7Dw0U6yI/AAAAAAAAEuA/JXyzjCLvn8wvUTPzUK2NFugloQ8ufJ62ACLcBGAs/s1600/33.jpg)
+![](/images/bulgaria2h2.jpg)
 
 welcome drink～  
 plum釀製的rakia  
@@ -24,20 +24,20 @@ rakia是東歐一帶都有的烈酒
 超香的味道，然而是plum釀的  
 入口非～ 常～ 嗆～（咳咳）小酌好了  
 
-[![](https://1.bp.blogspot.com/-NVKmbn5PerA/XDM7JPK0PPI/AAAAAAAAEuE/GPQaET1TEYA4WYgThS55-4IDPz7qn4-JACLcBGAs/s640/34.jpg)](https://1.bp.blogspot.com/-NVKmbn5PerA/XDM7JPK0PPI/AAAAAAAAEuE/GPQaET1TEYA4WYgThS55-4IDPz7qn4-JACLcBGAs/s1600/34.jpg)
+![](/images/bulgaria2h3.jpg)
 
 麵包蔬菜清湯  
 個包又薄又脆，蔬菜湯的味道清香  
 加上檸檬汁更提鮮開胃  
 
-[![](https://2.bp.blogspot.com/-O2inLnvmQkk/XDM7NYIUm8I/AAAAAAAAEuI/yQwsQOqCPiYTeU---3Y4fsl-4lJMGvasQCLcBGAs/s640/35.jpg)](https://2.bp.blogspot.com/-O2inLnvmQkk/XDM7NYIUm8I/AAAAAAAAEuI/yQwsQOqCPiYTeU---3Y4fsl-4lJMGvasQCLcBGAs/s1600/35.jpg)
+![](/images/bulgaria2h4.jpg)
 
 pan煎豬肉  
 簡單的豬肉蘑菇洋蔥  
 面層豪氣地放滿韌韌的芝士  
 味道香濃不太鹹但還是有點漏  
 
-[![](https://3.bp.blogspot.com/-NXjxzy4VfLo/XDM7RfokxYI/AAAAAAAAEuQ/PZAFpKkAt3EtDTvzL0kuUe2wxuCs3ypHQCLcBGAs/s640/36.jpg)](https://3.bp.blogspot.com/-NXjxzy4VfLo/XDM7RfokxYI/AAAAAAAAEuQ/PZAFpKkAt3EtDTvzL0kuUe2wxuCs3ypHQCLcBGAs/s1600/36.jpg)
+![](/images/bulgaria2h5.jpg)
 
 雜燴碎豬手  
 比剛才那道菜更濃郁更漏  
@@ -52,4 +52,4 @@ pan煎豬肉
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

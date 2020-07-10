@@ -13,42 +13,42 @@ tags : [lifestyle - 逃離852, travel - България (Bulgaria)]
 ～Doha ～Romania ～Bulgaria  
   
 **day 1**  
-see：[儀仗隊](http://www.hidie.net/2014/05/day1.html)  
-eat：[Ristorante Piazza Italia](http://www.hidie.net/2014/05/day1_11.html)  
+see：[儀仗隊](https://hidie.net/bulgaria1a/)  
+eat：[Ristorante Piazza Italia](https://hidie.net/bulgaria1b/)  
   
 **day 2**  
-drink：[айран балкан](http://www.hidie.net/2014/05/day2.html)  
-eat：[包包@bakers](http://www.hidie.net/2014/05/day2bakers.html)  
-see：[從centralni hali到古羅馬遺跡](http://www.hidie.net/2014/05/centralni-hali.html)  
-drink：[caffé memento](http://www.hidie.net/2014/05/day2caffe-memento.html)  
-eat：[orient express](http://www.hidie.net/2014/05/day2orient-express.html)  
-tour：[balkan bites (free food tour sofia)](http://www.hidie.net/2014/05/day2balkan-bites-free-food-tour-sofia.html)  
-see：[street art in sofia](http://www.hidie.net/2014/05/street-art-in-sofia.html)  
-eat：[Hadzhidraganovite izbi](http://www.hidie.net/2014/05/day2hadzhidraganovite-izbi.html)  
-eat：[fettuccine maretti funghissime](http://www.hidie.net/2014/05/day2fettuccine-maretti-funghissime.html)  
-drink：[targovishte 2012 muscat ottonel](http://www.hidie.net/2014/05/day2targovishte-2012-muscat-ottonel.html)  
+drink：[айран балкан](https://hidie.net/bulgaria2a/)  
+eat：[包包@bakers](https://hidie.net/bulgaria2b/)  
+see：[從centralni hali到古羅馬遺跡](https://hidie.net/bulgaria2c/)  
+drink：[caffé memento](https://hidie.net/bulgaria2d/)  
+eat：[orient express](https://hidie.net/bulgaria2e/)  
+tour：[balkan bites (free food tour sofia)](https://hidie.net/bulgaria2f/)  
+see：[street art in sofia](https://hidie.net/bulgaria2g/)  
+eat：[Hadzhidraganovite izbi](https://hidie.net/bulgaria2h/)  
+eat：[fettuccine maretti funghissime](https://hidie.net/bulgaria2i/)  
+drink：[targovishte 2012 muscat ottonel](https://hidie.net/bulgaria2j/)  
   
 **day 3**  
-drink：[davidoff - caramel latte](http://www.hidie.net/2014/05/day3davidoff-caramel-latte.html)  
-eat：[Raffy Bar&Galeto](http://www.hidie.net/2014/05/day3raffy-bar.html)  
-see：[有花有山有建築](http://www.hidie.net/2014/05/blog-post_15.html)  
-eat：[supa star](http://www.hidie.net/2014/05/day3supa-star.html)  
-eat：[大大個粉紅番茄](http://www.hidie.net/2014/05/day3.html)  
-eat：[Mehana Mamin Kolio](http://www.hidie.net/2014/05/day3mehana-mamin-kolio.html)  
-tour：[free sofia tour](http://www.hidie.net/2014/05/free-sofia-tour.html)  
-eat：[lubimoto](http://www.hidie.net/2014/05/day3lubimoto.html)  
-drink：[Mezzacorona Lagrein Rosato Trentino DOC](http://www.hidie.net/2014/05/day3mezzacorona-lagrein-rosato-trentino.html)  
-drink：[Khan Krum Muscat 2013](http://www.hidie.net/2014/05/day3khan-krum-muscat-2013.html)  
+drink：[davidoff - caramel latte](https://hidie.net/bulgaria3a/)  
+eat：[Raffy Bar&Galeto](https://hidie.net/bulgaria3b/)  
+see：[有花有山有建築](https://hidie.net/bulgaria3d/)  
+eat：[supa star](https://hidie.net/bulgaria3e/)  
+eat：[大大個粉紅番茄](https://hidie.net/bulgaria3f/)  
+eat：[Mehana Mamin Kolio](https://hidie.net/bulgaria3g/)  
+tour：[free sofia tour](https://hidie.net/bulgaria3h/)  
+eat：[lubimoto](https://hidie.net/bulgaria3i/)  
+drink：[Mezzacorona Lagrein Rosato Trentino DOC](https://hidie.net/bulgaria3j/)  
+drink：[Khan Krum Muscat 2013](https://hidie.net/bulgaria3k/)  
   
 **day 4**  
-drink：[айран](http://www.hidie.net/2014/05/day4_18.html)  
+drink：[айран](https://hidie.net/bulgaria4a/)  
 ～plovdiv  
-eat：[Dayana](http://www.hidie.net/2014/05/day4dayana.html)  
-see：[復活蛋樹](http://www.hidie.net/2014/05/day4_8548.html)  
-tour：[free plovdiv tour](http://www.hidie.net/2014/05/free-plovdiv-tour.html)  
-eat：[My Cafè & Bar](http://www.hidie.net/2014/05/day4my-cafe-bar.html)  
+eat：[Dayana](https://hidie.net/bulgaria4b/)  
+see：[復活蛋樹](https://hidie.net/bulgaria4c/)  
+tour：[free plovdiv tour](https://hidie.net/bulgaria4d/)  
+eat：[My Cafè & Bar](https://hidie.net/bulgaria4e/)  
 ～sofia  
-eat：[再訪Mehana Mamin Kolio](http://www.hidie.net/2014/05/day4mehana-mamin-kolio.html)  
+eat：[再訪Mehana Mamin Kolio](https://hidie.net/bulgaria4f/)  
   
 **day 5**  
 drink：[MEGGLE айран](https://hidie.net/bulgaria5a/)  

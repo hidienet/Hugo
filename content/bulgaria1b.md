@@ -18,19 +18,19 @@ tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
 就選了這家看起來「有東西吃」的餐廳  
 （那些cafe們真的像只賣咖啡跟酒的）  
 
-[![](https://4.bp.blogspot.com/-vi4kb9uaiyA/XDGrXx7CBwI/AAAAAAAAEos/xPDWJjqNLhE47mAVKqJ3PVYvnaViK6IFwCLcBGAs/s640/3323.jpg)](https://4.bp.blogspot.com/-vi4kb9uaiyA/XDGrXx7CBwI/AAAAAAAAEos/xPDWJjqNLhE47mAVKqJ3PVYvnaViK6IFwCLcBGAs/s1600/3323.jpg)
+![](/images/bulgaria1b1.jpg)
 
 tomato based肉醬pasta  
 鮮製有蛋的pasta又香又滑  
 跟濃味的醬汁一起簡直一絕  
 
-[![](https://4.bp.blogspot.com/-2LeFoc_hlM0/XDGrdLptXeI/AAAAAAAAEow/SVJWT266ASA2q5sdRAMPDLp68KpaesWCQCLcBGAs/s640/2121.jpg)](https://4.bp.blogspot.com/-2LeFoc_hlM0/XDGrdLptXeI/AAAAAAAAEow/SVJWT266ASA2q5sdRAMPDLp68KpaesWCQCLcBGAs/s1600/2121.jpg)
+![](/images/bulgaria1b2.jpg)
 
 超香蛋黃味的risotto（雖然有人嫌蛋腥）  
 燴得非常惹味而且飯軟硬度適中  
 香濃味美呢～  
 
-[![](https://1.bp.blogspot.com/-3qe7JYuFpe4/XDGriZMpnAI/AAAAAAAAEo0/YBccb98f7NM3b-dSO0ojgiuHMqKe85y8QCLcBGAs/s640/343.jpg)](https://1.bp.blogspot.com/-3qe7JYuFpe4/XDGriZMpnAI/AAAAAAAAEo0/YBccb98f7NM3b-dSO0ojgiuHMqKe85y8QCLcBGAs/s1600/343.jpg)
+![](/images/bulgaria1b3.jpg)
 
 像兇案現場的最後一塊pizza XDDD  
 （其實這才是第一道菜，不過怕嚇親人就不放最頭）  
@@ -47,13 +47,13 @@ tomato based肉醬pasta
   
   
 
-[![](https://2.bp.blogspot.com/-GskyRbF_EKs/XDGro0ZTC0I/AAAAAAAAEo8/Ul3Gy_Y5CWQfGfY7H1RDulGMc7iJxWuJgCLcBGAs/s640/333.jpg)](https://2.bp.blogspot.com/-GskyRbF_EKs/XDGro0ZTC0I/AAAAAAAAEo8/Ul3Gy_Y5CWQfGfY7H1RDulGMc7iJxWuJgCLcBGAs/s1600/333.jpg)
+![](/images/bulgaria1b4.jpg)
 
 espresso pistacchio同espresso amaretto  
 甜品咖啡，好香耶～  
 不過這兩杯都不是我的  
 
-[![](https://1.bp.blogspot.com/-buhcwchShvs/XDGr1d1XhKI/AAAAAAAAEpI/CU52vmE6Ja4yIvSF9TX1h36Ol3RJzUypQCLcBGAs/s640/2322.jpg)](https://1.bp.blogspot.com/-buhcwchShvs/XDGr1d1XhKI/AAAAAAAAEpI/CU52vmE6Ja4yIvSF9TX1h36Ol3RJzUypQCLcBGAs/s1600/2322.jpg)
+![](/images/bulgaria1b5.jpg)
 
 我的spiced espresso，除了espresso  
 還有八角玉桂朱古力醬檸檬皮等香味重的東西  
@@ -65,4 +65,4 @@ espresso pistacchio同espresso amaretto
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

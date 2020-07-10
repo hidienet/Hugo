@@ -8,11 +8,11 @@ tags : [travel - България (Bulgaria)]
 
 行程之一的Boyana Church  
 
-[![](https://1.bp.blogspot.com/-D3jK8oHHqN0/XDNQKq4k90I/AAAAAAAAE6c/wIkc41eFVfs14HgZe1IdTwpTOoVfsbR2ACLcBGAs/s640/42.jpg)](https://1.bp.blogspot.com/-D3jK8oHHqN0/XDNQKq4k90I/AAAAAAAAE6c/wIkc41eFVfs14HgZe1IdTwpTOoVfsbR2ACLcBGAs/s1600/42.jpg)
+![](/images/bulgaria5b1.jpg)
 
 小小的教堂分三個部分  
 
-[![](https://2.bp.blogspot.com/-gOj8vjSViIo/XDNQOipXcLI/AAAAAAAAE6g/6hrVLHpFqqczWWWqnWV2eFqtMRy7SDcLgCLcBGAs/s640/43.jpg)](https://2.bp.blogspot.com/-gOj8vjSViIo/XDNQOipXcLI/AAAAAAAAE6g/6hrVLHpFqqczWWWqnWV2eFqtMRy7SDcLgCLcBGAs/s1600/43.jpg)
+![](/images/bulgaria5b.jpg)
 
 先為10世紀晚期興建在11世紀初完工部分  
 中間層是13世紀加上  
@@ -32,4 +32,4 @@ tags : [travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

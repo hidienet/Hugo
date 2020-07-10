@@ -10,7 +10,7 @@ tags : [flavor - 飲！, travel - България (Bulgaria)]
 而айран（ayran）就是乳酪 + 鹽 + 水的飲料  
 相比牛奶，我更愛айран就是  
 
-![](/imgaes/bulgaria2a.jpg)
+![](/images/bulgaria2a.jpg)
 
 稀稀的微鹹純乳酪飲料  
 喝後帶有輕微飽肚感  

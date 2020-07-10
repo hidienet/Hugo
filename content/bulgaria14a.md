@@ -11,9 +11,9 @@ tags : [travel - България (Bulgaria)]
 在火車站寄存行李後  
 又來逛一下Sofia吧～  
 
-[![](https://3.bp.blogspot.com/-Bfe6BioE1bw/XDtDWHejKNI/AAAAAAAAFl4/7dxOifNEO30izkrz8VacDlDyKLTzyUwXACLcBGAs/s640/14363105212_a20973ab8d_z.jpg)](https://3.bp.blogspot.com/-Bfe6BioE1bw/XDtDWHejKNI/AAAAAAAAFl4/7dxOifNEO30izkrz8VacDlDyKLTzyUwXACLcBGAs/s1600/14363105212_a20973ab8d_z.jpg)
+![](/images/bulgaria14a1.jpg)
 
-在[free sofia tour](http://www.hidie.net/2014/05/free-sofia-tour.html)的時候  
+在[free sofia tour](https://hidie.net/bulgaria3h/)的時候  
 義工導遊介紹過這些美麗黃色的地磚  
 顏色是很美沒有錯  
 原本想整個城市都換這些磚  
@@ -30,19 +30,19 @@ tags : [travel - България (Bulgaria)]
 整個地板都金金黃黃的（尤其天晴）  
 可惜真的太太太滑了  
 
-[![](https://3.bp.blogspot.com/-FzfIpqpNUX0/XDtDgOjXJaI/AAAAAAAAFl8/Wdf3tUrc38MtvrvWP_ENIi47j_Qmgk6UACLcBGAs/s640/14364404765_523a3edcdc_z.jpg)](https://3.bp.blogspot.com/-FzfIpqpNUX0/XDtDgOjXJaI/AAAAAAAAFl8/Wdf3tUrc38MtvrvWP_ENIi47j_Qmgk6UACLcBGAs/s1600/14364404765_523a3edcdc_z.jpg)
+![](/images/bulgaria14a2.jpg)
 
 清晨的Vitosha，餐廳都未開門呢  
 
-[![](https://4.bp.blogspot.com/-B_qkQ-j2CnI/XDtDlTGpVCI/AAAAAAAAFmA/9mdxukOT2_IwLvKD9YAsGJWYY5wRRjN_ACLcBGAs/s640/14362890812_7e7cf96f39_z.jpg)](https://4.bp.blogspot.com/-B_qkQ-j2CnI/XDtDlTGpVCI/AAAAAAAAFmA/9mdxukOT2_IwLvKD9YAsGJWYY5wRRjN_ACLcBGAs/s1600/14362890812_7e7cf96f39_z.jpg)
+![](/images/bulgaria14a3.jpg)
 
 圖書館  
 
-[![](https://2.bp.blogspot.com/-yg03pkPoGWA/XDtDrDuzv3I/AAAAAAAAFmI/E_9CZgq0LLwaqKUzKkrN9H8_18dLI0ktACLcBGAs/s640/14177931297_9743c4b494_z.jpg)](https://2.bp.blogspot.com/-yg03pkPoGWA/XDtDrDuzv3I/AAAAAAAAFmI/E_9CZgq0LLwaqKUzKkrN9H8_18dLI0ktACLcBGAs/s1600/14177931297_9743c4b494_z.jpg)
+![](/images/bulgaria14a4.jpg)
 
 運動場  
 
-[![](https://2.bp.blogspot.com/-q9C313V5DGE/XDtDxk_E6QI/AAAAAAAAFmQ/DQ5PY_AdNzE5GG1oPm5_KdwToVwpjr9pACLcBGAs/s640/14177931617_2fe44c6959_z.jpg)](https://2.bp.blogspot.com/-q9C313V5DGE/XDtDxk_E6QI/AAAAAAAAFmQ/DQ5PY_AdNzE5GG1oPm5_KdwToVwpjr9pACLcBGAs/s1600/14177931617_2fe44c6959_z.jpg)
+![](/images/bulgaria14a5.jpg)
 
 這隻狗狗，由Vitosha那裡就一直跟住一起走  
 大概一同走了半小時  
@@ -54,4 +54,4 @@ tags : [travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

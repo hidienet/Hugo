@@ -1,24 +1,25 @@
 ---
-title: '[神奈川衝撞旅] Day2：橫濱 COSMOWORLD | よこはまコスモワールド'
+title: '[神奈川衝撞旅] Day2：橫浜 COSMOWORLD | よこはまコスモワールド'
 date: 2020-07-12T14:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa2n.jpg"]
 tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
-繼續諗住離開**新港**範圍...
+「橫濱、橫濱、橫濱黃秋生～」
 
 ![](/images/kanagawa2n1.jpg)
 
-向住橫濱COSMOWORLD方向
+繼續諗住離開**新港**範圍  
+向住橫浜COSMOWORLD方向行...
 
 ![](/images/kanagawa2n.jpg)
 
-**橫濱 COSMOWORLD | よこはまコスモワールド**  
+**橫浜 COSMOWORLD | よこはまコスモワールド**  
 
 ![](/images/kanagawa2n2.jpg)
 
-畀個轉轉吓嘅過山車吸引住
+點知畀個轉轉吓嘅過山車吸引住
 
 ![](/images/kanagawa2n3.jpg)
 

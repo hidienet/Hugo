@@ -13,20 +13,20 @@ tags : [travel - България (Bulgaria)]
 來到一家小小的家庭式餐廳  
 裝修嘛，像快餐店 XDDD  
 
-[![](https://3.bp.blogspot.com/-YaDrI5MH-0s/XDtBTC7Yn3I/AAAAAAAAFkU/MryxLfNgF0A-X4B7TbqlILXWQnQ0e04xACLcBGAs/s640/14348525281_6c39a0d0b3_z.jpg)](https://3.bp.blogspot.com/-YaDrI5MH-0s/XDtBTC7Yn3I/AAAAAAAAFkU/MryxLfNgF0A-X4B7TbqlILXWQnQ0e04xACLcBGAs/s1600/14348525281_6c39a0d0b3_z.jpg)
+![](/images/bulgaria13e1.jpg)
 
 rakia都是不能缺少的  
 
-[![](https://3.bp.blogspot.com/-WCFLZTNHpaI/XDtBafH3O1I/AAAAAAAAFkY/wBEFVMipWhQByOJjzNKGtpxELzT9IvyCQCLcBGAs/s640/14165185779_9ef3b1d88f_z.jpg)](https://3.bp.blogspot.com/-WCFLZTNHpaI/XDtBafH3O1I/AAAAAAAAFkY/wBEFVMipWhQByOJjzNKGtpxELzT9IvyCQCLcBGAs/s1600/14165185779_9ef3b1d88f_z.jpg)
+![](/images/bulgaria13e2.jpg)
 
 我好像迷上了這種雞湯  
 滿滿的料子，味道濃郁濃郁好好喝  
 
-[![](https://3.bp.blogspot.com/-ImWQloOsOP4/XDtBgA8nrAI/AAAAAAAAFkc/huavWK_coPwTs4CHVURYSsBiR502m59jACLcBGAs/s640/14165186369_9abd0e5e8f_z.jpg)](https://3.bp.blogspot.com/-ImWQloOsOP4/XDtBgA8nrAI/AAAAAAAAFkc/huavWK_coPwTs4CHVURYSsBiR502m59jACLcBGAs/s1600/14165186369_9abd0e5e8f_z.jpg)
+![](/images/bulgaria13e3.jpg)
 
 煮雞肉，嘿～ 有點似茶餐廳的飯菜（走飯）  
 
-[![](https://1.bp.blogspot.com/-EmVRbxlhPSc/XDtBneCo2yI/AAAAAAAAFkk/HHx7zFnT_R8ByFHxG_qQUg0HL3Pn4ku2wCLcBGAs/s640/14350286222_370d7dd89f_z.jpg)](https://1.bp.blogspot.com/-EmVRbxlhPSc/XDtBneCo2yI/AAAAAAAAFkk/HHx7zFnT_R8ByFHxG_qQUg0HL3Pn4ku2wCLcBGAs/s1600/14350286222_370d7dd89f_z.jpg)
+![](/images/bulgaria13e4.jpg)
 
 焗薯，又是簡簡單單就好味這樣  
 因為當地的芝士不油膩  
@@ -44,4 +44,4 @@ rakia都是不能缺少的
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

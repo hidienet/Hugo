@@ -8,16 +8,16 @@ tags : [travel - България (Bulgaria)]
 
 沿途的風景真的好美  
 
-[![](https://3.bp.blogspot.com/-IwaTeeTmRwY/XDrQoCD0MqI/AAAAAAAAFIA/nnm70GP5_eARWPamEx1sRYyLA6c9n1rXACLcBGAs/s640/14228010246_360d5c8341_z.jpg)](https://3.bp.blogspot.com/-IwaTeeTmRwY/XDrQoCD0MqI/AAAAAAAAFIA/nnm70GP5_eARWPamEx1sRYyLA6c9n1rXACLcBGAs/s1600/14228010246_360d5c8341_z.jpg)
+![](/images/bulgaria7c1.jpg)
 
 天氣好好呢  
 
-[![](https://1.bp.blogspot.com/-zyiCRN5gjaU/XDrQr5QFeXI/AAAAAAAAFIE/OATc-3SMSycEI609LJuP2wpdh5zV_fZdwCLcBGAs/s640/14064515239_462a597197_z.jpg)](https://1.bp.blogspot.com/-zyiCRN5gjaU/XDrQr5QFeXI/AAAAAAAAFIE/OATc-3SMSycEI609LJuP2wpdh5zV_fZdwCLcBGAs/s1600/14064515239_462a597197_z.jpg)
+![](/images/bulgaria7c2.jpg)
 
 一片黃色的花耶  
 （還是沒有玫瑰）  
 
-[![](https://2.bp.blogspot.com/-uo9HzE7Wi4I/XDrQwTPMPcI/AAAAAAAAFIM/jqh8aeWVywYYNLYyghZXBJuQ87XRT5GAgCLcBGAs/s640/14248978082_d85f68290f_z.jpg)](https://2.bp.blogspot.com/-uo9HzE7Wi4I/XDrQwTPMPcI/AAAAAAAAFIM/jqh8aeWVywYYNLYyghZXBJuQ87XRT5GAgCLcBGAs/s1600/14248978082_d85f68290f_z.jpg)
+![](/images/bulgaria7c3.jpg)
 
 到了到了，天氣還是很好  
   
@@ -25,4 +25,4 @@ tags : [travel - България (Bulgaria)]
   
 \-----------------------------------------------  
   
-延伸閱讀：[保加利亞醉遊記（14D16N）](http://www.hidie.net/2014/06/14d16n.html)
+延伸閱讀：[保加利亞醉遊記（14D16N）](https://hidie.net/bulgaria14d16n/)

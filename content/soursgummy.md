@@ -1,5 +1,5 @@
 ---
-title: 'ノーベル - SOURS(サワーズ)アソートグミ'
+title: '[candy] ノーベル - SOURS(サワーズ)アソートグミ'
 date: 2020-07-11T19:30:00.000+08:00
 draft: false
 images: ["/images/soursgummy.jpg"]

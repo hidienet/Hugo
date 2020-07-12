@@ -22,24 +22,24 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 買好[pass](https://hidie.net/kanagawa3b/)，搭車去**鎌倉**～  
 
-![](https://af07ww.ch.files.1drv.com/y4mwo-XYC5n3d1j8-x_8IT0MoVJkFercLYHi4ZE6m41usl_PC18_oFrpKdbj8fIIrHLb0OoHEkAUtkzw-Q3i6flD0V8F4bdSvmQFh5j-atE_FjgYk-rWWO0UEQFaewy-oSgoPks1llD4lAzoMMP-G4dzbq_7NQik9z4kdnSQBX0MA4YiDEigeMzxtellmptEMo9wCUYsiIoxRL6udFE5AbejA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3c3.jpg)
 
 响**北鎌倉**落車，先遊一遊[円覚寺](https://hidie.net/kanagawa3c/)  
 响鎌倉時代後半嘅弘安5年（1282）開山  
 
-![](https://al3dzw.ch.files.1drv.com/y4m7KKdgpp5yHXuvjtl0YYxLard1v7SB7mJASFpUvoO4NcFjkVmz3WmNkEaxgPjslhfe8C5y03wOnQ8YsHDung2UD7kxuGxbFXI2GQZlHM7ly9E-7Cs7nWz5YpkcW0R8JgGrFtKLA-JVyvYroRrc5NrZHxgbSbaGRelTr10T99qZ_TjRmcHsLesXOX-kaBDkxzEa31hr4FEK2uju6G3huy2xA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3c.jpg)
 
 **仏殿**  
 
-![](https://al1dww.ch.files.1drv.com/y4mcw3obkzkR7jYwzCsNv3TKJuZZkzcIR1OB3MZOuuxBzbOfhm7ryJCYf4tokbVLA3xliqFsxyoDcJOQv8ysF4T-5GOeS_qwjG_pNNdhiild_c9ynUCmtcZp97wFHD_x-IELmKQBoYqrZixXrJmwzJKfsCAjEz75SoROOdCPMmzDam0H4RdmmP7Yd2l2oSsEwEpgV22PYZ1_dpeRkvDJpk4PA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3c14.jpg)
 
 **洪鐘**  
 係関東最大洪鐘（高259.5cm）  
 正安3年（1301）建造，国宝嚟㗎！  
 
-![](https://bv1wqq.ch.files.1drv.com/y4mQqpy3It4bCIurJ3buGV-sACVv349KUjF-SfByJ83v2__T_RXgWV_57sCtaGYff3veRdEImmLyinsavt3lhv6DMT3iF9e20Riwh5zX1Php9nsHljWapF442CCCpDLWkla0eFFGrhSYO8TUqUHm97Vx2LtChekV2Gh34vKqfjRTS5TBbOdg59LlRwvh7u8OT2Va48IGwDc7H0PMGECvyreOw?width=371&height=660&cropmode=none)
+![](/images/kanagawa3d1.jpg)
 
-**綾鷹 茶葉のあまみ**（coca cola出品）  
+[綾鷹 茶葉のあまみ](https://hidie.net/kanagawa3d/)  
 個寺好好行不過好大  
 好在有地方坐低慢慢休息吓嘆吓茶  
 

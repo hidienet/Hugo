@@ -23,11 +23,11 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 google map寫行路23分鐘  
 人生路不熟下，差唔多半粒鐘啫都係
 
-![](/images/shikoku7o.jpg)
+![](/images/shikoku7o4.jpg)
 
 搭返JR返高知喇，bye須崎～  
 
-![](/images/shikoku7o4.jpg)
+![](/images/shikoku7o7.jpg)
 
 @高知駅  
 高知係個有得賞鯨嘅城市  

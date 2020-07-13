@@ -6,7 +6,13 @@ images: ["/images/kanagawa3e.jpg"]
 tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ---
 
+去完円覚寺，就去旅程中期間限定之一嘅**明月院**  
 
+![](/images/kanagawa3e1.jpg)
+
+買飛入場  
+
+![](/images/kanagawa3e.jpg)
 
 
 {{<kanagawa>}}

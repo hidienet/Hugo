@@ -10,57 +10,57 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 但係今朝六點半起身竟然係精神奕奕嘅  
 （日本時間六點半即係香港嘅五點半，平日呢段時間真係身都未轉啦莫講話起身仲要精神嗰隻）
 
-![](https://yxoptw.ch.files.1drv.com/y4m-EolPNsVmGThrfidL8VOHmj-O3KdAqRtooWZD0Vn5C4Lh5Mn__VVPE_aw7CWd_jawENWFdF-y-E0iS1trCvc69zJ2J933lI5nE_dC2pp-TOdPKgDWM-5mnIDeDTQnJj1v31NVHHaWsQRPmDJBYjMLf8dTwWFExUwRsvS62P3rV4u18MsZVYmi2Wm0hgwoUoN_NeHu-mnGlYRk_BR3SrFQQ?width=372&height=660&cropmode=none)
+![](/images/shikoku8a.jpg)
 
-（**SUNNY MART 高南台地牛乳**）  
+（[SUNNY MART 高南台地牛乳](https://hidie.net/shikoku8a/)）  
 未知幾點先食嘢  
 卻知道要「勞動」吓  
 隊定盒高知奶頂吓肚先
 
-![](https://yxpbtw.ch.files.1drv.com/y4mn3fFvkOiC5UzofILfdMmS55f_ai6w9XlpknTUIy6oFag80SdZ5sI_kAEVcepBp_Cvi_vTXLMRd_0rqZh8ypKEol6moLCEdlxZsuRhlOv4FWtXwuWCFtfsYuOjIf5yoD4cnmPlUt8CPc2hWRADR_6p-YEEU2wf2XZTWxqQTjfkhFnQqbhmOVYVTujyWZTdSff_njZNNKkPpASR5vImRGSBw?width=660&height=372&cropmode=none)
+![](/images/shikoku8b1.jpg)
 
 （街頭）  
-早早起行就係為咗要快人一步去**日曜市**
+早早起行就係為咗要快人一步去[日曜市](https://hidie.net/shikoku8b/)
 
-![](https://z3o7tw.ch.files.1drv.com/y4m8J6oo3uGyACELRMOt2wkSaxpmtu3W_pq6r7npnx6t6O9AqokB9qBQ5Exi6eHu8hi1j4qxkb9Gnf2WFtKPuEWT9Tuz9Ht3sJ6pON58UFovkvBzKY-QxL5QqTUtXVVzAGQ-_rFDgWUIfEnnwBlNhpNREkOMiTIiHC9eC9moMzRGYHWaKgTFphh0IEZZ4F7Oai3YFG-cgLVaMmZZq8AwfpQbA?width=660&height=372&cropmode=none)
+![](/images/shikoku8b20.jpg)
 
 （街尾）  
 咁就可以唔駛迫人下行完一round  
 …一條路千三米多啲（全日本最長）  
 
-![](https://znpdtw.ch.files.1drv.com/y4m2uyebFPkqlbzbGHCOvdxktx-R7z5ok4HWYjRhLGJqldzyMih4sKxNAoYOR-Mlj4Q0uylaxr1diJtM9AMHi9pOKLjlGVfj_9DbgsppQqj4aLDjSNYN511bB5pRpXw1alNN5V9rEVeSdlCQmnWevTpFQZ20uB1NFop0pXYRKiO4NJxc09quoJN0e2K6d2UNawOpMTzVIHUOzDaBrV6px6GEQ?width=660&height=372&cropmode=none)
+![](/images/shikoku8b23.jpg)
 
 因為晏啲啲 (9am)就變得咁水洩不通㗎喇  
 即係都係時候走喇  
 （已經兜完3 round，成條街行咗6次唔駛再磨啦）
 
-![](https://xnoqfq.ch.files.1drv.com/y4meybIAhfvRTzJGR-bUWNw7jS6jwSGv8-tRVJAccSOmLPIUfsA1QDL5HOQc1aEZUv-FYz-uyX56U1r7RM2Rja0fYDhhSnANQXxTL9_ku8qMoveJCRxMiWiNwNH4AsZzIySE8xlkfZhpYcEoOP_gnoVOyNeWeD0uBXPAYRf0YT0KCl4PbrmoY5oBSrm9tKdm4dsWvOTSkrAWGD9mdS64BucmQ?width=660&height=372&cropmode=none)
+![](/images/shikoku8f.jpg)
 
 買到重屎揼揼  
 先返酒店擺低嘢  
-食埋擒晚完成唔晒嘅**鯖姿寿司**
+食埋擒晚完成唔晒嘅[鯖姿寿司](https://hidie.net/shikoku8f/)
 
-![](https://xnoofq.ch.files.1drv.com/y4m9tzYfbNRDZ0x6wYMJhc-EPyLqQM9kC2Ep6qXYKFc7CWWLHw0L9JpxGwOnaJx06vn88tnSuDnWVAOhSv3wTO2IptimEe23oTRQ2TFGv8hHveD1dYhyuGhHA0qX2RdPEBmgp-VLqgrPe_NounMBTEh8AulopGBfSNsugk08FBwApwrR_wO2fntnPwPm2WCC48KVpGdxPxIsCMlbJ3GnEAHbw?width=660&height=372&cropmode=none)
+![](/images/shikoku8g.jpg)
 
-再落多次日曜市食串燒，嘿嘿
+再落多次日曜市[食串燒](https://hidie.net/shikoku8g/)，嘿嘿
 
-![](https://xnopfq.ch.files.1drv.com/y4mC4UOIB1LmSjMT5vky3Ik4kwYR2q9CqxpvbUzntppe-QHLSnREPWKB5p7Ldz4AzIMoPFRuKnmpRZbUp9iJf4s-M7fjKwHHYQ7fg37EPQrY5cpFjnxuQ-yJVcRr_8WDqrLEcaFaBJ3sU54Uv4vSPrm1OYTCXIosQbirAxZTmCR39BcldJUkhYlhvb44IkPuXH_7Lnfr4NSGMzAT_HF-0_wgQ?width=660&height=372&cropmode=none)
+![](/images/shikoku8h.jpg)
 
-响高知嘅最後一餐係嚟**菓子処 青柳 本店**食brunch  
+响高知嘅最後一餐係嚟[菓子処 青柳 本店](https://hidie.net/shikoku8h/)食brunch  
 係呀就係要又香又甜
 
-![](https://xnolfq.ch.files.1drv.com/y4mIL4KHyBpH6vmB_x2BzS5mfQtEy2u_Z5fo6n3tHIxMo7kUjxD765xmpx6jOilioB-nfmw3xIKeN_FYOAvnz9ttF_i9yA_rz6cnC4BsnILWO4X1EPDyb3I_3yotngqDgWQ0XJD8GrZSkJ63JMO7Vay5SiTxVywv3Jt0TDjHSoa71bIfW9zoI2e1_BcGE8XOdhZHkjr9nQfqDX9yxSr0aYf7w?width=660&height=372&cropmode=none)
+![](/images/shikoku8h1.jpg)
 
 款款都咁好食嘅？  
   
 呀，食完嘢就要穿州過省去機場喇  
 個JR pass得5日  
 所以呢程係搭高速巴士：  
-高知駅 → ゆめタウン高松 → **高松空港**
+高知駅 → ゆめタウン高松 → [高松空港](https://hidie.net/shikoku8j/)
 
-![](https://ynotfq.ch.files.1drv.com/y4mleXz2zX4pQmEPDV1DZgwitVRm94LQMREGwDkrHjrgXy1HjiZcwHcgpIlZk2aDGSEzbCpOp_-RG0di79SDwnOmWYWyflU5-KkJoG9KMFd6r4wxkKw2ytYW0JCdpUf7vr_XI9Q82yOeJYnM0G-CeAoxzFJRy0WHB76MvSiccFgzGE02VsSbeE4zGpaIhnwVmLQ6kq_Mku60KZlpB5Qgr9Jig?width=660&height=372&cropmode=none)
+![](/images/shikoku8k.jpg)
 
-上機前都食返少少嘢先**旭堂の元祖ぼうしパン**  
+上機前都食返少少嘢先[旭堂の元祖ぼうしパン](https://hidie.net/shikoku8k/)  
 高知嘅代表性包包  
 同香港嘅墨西哥包嘅味道一樣  
 係曲奇同包包位調轉  
@@ -69,15 +69,4 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
   
 幾唔捨得都要搭飛機返屋企喇～～～  
   
-\-----------------------------------------------  
-  
-
-延伸閱讀：[食の四国ツアー (8D7N)](https://www.hidie.net/shikoku8d7n.html)  
-[Day1：香川（高松）](https://www.hidie.net/shikoku1.html)  
-[Day2：香川（高松、丸亀、琴平）](https://www.hidie.net/shikoku2.html)  
-[Day3：香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/shikoku3.html)  
-[Day4：香川（高松）→ 愛媛（松山）](https://www.hidie.net/shikoku4.html)  
-[Day5：愛媛（松山、宇和島）](https://www.hidie.net/shikoku5.html)  
-[Day6：愛媛（松山）→ 高知（高知）](https://www.hidie.net/shikoku6.html)  
-[Day7：高知（高知、中村、須崎）](https://www.hidie.net/shikoku7.html)
-Day8：高知（高知）→ 高松（高松空港）
+{{<shikoku>}}

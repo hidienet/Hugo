@@ -8,12 +8,12 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 
 响四国就係要兜勻一圈四圍食啊啊啊啊啊！
 
-#### [Day1：香川（高松）](https://www.hidie.net/2017/08/day1.html)
+#### Day1：[香川（高松）](https://www.hidie.net/2017/08/day1.html)
 [海賊浜焼き 豊丸水産 高松ライオン通店](https://www.hidie.net/2020/03/day1.html)  
 [井村屋 やわもちアイス kiri クリームチーズ](https://www.hidie.net/2020/03/day1-kiri.html)  
 
   
-#### [Day2：香川（高松、丸亀、琴平）](https://www.hidie.net/2017/08/day2.html)
+#### Day2：[香川（高松、丸亀、琴平）](https://www.hidie.net/2017/08/day2.html)
 [高松 → 丸亀](https://www.hidie.net/2020/03/day2.html)  
 [麺処綿谷](https://www.hidie.net/2020/03/day2_31.html)  
 [丸亀城](https://www.hidie.net/2020/04/day2.html)  
@@ -27,7 +27,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 [手打ちうどん 鶴丸](https://www.hidie.net/2020/04/day2_6.html)  
 
   
-#### [Day3：香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/2017/08/day3.html)
+#### Day3：[香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/2017/08/day3.html)
 [香川高松（玉藻公園）→ 徳島鳴門](https://www.hidie.net/2020/04/day3.html)  
 [うづ乃家 - 鳴門鯛丼](https://www.hidie.net/2020/04/day3_7.html)  
 [相ヶ浜](https://www.hidie.net/2020/04/day3_8.html)  
@@ -39,7 +39,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 [骨付き阿波尾鶏 一鴻](https://www.hidie.net/2020/04/day3_13.html)  
 
   
-#### [Day4：香川（高松）→ 愛媛（松山）](https://www.hidie.net/2017/08/day4.html)
+#### Day4：[香川（高松）→ 愛媛（松山）](https://www.hidie.net/2017/08/day4.html)
 [讃岐うどん 上原屋本店](https://www.hidie.net/2020/04/day4.html)  
 [栗林公園](https://www.hidie.net/2020/04/day4_14.html)  
 [予讃線 8000系電車特急 アンパンマン列車](https://www.hidie.net/2020/04/day4-8000.html)  
@@ -51,7 +51,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 [道後温泉本館](https://www.hidie.net/2020/04/day4_18.html)  
 [丸永製菓 あいすまんじゅう](https://www.hidie.net/2020/04/day4_19.html)  
   
-#### [Day5：愛媛（松山、宇和島）](https://www.hidie.net/2017/08/day5.html)   
+#### Day5：[愛媛（松山、宇和島）](https://www.hidie.net/2017/08/day5.html)   
 [安岡蒲鉾 - 手造りじゃこ天](https://www.hidie.net/2020/04/day5.html)  
 [宇和海アンパンマン列車](https://www.hidie.net/2020/04/day5_20.html)  
 [C12 231号機、大洲城、宇土線3兄弟 - 海洋堂ホビートレイン](https://www.hidie.net/2020/04/day5c12-2313.html)  
@@ -67,7 +67,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 [まごころ酪園 - らくれん牛乳、おいしいフルーツ](https://www.hidie.net/2020/04/day5_27.html)  
 [あかまつ農園 イチゴ](https://www.hidie.net/2020/04/day5_71.html)  
   
-#### [Day6：愛媛（松山）→ 高知（高知）](https://www.hidie.net/2017/08/day6.html)  
+#### Day6：[愛媛（松山）→ 高知（高知）](https://www.hidie.net/2017/08/day6.html)  
 [伊予松山城](https://www.hidie.net/2020/04/day6.html)  
 [愛媛県産伊予柑](https://www.hidie.net/2020/04/day6_28.html)  
 [伊予鉄道](https://www.hidie.net/2020/04/day6_29.html)  
@@ -87,48 +87,48 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 [高知県産 いちご倶楽部 紅ほっぺ](https://www.hidie.net/2020/05/day6_8.html)  
 [屋台 松ちゃん](https://www.hidie.net/2020/05/day6_95.html)  
   
-#### [Day7：高知（高知、中村、須崎）](https://www.hidie.net/2017/08/day7.html)  
-[アンパンマン 石凳](https://www.hidie.net/2020/05/day7.html)
-[ANPANMAN TERRACE KOCHI | アンパンマンテラスKOCHI](https://www.hidie.net/2020/05/day7anpanman-terrace-kochi-kochi.html)
-[くじら列車 - しんたろう2号 青仕様](https://www.hidie.net/2020/05/day7-2.html)  
-[ひまわり 高知の牛乳](https://www.hidie.net/2020/05/day7_11.html)  
-[高知 → 中村（四万十川）](https://www.hidie.net/2020/05/day7_12.html)  
-[四万十屋 - 天然うなぎ](https://www.hidie.net/2020/05/day7_21.html)  
-[四万十川 → 中村](https://www.hidie.net/2020/05/day7_13.html)  
-[四万十百年ぶしゅかんドリンク](https://www.hidie.net/2020/05/day7_5.html)  
-[四万十温泉平和な湯](https://www.hidie.net/2020/05/day7_14.html)  
-[土佐くろしお鉄道8000形（四万十町仕様）](https://www.hidie.net/2020/05/day78000.html)  
-[土讃線アンパンマン列車 グリーン](https://www.hidie.net/2020/05/day7_15.html)  
-[中村 → 須崎](https://www.hidie.net/2020/05/day7_47.html)  
-[須崎（しんじょう君）](https://www.hidie.net/2020/05/day7_16.html)  
-[まゆみの店 - 鍋焼きラーメン](https://www.hidie.net/2020/05/day7_17.html)  
-[須崎 → 高知](https://www.hidie.net/2020/05/day7_18.html)  
-[土佐ノ國 二十四万石 - 土佐珍味皿鉢](https://www.hidie.net/2020/05/day7_31.html)  
+#### Day7：[高知（高知、中村、須崎）](https://hidie.net/shikoku7/)  
+[アンパンマン 石凳](https://hidie.net/shikoku7a/)  
+[ANPANMAN TERRACE KOCHI | アンパンマンテラスKOCHI](https://hidie.net/shikoku7b/)
+[くじら列車 - しんたろう2号 青仕様](https://hidie.net/shikoku7c/)  
+[ひまわり 高知の牛乳](https://hidie.net/shikoku7d/)  
+[高知 → 中村（四万十川）](https://hidie.net/shikoku7e/)  
+[四万十屋 - 天然うなぎ](https://hidie.net/shikoku7f/)  
+[四万十川 → 中村](https://hidie.net/shikoku7g/)  
+[四万十百年ぶしゅかんドリンク](https://hidie.net/shikoku7h/)  
+[四万十温泉平和な湯](https://hidie.net/shikoku7i/)  
+[土佐くろしお鉄道8000形（四万十町仕様）](https://hidie.net/shikoku7j/)  
+[土讃線アンパンマン列車 グリーン](https://hidie.net/shikoku7k/)  
+[中村 → 須崎](https://hidie.net/shikoku7l/)  
+[須崎（しんじょう君）](https://hidie.net/shikoku7m/)  
+[まゆみの店 - 鍋焼きラーメン](https://hidie.net/shikoku7n/)  
+[須崎 → 高知](https://hidie.net/shikoku7o/)  
+[土佐ノ國 二十四万石 - 土佐珍味皿鉢](https://hidie.net/shikoku7p/)  
 
   
-#### [Day8：高知（高知）→ 高松（高松空港）](https://www.hidie.net/2017/08/day8.html)  
-[SUNNY MART 高南台地牛乳](https://www.hidie.net/2020/05/day8sunny-mart.html) 
-[高知の日曜市（土佐の街路市）](https://www.hidie.net/2020/05/day8.html)  
-[高知の日曜市おすすめ名物「田舎寿司」](https://www.hidie.net/2020/05/day8_20.html)  
-[日曜市 - あんこ餅、芋餅](https://www.hidie.net/2020/05/day8_23.html)  
-[日曜市 戰利品們！](https://www.hidie.net/2020/05/day8_21.html)  
-[鯖姿寿司](https://www.hidie.net/2020/05/day8_49.html)   
-[日曜市 - 炭火焼き焼鳥](https://www.hidie.net/2020/05/day8_22.html)   
-[菓子処 青柳 本店](https://www.hidie.net/2020/05/day8_6.html) 
-[bye 高知～](https://www.hidie.net/2020/05/day8bye.html) 
-[高知駅 → ゆめタウン高松 → 高松空港](https://www.hidie.net/2020/05/day8_24.html) 
-[旭堂の元祖ぼうしパン](https://www.hidie.net/2020/05/day8_9.html)
+#### Day8：[高知（高知）→ 高松（高松空港）](https://hidie.net/shikoku8/)  
+[SUNNY MART 高南台地牛乳](https://hidie.net/shikoku8a/) 
+[高知の日曜市（土佐の街路市）](https://hidie.net/shikoku8b/)  
+[高知の日曜市おすすめ名物「田舎寿司」](https://hidie.net/shikoku8c/)  
+[日曜市 - あんこ餅、芋餅](https://hidie.net/shikoku8d/)  
+[日曜市 戰利品們！](https://hidie.net/shikoku8e/)  
+[鯖姿寿司](https://hidie.net/shikoku8f/)   
+[日曜市 - 炭火焼き焼鳥](https://hidie.net/shikoku8g/)   
+[菓子処 青柳 本店](https://hidie.net/shikoku8h/) 
+[bye 高知～](https://hidie.net/shikoku8i/) 
+[高知駅 → ゆめタウン高松 → 高松空港](https://hidie.net/shikoku8j/) 
+[旭堂の元祖ぼうしパン](https://hidie.net/shikoku8k/)
 
 
 #### 買遍四国buy buy buy：
-[\[符\] 金刀比羅宮 - 幸福の黄色いお守り](https://www.hidie.net/2020/04/blog-post.html)  
-[\[食\] 鳴門うず芋](https://www.hidie.net/2020/04/day3_9.html)
+\[符\] [金刀比羅宮 - 幸福の黄色いお守り](https://hidie.net/shikokukotohira/)  
+\[食\] [鳴門うず芋](https://hidie.net/shikokukurio/)
 
   
 
 ![](/images/shikoku8d7n.jpg)
 
-一張5 day pass搭得哂三款アンパンマン列車 \
-又去哂12座現存天守呢度嘅4座 \
-仲睇到鳴門の渦潮呀行785級樓梯上金刀比羅宮等等 \
+一張5 day pass搭得哂三款**アンパンマン列車**  
+又去哂12座現存天守呢度嘅4座  
+仲睇到鳴門の渦潮呀行785級樓梯上金刀比羅宮等等  
 都係一項成就吖呵呵呵～

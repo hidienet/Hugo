@@ -29,7 +29,7 @@ hea時間係有必要㗎！
 
 ![](/images/shikoku7i2.jpg)  
 
-然而去同回程都係沿住條四万十川
+然而去同回程都係沿住條四万十川  
 
 ![](/images/shikoku7i3.jpg)  
 

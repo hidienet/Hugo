@@ -100,23 +100,23 @@ well，我呢碟排都唔使排嘅（得戚）
 
 ![](https://z3nccw.ch.files.1drv.com/y4m9KU95UsFeS4AnqyotHssR1OzxXSsJMxmazzc9Nmt08gqZo_xw2-EqXUv0TaGQCQBGJz3rdQXMbqyImvIam3GZHfm_6yUeEk8JXeEs-RFs8P9xppSkcrRyUc40ewaB0207h5l6TU7feMzmYqv4P6W_n8IOhbabzpcKzowOBPmOxoUGzLNv-sbkptBWpz-SORkMSxYwdJQvd32FHLWeBPXiw?width=660&height=372&cropmode=none)
 
-唔想行街，就去參觀吓[高知よさこい情報交流館](https://www.hidie.net/2020/05/day6_6.html)  
+唔想行街，就去參觀吓[高知よさこい情報交流館](https://hidie.net/shikoku6n/)  
 啲舞步好得意，齋睇人哋跳嘅片  
 都有少少睇到唔捨得走  
 
-![](https://zxngcw.ch.files.1drv.com/y4m16NqCLFspNyg1phwMqgdPReprVOKtkseRxcQUhJ_--NjR490-TeTUsZDfrw_ydQHMUgl0GQwvwdB-Kx2ag6dlJsvpSgUNZl56ab7jBHvaaMob9edqdZ58nQGl1M6Bi7CNRUNTnsl8SlYGKJGOpO15yKVfmuXUDPfdzcq9zT0v4SwnVZWa3SilbQYgFJ4QpEDj1m5LIrwdkaYhvqTvMebFA?width=660&height=372&cropmode=none)
+![](/images/shikoku6o.jpg) 
 
 行返出嚟就見到頭搖又尾擺嘅[とさけんぴ](https://www.hidie.net/2020/05/day6_7.html)  
 
-![](https://zxnccw.ch.files.1drv.com/y4mFZsAJgl9PmHvv3xj7cF8JZFD3BG3L6lvoAYTluN3Jt1kKn7T6LPW5zGCePPbNvfzcHVdChNdfIfRzHkEVZhn5Jh6YxviuCrlCiFNmbUrKHVgdFPyk2jLzEViFfeeia0xssH6DBU-NRBk0KkkeryvTqu64YGKBA6dzJcCdXderkFf2HDFJc_BJdkIZ7ykuxzIMxzC0PtlpH4TXMoBE8E7mA?width=660&height=372&cropmode=none)
+![](/images/shikoku6p.jpg) 
 
-位置係景點之一嘅[播磨屋橋（はりまや橋）](https://www.hidie.net/2020/05/day6_41.html)  
+位置係景點之一嘅[播磨屋橋（はりまや橋）](https://hidie.net/shikoku6p/)  
   
-又响街行吓再[返酒店](https://www.hidie.net/2020/05/day6_8.html)check in唞陣  
+又响街行吓再[返酒店](https://hidie.net/shikoku6q/)check in唞陣  
 
-![](https://xnnyla.ch.files.1drv.com/y4mygi6gKzapsjtYuoyUFE9r9YjFMxFzMUmocLHyaF6NjdlEbqntH6FP44sxI6kWTOMcttDuE2-C-2jwtHtteZjP5vKrl9vHSKpID8kelUp5_4nwAB9calWnFY_DLsCZcb7La3f7_LxxFJZ0RiYsoK9yH_OIhMrgKgvsLDGyzhKOuV--ZPIP32NMyOHPNBguPC0pFPZKzmamUVUjgvK7ZIJDg?width=660&height=372&cropmode=none)
+![](/images/shikoku6r1.jpg)
 
-夜晚就落酒店後面嘅屋台食碗ラーメン @[松ちゃん](https://www.hidie.net/2020/05/day6_95.html)  
+夜晚就落酒店後面嘅屋台食碗ラーメン @[松ちゃん](https://hidie.net/shikoku6r/)  
 碗麵好普通但係個餃子皮超～ 脆～  
 同埋路邊攤個風味好好囉！  
   
@@ -124,15 +124,4 @@ well，我呢碟排都唔使排嘅（得戚）
 食完就好好地瞓  
 聽日又周圍走喇（哈哈哈）  
   
-\-----------------------------------------------  
-  
-
-延伸閱讀：[食の四国ツアー (8D7N)](https://www.hidie.net/shikoku8d7n.html)  
-[Day1：香川（高松）](https://www.hidie.net/shikoku1.html)  
-[Day2：香川（高松、丸亀、琴平）](https://www.hidie.net/shikoku2.html)  
-[Day3：香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/shikoku3.html)  
-[Day4：香川（高松）→ 愛媛（松山）](https://www.hidie.net/shikokuy4.html)  
-[Day5：愛媛（松山、宇和島）](https://www.hidie.net/shikoku5.html)  
-Day6：愛媛（松山）→ 高知（高知）  
-[Day7：高知（高知、中村、須崎）](https://www.hidie.net/shikoku7.html)  
-[Day8：高知（高知）→ 高松（高松空港）](https://www.hidie.net/shikoku8.html)
+{{<shikoku>}}

@@ -9,22 +9,22 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 高知係アンパンマン嘅故鄉  
 所以周圍都有佢嘅嘢  
 
-![](https://xxnbla.ch.files.1drv.com/y4myfY8z1IdnpS7Hl6yjgcI1hV2K4j99RIeXlf3oRN5XG1aP4dDhUxvxj8ZDkJpFyFzmm2ZWoXu_uWY7eXQj1mMO4MRyaqFhjTb6VH0bylg6x2p75f2GWdG-DVxlC_bMFAMgOY-dF2UVebxripAJjnfR2L_ijgmEITJcqz34Errw15ViqCCAjvnfozObs7aleZGMdjJSLm1N4vq41RjsY6Cpw?width=660&height=372&cropmode=none)
+![](/images/shikoku7a.jpg)
 
-連行條街都有佢哋嘅[石凳](https://www.hidie.net/2020/05/day7.html)  
+連行條街都有佢哋嘅[石凳](https://hidie.net/shikoku7a/)  
 
-![](https://xxnwla.ch.files.1drv.com/y4mFOeew0opWqCrAlxzSbrlWRLDN7-VK2F37KAykQY-cgUpSWbXsZ0leGtbmUJG8Ebr6hN8RrdjcBAX1tAriXf4OluPz_yfIRmo-ebX1OQC5VGEiOg-8t0NZdEOyAKtkS6jtdzu_kKm_4_vMupERQiNqCuoFquv0BvYsi_zAJzlGWWGFGw59HZDDj3ZW1PB20ebZzLLPPeawePFmEAZGrBBhg?width=660&height=372&cropmode=none)
+![](/images/shikoku7c.jpg)
 
-[くじら列車](https://www.hidie.net/2020/05/day7-2.html)  
+[くじら列車](https://hidie.net/shikoku7c/)  
 好得意呢，不過唔係坐呢架  
 完全反方向呀影低佢都好  
   
-高知 → [中村](https://www.hidie.net/2020/05/day7_12.html)  
+高知 → [中村](https://hidie.net/shikoku7e/)  
   
 無巴士嘅情況下，根據google map  
 行路就53分鐘；搭車7分鐘  
 
-![](https://y3nbla.ch.files.1drv.com/y4mmd1WM7dQykL6m_QSgyQWwwqAgdvlSwYXnSdqj3QfDM9OTuPezmE_rfe3hAauUbvy5JHMSlX0CYuAe0qv7_KqK_xc5rHibDmTLJzQ9wTLutKt13bmp8uAQxuqWYOv2lAlx1kCIBFq0UxLeoz-IqhsLPqXJlN5dr6vJpnrMajFrTVztl2grVHPqZJvGMjPAW5ZREGNjatpNI-wRbB_gWdLJw?width=660&height=372&cropmode=none)
+![](/images/shikoku7e3.jpg)
 
 好啦，坐的士啦（又）  
   

@@ -28,7 +28,7 @@ dinner time...
 
 四圍兜兜吓  
 基本上啲餐廳仔裡面好full  
-有啲直頭擺晒隊咁
+有啲直頭排晒隊咁
 
 ![](/images/kanagawa2o.jpg)
 

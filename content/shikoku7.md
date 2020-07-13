@@ -95,7 +95,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 
 而我呢就响[須崎](https://www.hidie.net/2020/05/day7_16.html)落車...
 
-![](https://xxpbtw.ch.files.1drv.com/y4muwgPhC5V1oxhb2sRjykW1SA50wBtpYzYtv44fswLl6wAGRP5-3wTJ9WdvIPcRT9kGJCGy0SBwmlP9rEu5QET8Ep4RWD72mxr18peJToZI8B5TNU_Ou9qntLvtu6rWUEZ2Ya5Ei-LLXDxcKt4lp98Y7UH4YKtgFnoZx_x_ZDw4trnJiApXw_fRe3iAX0gP80qExVZWzNB9uPphFo41nmhzQ?width=660&height=372&cropmode=none)
+![](/images/shikoku7n.jpg)
 
 無計啦，難得兜過都想試多啲嘢  
 **鍋焼きラーメン** @[まゆみの店](https://www.hidie.net/2020/05/day7_17.html)  
@@ -111,14 +111,14 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 google map寫行路23分鐘  
 人生路不熟下，差唔多半粒鐘啫都係
 
-![](https://y3pbtw.ch.files.1drv.com/y4mknD-pv_O54DPP-ByPXU0Vl1cdxBay50AusdvBZm3D8sz-G1N_B1QJcoTcQjRJQOL5YMUin5_fzfQO_ZhD5U5nu0VKSKoLTPfrU6EoIt15z9ju-sFZpkP9x9_IUNtzYu_rgAgUs84rotTceGZPZuPFpe7IzkqFl8sc58Q7hNS5KXIxxaJpCm1l4ZVmyd7oN2KRyEtv32jmkibFpa82rr0vA?width=660&height=371&cropmode=none)
+![](/images/shikoku7o4.jpg)
 
-搭返JR[返高知](https://www.hidie.net/2020/05/day7_18.html)喇～  
+搭返JR[返高知](https://hidie.net/shikoku7o/)喇～  
 （byebye須崎）  
 
-![](https://ynpbtw.ch.files.1drv.com/y4m1Aubwz8nlRoukML2B4hcwv7nIScyGK27xbeDrq1H8wNpEJb1TdIH3H8FHzr0IBTqw0-tZ-sMrN2EmPTAtNK61OhxLOLkHKHtc92EWU8UghZPQ2FRaRlbTnehgMNnnLG7Zf8z5-XQVdlVFQYXQgDOOpLwEyo07BeyM-WWj11ffx-bqlREjmMGiIBuNfwKJx8y8gVNAA5IUtycvSTanmatKQ?width=660&height=372&cropmode=none)
+![](/images/shikoku7p.jpg)
 
-返到高知就食晚餐 @[土佐ノ國 二十四万石](https://www.hidie.net/2020/05/day7_31.html)  
+返到高知就食晚餐 @[土佐ノ國 二十四万石](https://hidie.net/shikoku7p/)  
 呢個旅程嘅最後一個晚餐喇  
 梗係有咁勁食咁勁啦！  
 乜都有嘅**皿！鉢！料！理！**  
@@ -131,15 +131,4 @@ google map寫行路23分鐘
 係要喪行市集  
 （殺呀～～～）  
   
-\-----------------------------------------------  
-  
-
-延伸閱讀：[食の四国ツアー (8D7N)](https://www.hidie.net/shikoku8d7n.html)  
-[Day1：香川（高松）](https://www.hidie.net/shikoku1.html)  
-[Day2：香川（高松、丸亀、琴平）](https://www.hidie.net/shikoku2.html)  
-[Day3：香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/shikoku3.html)  
-[Day4：香川（高松）→ 愛媛（松山）](https://www.hidie.net/shikoku4.html)  
-[Day5：愛媛（松山、宇和島）](https://www.hidie.net/shikoku5.html)  
-[Day6：愛媛（松山）→ 高知（高知）](https://www.hidie.net/shikoku6.html)  
-Day7：高知（高知、中村、須崎）  
-[Day8：高知（高知）→ 高松（高松空港）](https://www.hidie.net/shikoku8.html)
+{{<shikoku>}}

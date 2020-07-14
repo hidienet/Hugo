@@ -10,9 +10,9 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 嚟緊呢幾日開始用呢張**四國鐵路周遊券**（5日間用）  
 就明白咩叫「俾張pass我一定同你用到盡」 XDDD  
   
-高松 → 池谷 → [鳴門](https://www.hidie.net/2020/04/day3.html)  
+高松 → 池谷 → [鳴門](https://hidie.net/shikoku3a/)  
 
-![](https://zujula.ch.files.1drv.com/y4mKbGfzbDhTqU9DAvvkC0WyQi8VgVsARvLnAR_ea3vaHAavk1tMBvhvVBTc-owgG56Tb2QdUF3UtW5hTKz8ST1qNVKaLG8109_ds5AP-hK4P8w7EH2tgQPxuqKF3aWU8vwo9GQcjeXMG4k3TNj2vZbu2TQ86rPPFrTVzsCUdBvtffYqAjyhFTZgs1r9akxGOTRjp1NNgM3CYv2_prxdk4R5g?width=660&height=372&cropmode=none)
+![](/images/shikoku3a2.jpg)
 
 同JR有兩個香港人  
 落車嗰陣膽粗粗咁問一唔一齊share的士  
@@ -20,33 +20,33 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 而結果當然都齊齊搭啦  
 一齊share的士係平過同快過搭express bus嘛...  
 
-![](https://zujola.ch.files.1drv.com/y4mwe1BGEGzb44gXJxqsLurBrJNzIeo_u8OMQVzEaEA-55Tq16IGR3gb4YobeHN9yPXqQGuc19gLEs3IlMOSNdbwo3IhaJWMAmnY9y5wObmdN5HbsUgPkQW-fv9UftdYzXjFoyq8uZca6noTvSgBh9RlCuUcR_Cd7v5KPghB30PTbxUoxQNOlgHCQpSdaqOqXgFGu_q1QPD-SIs0-OxXhTPOA?width=660&height=372&cropmode=none)
+![](/images/shikoku3b.jpg)
 
 不過一早就去到未有渦潮睇嘅  
-食住等啦 @[うづ乃家 鯛魚飯](https://www.hidie.net/2020/04/day3_7.html)  
+食住等啦 @[うづ乃家 鯛魚飯](https://hidie.net/shikoku3b/)  
 去鳴門唔係唔食**鳴門鯛**呀化？  
 呢間餐廳仲要對正正條**大鳴門橋**  
 天氣好好呀，食魚食景都咁正～  
 
-![](https://zojtla.ch.files.1drv.com/y4mzlta7g2eRjr4Di6cOPSpnh1RbqU2RjjaxxuUdQAMozk-MetekEBx-DPsvOI3-ub3WKnawNTzCXP3TJOmte0egFd_Xf8xjpRgaxzFyh1ddc9Aez56OQ29FnKhcYQmBkGUDGOX76MNBHmcYWYa9S-hWJhqCEZJIkLLBaTC1gVKMT-XJpBTNtpMMmILtK_nDDG70dsszFWngNx3jlwjbb1Xtw?width=660&height=372&cropmode=none)
+![](/images/shikoku3c8.jpg)
 
-食飽飽行吓就冇咁眼瞓嘅 @[相ヶ浜](https://www.hidie.net/2020/04/day3_8.html)  
+食飽飽行吓就冇咁眼瞓嘅 @[相ヶ浜](https://hidie.net/shikoku3c/)  
 
-![](https://apjwla.ch.files.1drv.com/y4mbpw5PC2PEmVp8snuSgUWI6ReO1guvRmPKO1Gom2asJo1MSPYfajheYDE3pvaNh5shKdZgLXrmod5wLdLkaNcJwtU9FQz3TaW1cUxfKZ4fwarVjaXIWWNAt7y_kjppxvIeAHHHfzWGumT2EPbjqhx80U1hkPX6ItD4c22aWOXAF5QvvuZc3FBrTXUf9354eYYAsTcbsIxHjMf0ERkUERCtw?width=660&height=372&cropmode=none)
+![](/images/shikoku3d.jpg)
 
-[鳴門金時 焼き芋](https://www.hidie.net/2020/04/day3_69.html)  
+[鳴門金時 焼き芋](https://hidie.net/shikoku3d/)  
 行吓行吓又食吓嘢咁  
 鳴門有鳴門鯛仲有鳴門金時  
 即係蕃薯啦  
 咁呢度出㗎嘛咪買碌仔食吓囉  
 Mmm...  同平時香港買一大包嘅味道冇分別  
 
-![](https://aujnla.ch.files.1drv.com/y4mnpZ4hgfq9tfCIeZvMVktWW0zVlBb2phjjfCx0tVTKz53ztrhmWFHinObeCsIVQl38VwyBNEVJ5nyLlYQ2-BE9ob5UPE32n4-r5_OsWnosy2kRKnkxYucHjR2F5evy7vdb4vgBEMooYprBgoEzK1G_KNUNmMNwwBDb4GsLTmDWo_8EvHtdfWYqsHlfe_weQQF1uALGtbQ53Ai0efRyxp5Bw?width=660&height=372&cropmode=none)
+![](/images/shikoku3e4.jpg)
 
 行完下面行上面（係呀仲未夠鐘睇嘛）  
-响[お茶園展望台](https://www.hidie.net/2020/04/day3_37.html)望返落嚟嘅大鳴門橋同個海  
+响[お茶園展望台](https://hidie.net/shikoku3e/)望返落嚟嘅大鳴門橋同個海  
 
-![](https://aejqla.ch.files.1drv.com/y4mCOdtJMB--SfPbAVAF0yr0867QwHFWnX4WUC7pQKO88lhtZvtNzF4ttVmhhu8gbs0fNnk6jdUETIVoYRXal2bojzmwgyXXSrZ_GIdShJ6cgaQm8mMYhfrHIpZhkQJV56IhN6KQZqLLHU5Ty1Th6SLV49iFPlxb2NHHRr7vzBDRlFH2VNx2PuLyzp5R8IT6Dq-q9EIJn-QP5v0S-DnYizrpQ?width=660&height=372&cropmode=none)
+![](/images/shikoku3f6.jpg)
 
 （**大鳴門橋 渦の道**）  
 好喇終於差唔多時間  

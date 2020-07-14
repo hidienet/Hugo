@@ -35,4 +35,4 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel-日本関東東海道-相
 飽飽足太開心喇！  
 去瞓lu（聽日再嗨過）
 
-{{<kanagawa>}}
+{{< kanagawa >}}

@@ -68,15 +68,15 @@ OK啦～ 好過冇，滿足㗎喇
 加上**眉山ロープウェイ**閂咗  
 咁冇咩需要留戀搵嘢食好過啦  
 
-![](https://zpifig.ch.files.1drv.com/y4m-GfPdwyHR0KBlqlrElf8Z6rIAibdwlOUi6I0xQgnPnVNZIcMbd6AaVa57II6SK-JpAGyAe2lxsP-OIMYIdB5PH_TY-fy2w65sp5fTahpvsTMLYkImOkVDy92B-fSDBVUYfLYcfq_3JDfbGRqzKkga2WO5UYzH5kPQpb3SrM14nKtpLxF369ExA1RbJNSwQTVrhLw4rU8-oOBn126BMszpg?width=660&height=372&cropmode=none)
+![](/images/shikoku3h.jpg)
 
-食個late tea @[ラーメン東大](https://www.hidie.net/2020/04/day3_12.html)  
+食個late tea @[ラーメン東大](https://hidie.net/shikoku3h/)  
 徳島ラーメン就係味道濃郁  
 加埋隻生蛋就更更更香  
 
-![](https://zuikig.ch.files.1drv.com/y4m7ArEN_c6pifodA3mNrSNxlyVTJ-gImOv8Kg3dHLyL_KJFEfz-Sh_iD-W9bQMwmexwgsSAwg0D5l-gG-6LHPWNDNJu8Td0-uY28A3a-_n-ySFuW6I-82WoO8N6h8vcdW1VsBug2XFO3oYnCqz2KyIS0mvG2dbLbU5DD8UKotUpWXczD32BNWRwgi8teI_3LxTOE8JJUGbBeguxNuii2wD7Q?width=660&height=372&cropmode=none)
+![](/images/shikoku3i.jpg)
 
-chur完碗麵再行兩行就食晚餐@[一鴻](https://www.hidie.net/2020/04/day3_13.html)（哈哈哈）   
+chur完碗麵再行兩行就食晚餐@[一鴻](https://hidie.net/shikoku3i/)（哈哈哈）   
 响徳島係要必定要食**阿波尾鶏**嘅  
 呢隻就唔同擒日嗰隻  
 擒日嘅係好有𡁻頭嘅韌雞  
@@ -84,20 +84,11 @@ chur完碗麵再行兩行就食晚餐@[一鴻](https://www.hidie.net/2020/04/day
 呢餐呢係之前上網訂定嘅コース  
 所以好多嘢食好飽（撐撐撐）  
   
-最後由德島返**栗林**再行返酒店覺覺豬  
+![](/images/shikoku3i10.jpg)  
   
-  
+最後由德島返**栗林**再行返酒店覺覺豬    
 遠征完聽日再進擊啲帶行李移動！！！  
   
-\-----------------------------------------------  
-  
 
-延伸閱讀：[食の四国ツアー (8D7N)](https://www.hidie.net/shikoku8d7n.html)  
-[Day1：香川（高松）](https://www.hidie.net/shikoku1.html)  
-[Day2：香川（高松、丸亀、琴平）](https://www.hidie.net/shikoku2.html)  
-Day3：香川（高松）↔ 徳島（鳴門、徳島）  
-[Day4：香川（高松）→ 愛媛（松山）](https://www.hidie.net/shikoku4.html)  
-[Day5：愛媛（松山、宇和島）](https://www.hidie.net/shikoku5.html)  
-[Day6：愛媛（松山）→ 高知（高知）](https://www.hidie.net/shikoku6.html)  
-[Day7：高知（高知、中村、須崎）](https://www.hidie.net/shikoku7.html)  
-[Day8：高知（高知）→ 高松（高松空港）](https://www.hidie.net/shikoku8.html)
+{{<shikoku>}}
+  

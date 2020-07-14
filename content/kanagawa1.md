@@ -21,7 +21,7 @@ tags : [lifestyle - 逃離852, travel - 日本（関東東海道）・ 相模神
 响[三崎口駅](https://hidie.net/kanagawa1a/)落車後轉車  
 車飛係包埋三浦地區巴士  
 
-![](https://bv2f5g.ch.files.1drv.com/y4mLDFn-CbHUS2yauC7QhMLu1tqHC61Q2NswFSz3_gadfsSdmBmi8dJxn5rsSbdSzNN5YwX6TpAy_OJ0uYSnny-VOMIWXmnk_AfJC1kCOP85sCwlU3_e4fKNLNJIwjvuQUTmo0P8Zf69pVdlf7CVD08NkdnNxEXL95CLNsa0g707RnwPDAmXOjZV9IJ8kfAby0Dy2s3tsx3sybL0g2HTedLkA?width=660&height=371&cropmode=none)
+![](/images/kanagawa1b0.jpg)
 
 所以就咁一嘢過埋**城ヶ島大橋**  
 
@@ -60,7 +60,7 @@ tags : [lifestyle - 逃離852, travel - 日本（関東東海道）・ 相模神
 向後望係有座仔小小的望海[小桜観音](https://hidie.net/kanagawa1e/)  
 唔怪得沿路去好多疊石  
 
-![](https://n9eowq.ch.files.1drv.com/y4m1hplmoc933s6NQy0zFEPOEM1cR0bP0cUPC4ea7C43Ouzhi9l6EjTm6Ut3mRUxUYviujmaiffa6D--8opRUwUuU0lIe978ccxt8GBNrRNmvapJkjYT_InV3y4KpoDWYyljdIgoGlBjeu5ZtiRJkWrWsni0YeGaau1YFT67gInh-RnPfMOUxvzM9tvSlphEIk4guEcRNvhUxEF2EyCkhsBxQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa1f0.jpg)
 
 懶～  
 

@@ -15,18 +15,18 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 用pass就係一個站都唔會嘥  
 擒晚無尾班車先話行啫...  
 
-![](https://zxmaqa.ch.files.1drv.com/y4mX2mlg9plzla0EthBsbCCl2lH5OybDNzCo3VAeHiGNUYDQ8cUGZql0vYvVt2m9L8AHyBFoGumBL7Z3ocVRFstbJb1dneHaUhfd9WgnsjOfO-KzAUwd7Fb1ggCunz7Urjs_kduy2CAsiJkNgopSLfCddJZgp_9yOl9OoMvqmAp5BF3ir_FdZEBPtmwWc38oaXoTKU-TH02tCAKbaJt21niXA?width=660&height=371&cropmode=none)
+![](/images/shikoku4a.jpg)
 
-[讃岐うどん 上原屋本店](https://www.hidie.net/2020/04/day4.html)  
+[讃岐うどん 上原屋本店](https://hidie.net/shikoku4a/)  
 行公園前梗係要食嘢先啦  
 老店 x 栗林公園對面  
 食過就知道真係好好味  
 讃岐うどん 最高！！！  
 
-![](https://yxpeqg.ch.files.1drv.com/y4mzaff3_SfNV1jSncxrkYlfraIu3OA3yr9ZIpNr9qu5cqYH3rTWgimG45KuEY0dTk8je_Yle3hLHEfNgl5PStvwnFUTBjCpen8k729gyxgs-SBCmwzFvUIbuhYPQ9NQoTaWhznJ6vGYIt-m2HoIQdC9E0XDRV_X7CgcLSZaitjHMx3itLB9RVdppC6RoWt6nhFTUoAqXCm7cxTJi1MRu2l3A?width=660&height=372&cropmode=none)
+![](/images/shikoku4b.jpg)
 
 食飽就入呢個有四百年歷史  
-日本國之特別名勝嘅[栗林公園](https://www.hidie.net/2020/04/day4_14.html)行個圈喇  
+日本國之特別名勝嘅[栗林公園](https://hidie.net/shikoku4b/)行個圈喇  
 齋行一圈大概一粒鐘度啦  
 仲要係唔係詳細睇嗰種  
 無計啦要走喇～  

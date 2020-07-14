@@ -35,7 +35,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 然後佢就送咗呢兩張postcard連紙鶴仔畀我  
 話外國遊客先有㗎  
   
-哎吔，今日發生咩事[香港人](https://www.hidie.net/2020/04/day3.html)同日本人都唔覺得我係外國遊客嘅？？？  
+哎吔，今日發生咩事[香港人](https://hidie.net/shikoku3a/)同日本人都唔覺得我係外國遊客嘅？？？  
 
 ![](/images/shikoku3f4.jpg)
 

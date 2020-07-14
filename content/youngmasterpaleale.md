@@ -6,7 +6,7 @@ aliases: [ "/2020/05/cheers-classic-pale-ale.html" ]
 tags : [flavor - 飲！]
 ---
 
-呢排寫開松山，成日[少爺](https://www.hidie.net/2020/04/day4_46.html)前[少爺](https://www.hidie.net/2020/04/day4_18.html)後...  
+呢排寫開松山，成日[少爺](https://hidie.net/shikoku4h/)前[少爺](https://hidie.net/shikoku4i/)後...  
 
 ![](/images/youngmasterpaleale.jpg)
 
@@ -14,7 +14,7 @@ tags : [flavor - 飲！]
 
   
 
-爆香嘅麥、橘子同花香 \
+爆香嘅麥、橘子同花香  
 酒精5%唔會令人醉醺醺 
 
 細膩唔苦適合任何季節時間享用呢！

@@ -68,11 +68,11 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 唔係咁想迫迫夾就出返去行陣等食飯  
 
-![](https://bf0ruq.ch.files.1drv.com/y4mB1T9vedethun3prMs_cvkdw0niPPbCMlQEm2ec3PyrB43FVgXtwvb6m1ChY-Vhze_jMXgH0TZt7_dNernhETvFFbA0JGC8IgIsQEG9zR4Js4UscgqUEHz3jAdXxmQq6WCjhGJJrPSEQZzbGVILMKdfZ1fQvOMCLEQAkoUHR8IaIitMYuTItM3xoTXVYTltyMc-Ly2IcE6cAkOZ6YbAOLCw?width=660&height=371&cropmode=none)
+![](/images/kanagawa3f1.jpg)
 
 因為lunch卜咗[北鎌倉「円」](https://hidie.net/kanagawa3f/)食懷石料理  
 
-![](https://bv0luq.ch.files.1drv.com/y4mByzBmyMmaVMJywD_-9nj37FNLXMKU1ATVLv6hstkttCVlmNM-osJ3lVI49nb-M38xbae6TBeF2tErwjOyWOuK1S1cfoYWNvjK6eyV35PKcA75Gi4zBsJAzcXgUlF0dldJMKGG5_5rIoS3a6BfG7JlEJvOknRnrXAIXtbVyHPED1ivuuvWBiajNnVl0h8j6Tox0HaPsQ8PG2m8oYXMgdp1g?width=660&height=371&cropmode=none)
+![](/images/kanagawa3f6.jpg)
 
 揀咗**葉山牛懐石**set  
 有齊先附、向附、椀、葉山牛塩胡椒焼、焚合せ、揚物、和え物、赤出し、香物、御飯、甘味  

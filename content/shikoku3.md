@@ -21,6 +21,7 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 一齊share的士係平過同快過搭express bus嘛...  
 
 ![](https://zujola.ch.files.1drv.com/y4mwe1BGEGzb44gXJxqsLurBrJNzIeo_u8OMQVzEaEA-55Tq16IGR3gb4YobeHN9yPXqQGuc19gLEs3IlMOSNdbwo3IhaJWMAmnY9y5wObmdN5HbsUgPkQW-fv9UftdYzXjFoyq8uZca6noTvSgBh9RlCuUcR_Cd7v5KPghB30PTbxUoxQNOlgHCQpSdaqOqXgFGu_q1QPD-SIs0-OxXhTPOA?width=660&height=372&cropmode=none)
+
 不過一早就去到未有渦潮睇嘅  
 食住等啦 @[うづ乃家 鯛魚飯](https://www.hidie.net/2020/04/day3_7.html)  
 去鳴門唔係唔食**鳴門鯛**呀化？  
@@ -52,9 +53,9 @@ Mmm...  同平時香港買一大包嘅味道冇分別
 可以行入去喇  
 太早入嚟真係冇嘢好做又未有嘢睇嘛  
 
-![](https://aojola.ch.files.1drv.com/y4meA5FkKawe6_9LEHRkZ-VvUTDD6IkyF4ch4v0wuYJ9rckzbqpVPKiI16rWPVZQu4iJbODef93FruT7AvFzWG_I7b79_Du-pLQhxhmJW_Do0mRtPUlA0MEcrHklqds2ENaaGkJUCRyEVm7RPI7N_MNf2hnbp0H5xBdymoHt10OHmnWalGe79KHkLxAqjaXGVw9KVhGmLf3A8xvyxxgGGSxCA?width=660&height=372&cropmode=none)
+![](/images/shikoku3f.jpg)
 
-特特特登搭咁耐車就係要嚟睇[鳴門の渦潮](https://www.hidie.net/2020/04/day3_10.html)  
+特特特登搭咁耐車就係要嚟睇[鳴門の渦潮](https://hidie.net/shikoku3f/)  
 然而只係得小潮㖭咋  
 校啱時間入嚟都叫睇到吓咁囉  
 而且慳返唔駛再坐船落去睇近景  
@@ -62,9 +63,9 @@ OK啦～ 好過冇，滿足㗎喇
   
 睇完就搭巴士去**徳島**  
 
-![](https://zpinig.ch.files.1drv.com/y4mPYEvumPpPZ5z8QCUhLfgbjdKYhpWJBh7KE6uYRrBD0oWglJ3nt4ZnmZOKfeLZ4PZlAy5IaH7JMXK_CLI-OcM7XaljvvCwzDzoMF_by_9hWgIHkLjYNx6ZrisU50Biim_r5PWd0y-kJQm7sjgaW040-hVW1-rTPWUVDNLcd23G1scvrILr6nnVRTswGbPeEevr0h3LcTFjOu5-vIzPsrBgQ?width=660&height=372&cropmode=none)
+![](/images/shikoku3g.jpg)
 
-响[阿波おどり会館](https://www.hidie.net/2020/04/day3_11.html)兜咗個圈  
+响[阿波おどり会館](https://hidie.net/shikoku3g/)兜咗個圈  
 加上**眉山ロープウェイ**閂咗  
 咁冇咩需要留戀搵嘢食好過啦  
 

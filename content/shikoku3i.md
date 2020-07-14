@@ -42,7 +42,7 @@ chur完碗麵再行兩行就食晚餐
 ![](/images/shikoku3i5.jpg)
 
 前臂咁大隻  
-唔同[擒日嗰隻](https://www.hidie.net/2020/04/day2_1.html)好有𡁻頭嘅韌雞  
+唔同[擒日嗰隻](https://hidie.net/shikoku2d/)好有𡁻頭嘅韌雞  
 呢隻係完美熟成，所以保持肉嫩  
 然而雞味依然，加上表皮味道濃郁  
 唧埋すだち減返少少漏  

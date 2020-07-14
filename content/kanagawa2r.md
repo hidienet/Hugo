@@ -20,7 +20,7 @@ tags : [flavor - say cheese, flavor - 螞蟻族, travel-日本関東東海道-�
 ![](/images/kanagawa2r2.jpg)
 
 **LOTTE ロッテ 雪見だいふく 涼み抹茶**  
-好彩仲有呢隻內含啫喱嘅綠茶雪糕大福清返吓喉嚨   
+好彩仲有呢隻內含啫喱嘅綠茶雪糕大福清返吓喉嚨啦   
 
 
 {{<kanagawa>}}

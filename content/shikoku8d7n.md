@@ -27,16 +27,16 @@ tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、�
 [手打ちうどん 鶴丸](https://www.hidie.net/2020/04/day2_6.html)  
 
   
-#### Day3：[香川（高松）↔ 徳島（鳴門、徳島）](https://www.hidie.net/2017/08/day3.html)
-[香川高松（玉藻公園）→ 徳島鳴門](https://www.hidie.net/2020/04/day3.html)  
-[うづ乃家 - 鳴門鯛丼](https://www.hidie.net/2020/04/day3_7.html)  
-[相ヶ浜](https://www.hidie.net/2020/04/day3_8.html)  
-[鳴門金時 焼き芋](https://www.hidie.net/2020/04/day3_69.html)
-[お茶園展望台](https://www.hidie.net/2020/04/day3_37.html)  
-[大鳴門橋 渦の道 - 鳴門の渦潮](https://www.hidie.net/2020/04/day3_10.html)  
-[阿波おどり会館](https://www.hidie.net/2020/04/day3_11.html)  
-[ラーメン東大 - 徳島産黒醤油 醤油とんこつラーメン](https://www.hidie.net/2020/04/day3_12.html)  
-[骨付き阿波尾鶏 一鴻](https://www.hidie.net/2020/04/day3_13.html)  
+#### Day3：[香川（高松）↔ 徳島（鳴門、徳島）](https://hidie.net/shikoku3/)
+[香川高松（玉藻公園）→ 徳島鳴門](https://hidie.net/shikoku3a/)  
+[うづ乃家 - 鳴門鯛丼](https://hidie.net/shikoku3b/)  
+[相ヶ浜](https://hidie.net/shikoku3c/)  
+[鳴門金時 焼き芋](https://hidie.net/shikoku3d/)
+[お茶園展望台](https://hidie.net/shikoku3e/)  
+[大鳴門橋 渦の道 - 鳴門の渦潮](https://hidie.net/shikoku3f/)  
+[阿波おどり会館](https://hidie.net/shikoku3g/)  
+[ラーメン東大 - 徳島産黒醤油 醤油とんこつラーメン](https://hidie.net/shikoku3h/)  
+[骨付き阿波尾鶏 一鴻](https://hidie.net/shikoku3i/)  
 
   
 #### Day4：[香川（高松）→ 愛媛（松山）](https://hidie.net/shikoku4/)

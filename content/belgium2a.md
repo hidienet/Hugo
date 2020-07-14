@@ -115,7 +115,7 @@ O！係鳴槍呢！
 勁好天加上啲河同屋仔相輝映  
 就算零技術都係點影都靚  
 
-![](https://1.bp.blogspot.com/--9IloxSBGA8/XNqwNt7FYoI/AAAAAAAAJMM/rh8iIWcp7-0MAIF4nmwhShjpg)
+![](https://1.bp.blogspot.com/--9IloxSBGA8/XNqwNt7FYoI/AAAAAAAAJMM/rh8iIWcp7-0MAIF4nmwhShjpGLNPS_zKQCLcBGAs/s640/IMG_20190420_112828.jpg)
 
 又繼續城堡導賞團，打仗用品  
 

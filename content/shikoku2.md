@@ -6,27 +6,27 @@ aliases: [ "/2017/08/day2.html" ]
 tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
 ---
 
-一大朝早就由高松搭JR去[丸亀](https://www.hidie.net/2020/03/day2.html)  
+一大朝早就由高松搭JR去[丸亀](https://hidie.net/shikoku2a/)  
   
 丸亀係冇丸亀製麺呢間うどん店嘅  
 但係丸亀的確係讃岐うどん嘅発祥地  
 無唔嚟食嘅道理啫...  
 
-[![](https://zphwoq.ch.files.1drv.com/y4mEh6pvUj1xqnzVY2NAFvSAU910U1C9akCcSK6G1njUHgAUPp7_gGaN0jY4INQHuxzDdE2qvP6QUtaf5sJEbD6_YopKbte-iOfc61-B_zHaO7EycE_dHReBXP5WH3n3gH8cEhuKBl1DXL2HMjRNKxZdfl7DK6TVPVTbvo-D6834L40gjvPk2M5U5tc52uAdedtZLP1jOIlQ5LcjrA9ksCkMw?width=660&height=371&cropmode=none)](https://zphwoq.ch.files.1drv.com/y4mEh6pvUj1xqnzVY2NAFvSAU910U1C9akCcSK6G1njUHgAUPp7_gGaN0jY4INQHuxzDdE2qvP6QUtaf5sJEbD6_YopKbte-iOfc61-B_zHaO7EycE_dHReBXP5WH3n3gH8cEhuKBl1DXL2HMjRNKxZdfl7DK6TVPVTbvo-D6834L40gjvPk2M5U5tc52uAdedtZLP1jOIlQ5LcjrA9ksCkMw?width=660&height=371&cropmode=none)
+![](/images/shikoku2b.jpg)
 
-@[麺処綿谷](https://www.hidie.net/2020/03/day2_31.html)  
+@[麺処綿谷](https://hidie.net/shikoku2b/)  
 要食就食間老店  
 凍食熱食都係咁爽滑彈牙  
 食うどん配檸檬都係第一次（哈）  
 
-[![](https://zphsoq.ch.files.1drv.com/y4mwEfsrMhZgOxWa9o7P8pJ_hmP-QecI9qhHRFveaFV42yCdRkE17EMfMklpwaHLfA8Q66Os6Hd05tlnBrHmJRy-v69mICIZ7VGPsgjNFBiDmCG_JbaPGeVG2Kz7i4mqo6GbQjHv8IraQP58srEMsiKs-1g6p1h4ToFLmXNqsQTDf7SinZQQXJ4aBpu8_ASg86xdRiUN6yPnewU-gYqW69TDQ?width=660&height=371&cropmode=none)](https://zphsoq.ch.files.1drv.com/y4mwEfsrMhZgOxWa9o7P8pJ_hmP-QecI9qhHRFveaFV42yCdRkE17EMfMklpwaHLfA8Q66Os6Hd05tlnBrHmJRy-v69mICIZ7VGPsgjNFBiDmCG_JbaPGeVG2Kz7i4mqo6GbQjHv8IraQP58srEMsiKs-1g6p1h4ToFLmXNqsQTDf7SinZQQXJ4aBpu8_ASg86xdRiUN6yPnewU-gYqW69TDQ?width=660&height=371&cropmode=none)
+![](/images/shikoku2c.jpg)
 
 食完就行去現存12天守中  
 最細天守 x 最高石垣嘅：[丸亀城](https://www.hidie.net/2020/04/day2.html)  
 
-[![](https://aphtoq.ch.files.1drv.com/y4mllFNgftx9yPLfdrDADsND-T0VO3YxFr3RQnH6qp2itm98WlJHI4d-5AN-mnG-9EKmDraF3yQ-jjorR8z0K16G-15pu_4gNhHPA23zSZ3eupFbdY98H0MdVANj7EhwEf9j8WuhauNGSdu8xnc4XjBRgI5JHAd_V3h5RZ2xqqKY1oI-jIGxmlll69txIxZD7P5zVjbwbEF3RDAZKHPuHx27w?width=660&height=372&cropmode=none)](https://aphtoq.ch.files.1drv.com/y4mllFNgftx9yPLfdrDADsND-T0VO3YxFr3RQnH6qp2itm98WlJHI4d-5AN-mnG-9EKmDraF3yQ-jjorR8z0K16G-15pu_4gNhHPA23zSZ3eupFbdY98H0MdVANj7EhwEf9j8WuhauNGSdu8xnc4XjBRgI5JHAd_V3h5RZ2xqqKY1oI-jIGxmlll69txIxZD7P5zVjbwbEF3RDAZKHPuHx27w?width=660&height=372&cropmode=none)
+![](/images/shikoku2d.jpg)
 
-@[骨付鳥 一鶴](https://www.hidie.net/2020/04/day2_1.html)  
+@[骨付鳥 一鶴](https://hidie.net/shikoku2d/)  
 然後，雖然仲有啲飽不過都係要食嘢  
 因為丸亀除咗うどん出名之外就係骨付鳥  
 啲雞勁韌加上超香雞味  

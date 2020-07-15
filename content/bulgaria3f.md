@@ -7,9 +7,7 @@ tags : [travel - България (Bulgaria)]
 ---
 
 在[balkan bites](https://hidie.net/bulgaria2f/)時真的有特別留心聽講  
-
-（因為都是關於食的吧～）
-
+（因為都是關於食的吧～）  
 就說過「在攤檔」買「粉紅番茄」
 
 ![](/images/bulgaria3f1.jpg)

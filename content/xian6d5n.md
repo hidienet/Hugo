@@ -11,44 +11,43 @@ tags : [lifestyle - 逃離852, travel - 中國・西安]
 （完全不押韻）  
   
 **day 1**  
-[德发长饺子馆（钟鼓楼店）](http://www.hidie.net/2014/07/day1.html)  
-[遍地古蹟（市內）](http://www.hidie.net/2014/07/day1_8.html)  
-[西安大清真寺](http://www.hidie.net/2014/07/day1_9.html)  
-[泡饃 - 世上最難食的食物之一](http://www.hidie.net/2014/07/day1_10.html)  
-[夜市之齋看不吃篇](http://www.hidie.net/2014/07/day1_11.html)  
+[德发长饺子馆（钟鼓楼店）](https://hidie.net/xian1a/)  
+[遍地古蹟（市內）](https://hidie.net/xian1b/)  
+[西安大清真寺](https://hidie.net/xian1c/)  
+[泡饃 - 世上最難食的食物之一](https://hidie.net/xian1d/)  
+[夜市之齋看不吃篇](https://hidie.net/xian1e/)  
   
 **day 2**  
-[罐頭夾饃 & 農家菜走地雞](http://www.hidie.net/2014/07/day2.html)  
-[壺口瀑布](http://www.hidie.net/2014/07/day2_15.html)  
+[罐頭夾饃 & 農家菜走地雞](https://hidie.net/xian2a/)  
+[壺口瀑布](https://hidie.net/xian2b/)  
   
 **day 3**  
-[醬肉夾饃](http://www.hidie.net/2014/07/day3.html)  
-[華清池](http://www.hidie.net/2014/07/day3_17.html)  
-[秦始皇兵馬俑](http://www.hidie.net/2014/07/day3_18.html)  
-[終於有啖好食](http://www.hidie.net/2014/07/day3_21.html)  
+[醬肉夾饃](https://hidie.net/xian3a/)  
+[華清池](https://hidie.net/xian3b/)  
+[秦始皇兵馬俑](https://hidie.net/xian3c/)  
+[終於有啖好食](https://hidie.net/xian3d/)  
   
 **day 4**  
-[漢陽陵](http://www.hidie.net/2014/07/day3_22.html)  
-
-[碑林](http://www.hidie.net/2014/07/day3_23.html)  
-[書院門](http://www.hidie.net/2014/07/day3_24.html)  
-[西安城牆](http://www.hidie.net/2014/07/day3_25.html)  
-[同盛祥](http://www.hidie.net/2014/07/day4.html)  
-[花生酥糖@回民街](http://www.hidie.net/2014/07/day4_30.html)  
+[漢陽陵](https://hidie.net/xian4a/)  
+[碑林](https://hidie.net/xian4b/)  
+[書院門](https://hidie.net/xian4c/)  
+[西安城牆](https://hidie.net/xian4d/)  
+[同盛祥](https://hidie.net/xian4e/)  
+[花生酥糖@回民街](https://hidie.net/xian4f/)  
   
 **day 5**  
-[華山](http://www.hidie.net/2014/07/day5.html)  
-[老孙家](http://www.hidie.net/2014/08/day5.html)  
+[華山](https://hidie.net/xian5a/)  
+[老孙家](https://hidie.net/xian5b/)  
   
 **day 6**  
-[豆花豬血麵、餃子、丸子](http://www.hidie.net/2014/08/day6.html)  
-[半坡遺址](http://www.hidie.net/2014/08/day6_5.html)  
-[對味得要encore](http://www.hidie.net/2014/08/day6encore.html)  
+[豆花豬血麵、餃子、丸子](https://hidie.net/xian6a/)  
+[半坡遺址](https://hidie.net/xian6b/)  
+[對味得要encore](https://hidie.net/xian6c/)  
   
 **番外**  
-[oppa xian style](http://www.hidie.net/2014/07/oppa-xian-style.html)  
+[oppa xian style](https://hidie.net/xianoppa/)  
 
-[![](https://2.bp.blogspot.com/-UeTIUE3OKSE/XERmgTJSwUI/AAAAAAAAGRQ/2YKkKS_LbB09Z5UB4yk0lCHCufyTUnPRgCLcBGAs/s640/14804392606_ce5732e874_z.jpg)](https://2.bp.blogspot.com/-UeTIUE3OKSE/XERmgTJSwUI/AAAAAAAAGRQ/2YKkKS_LbB09Z5UB4yk0lCHCufyTUnPRgCLcBGAs/s1600/14804392606_ce5732e874_z.jpg)
+![](/images/xian6d5n.jpg)
 
   
 

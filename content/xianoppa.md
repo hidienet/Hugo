@@ -8,11 +8,11 @@ tags : [travel - 中國・西安]
 
 「著盔甲吖笨」  
 
-[![](https://3.bp.blogspot.com/-SGfoTQlQk0M/XEQRKjXjNhI/AAAAAAAAGHk/tfpjXlnznhwJpeNsTKQmtix4peO5o95jgCLcBGAs/s640/14710982526_34f00d610c_z.jpg)](https://3.bp.blogspot.com/-SGfoTQlQk0M/XEQRKjXjNhI/AAAAAAAAGHk/tfpjXlnznhwJpeNsTKQmtix4peO5o95jgCLcBGAs/s1600/14710982526_34f00d610c_z.jpg)
+![](/images/xianoppa.jpg)
 
 連fashion model都是兵馬俑人形  
 超搞笑呀哈哈哈～  
   
 \-----------------------------------------------  
   
-延伸閱讀：[熱遊西安（6D5N）](http://www.hidie.net/2014/08/6d5n.html)
+延伸閱讀：[熱遊西安（6D5N）](https://hidie.net/xian6d5n/)

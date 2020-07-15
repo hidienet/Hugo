@@ -12,19 +12,19 @@ tags : [travel - 中國・西安]
 捱了5個小時就嚷著要落山  
 辛！苦！死！  
 
-[![](https://4.bp.blogspot.com/-pvP9EujfwsE/XEQUKyFGPeI/AAAAAAAAGJc/lmeQkYSEHssGN8QBPy91wxNAiez6m6p4gCLcBGAs/s640/14762643726_0d33ddb648_z.jpg)](https://4.bp.blogspot.com/-pvP9EujfwsE/XEQUKyFGPeI/AAAAAAAAGJc/lmeQkYSEHssGN8QBPy91wxNAiez6m6p4gCLcBGAs/s1600/14762643726_0d33ddb648_z.jpg)
+![](/images/xian5a1.jpg)
 
 金鎖關，一大條紅布鏈加鎖頭  
 
-[![](https://4.bp.blogspot.com/-NbL3tap9sw0/XEQUQbV9cYI/AAAAAAAAGJk/KVQn8pcE75IkO6X4nJ11u76zh3fShKwOwCLcBGAs/s640/14785636355_90711cb08b_z.jpg)](https://4.bp.blogspot.com/-NbL3tap9sw0/XEQUQbV9cYI/AAAAAAAAGJk/KVQn8pcE75IkO6X4nJ11u76zh3fShKwOwCLcBGAs/s1600/14785636355_90711cb08b_z.jpg)
+![](/images/xian5a2.jpg)
 
 山  
 
-[![](https://4.bp.blogspot.com/-sKYpDGHWY6M/XEQUVV7NgII/AAAAAAAAGJo/XQ4xRFZjqqcBVBEPc7MGYLtOzMLKcKtPwCLcBGAs/s640/14805483343_d0c26a49f2_z.jpg)](https://4.bp.blogspot.com/-sKYpDGHWY6M/XEQUVV7NgII/AAAAAAAAGJo/XQ4xRFZjqqcBVBEPc7MGYLtOzMLKcKtPwCLcBGAs/s1600/14805483343_d0c26a49f2_z.jpg)
+![](/images/xian5a3.jpg)
 
 又是山  
 
-[![](https://1.bp.blogspot.com/-PjEhEVh6zr0/XEQUaHrl4FI/AAAAAAAAGJs/DCdW_dDp4QQ7IusjlGKNHe0BfN4hXLVJQCLcBGAs/s640/14785280472_9ddb661f25_z.jpg)](https://1.bp.blogspot.com/-PjEhEVh6zr0/XEQUaHrl4FI/AAAAAAAAGJs/DCdW_dDp4QQ7IusjlGKNHe0BfN4hXLVJQCLcBGAs/s1600/14785280472_9ddb661f25_z.jpg)
+![](/images/xian5a4.jpg)
 
 還是山  
   
@@ -40,4 +40,4 @@ tags : [travel - 中國・西安]
   
 \-----------------------------------------------  
   
-延伸閱讀：[熱遊西安（6D5N）](http://www.hidie.net/2014/08/6d5n.html)
+延伸閱讀：[熱遊西安（6D5N）](https://hidie.net/xian6d5n/)

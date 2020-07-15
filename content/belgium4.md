@@ -15,7 +15,7 @@ tags : [travel - België & Nederland (Belgium & Netherlands)]
 ![](/images/belgium4z2.jpg)
 
 冇去到都幾東吓嘅Liège（列日）  
-只係近近地嚟**Leuven（ ~魯芬~ 魯汶）**  
+只係近近地嚟**Leuven（魯汶）**  
 
 ![](/images/belgium4z3.jpg)
 

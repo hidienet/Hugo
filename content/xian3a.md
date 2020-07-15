@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹, travel - 中國・西安]
 （不用搭幾個鐘車）  
 可以選擇好些的攤檔  
 
-[![](https://farm3.staticflickr.com/2925/14446083988_7343a3d38d_z.jpg)](https://farm3.staticflickr.com/2925/14446083988_7343a3d38d_z.jpg)
+![](/images/xian3a.jpg)
 
 但也只是吃饃包包（翻白眼）  
 煮肉跟醃肉口味  
@@ -25,4 +25,4 @@ tags : [flavor - 行膳積腹, travel - 中國・西安]
   
 \-----------------------------------------------  
   
-延伸閱讀：[熱遊西安（6D5N）](http://www.hidie.net/2014/08/6d5n.html)
+延伸閱讀：[熱遊西安（6D5N）](https://hidie.net/xian6d5n/)

@@ -65,7 +65,7 @@ tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香
 超新鮮嘅食材簡單調理就已經好好味  
 蠔肉又香又嫩滑，用少少醋吊味就已經完美  
 
-![](/images/shikoku1a0.jpg)
+![](/images/shikoku1a9.jpg)
 
 大魚大肉咁哈哈  
 

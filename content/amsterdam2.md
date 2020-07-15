@@ -8,7 +8,7 @@ tags : [travel - België & Nederland (Belgium & Netherlands)]
 
 朝早八點幾已經响火車上（捽眼）  
 
-![](https://mq8bzw.ch.files.1drv.com/y4mfziihTQSRN_MSHsJi9BcLd2jJ154JFKOf0WG1nsYSzU5E4GzBIFYvc_ZUReLbiDjsMpx9NLjd9EFb5meJ8wDlktT7Tqoh1BisyKGAsu07iZMSnn8fqAjlEFXSuz_ceXYCIHGbwIQe5AC6KV5dYrDwwvbpOQJfOEINcLIJfw2fU_72YkjTzWSrtGPNJ6egbGDKv0prTn4Qv3IPDafLJT3mw?width=660&height=495&cropmode=none)
+![](/images/amsterdam2z1.jpg)
 
 望住一出城市就一定見到嘅一望無際無敵平原景  
 

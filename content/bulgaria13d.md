@@ -12,7 +12,6 @@ tags : [travel - България (Bulgaria)]
 
   
   
-
 ![](/images/bulgaria13d2.jpg)
 
   

@@ -6,10 +6,10 @@ aliases: [ "/2014/07/day2.html" ]
 tags : [flavor - 行膳積腹, travel - 中國・西安]
 ---
 
-雖然[泡饃](http://www.hidie.net/2014/07/day1_10.html)真的非常難食  
+雖然[泡饃](https://hidie.net/xian1d/)真的非常難食  
 不過不浸在湯裡的都OK  
 
-[![](https://1.bp.blogspot.com/-Y937M_gPfBk/XEM8hxI1W_I/AAAAAAAAF8E/TLsT1ia2-Jsk4595pHScFun7gQfBM1wCwCLcBGAs/s640/14625095093_e2e5bc1081_z.jpg)](https://1.bp.blogspot.com/-Y937M_gPfBk/XEM8hxI1W_I/AAAAAAAAF8E/TLsT1ia2-Jsk4595pHScFun7gQfBM1wCwCLcBGAs/s1600/14625095093_e2e5bc1081_z.jpg)
+![](/images/xian2a.jpg)
 
 加上五六點起來出發  
 附近只有這早餐檔有開  
@@ -18,7 +18,7 @@ tags : [flavor - 行膳積腹, travel - 中國・西安]
 裡面放甚麼都可以這樣  
 然後就出發～～～  
 
-[![](https://2.bp.blogspot.com/-7EXnfW6fH5c/XEM8oMKv2rI/AAAAAAAAF8I/lsVSNHFrUKQ3MD_FE-OLl1TlR8AlQ8bEQCLcBGAs/s640/14605039455_b8c8667e8a_z.jpg)](https://2.bp.blogspot.com/-7EXnfW6fH5c/XEM8oMKv2rI/AAAAAAAAF8I/lsVSNHFrUKQ3MD_FE-OLl1TlR8AlQ8bEQCLcBGAs/s1600/14605039455_b8c8667e8a_z.jpg)
+![](/images/xian2a1.jpg)
 
 車程6小時（來回就是12小時沒錯）  
 中途的午餐  
@@ -38,4 +38,4 @@ tags : [flavor - 行膳積腹, travel - 中國・西安]
   
 \-----------------------------------------------  
   
-延伸閱讀：[熱遊西安（6D5N）](http://www.hidie.net/2014/08/6d5n.html)
+延伸閱讀：[熱遊西安（6D5N）](https://hidie.net/xian6d5n/)

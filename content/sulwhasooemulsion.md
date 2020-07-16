@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 但一set就是要這樣用  
 要best result的話就乖乖的買乖乖的用（真好騙）  
 
-[![](https://4.bp.blogspot.com/-e5B2gxVbRi4/XCdlISamaLI/AAAAAAAACq4/rteTyQdmYgkvu9FUwYQ53DP9roT7a19MQCLcBGAs/s640/35.jpg)](https://4.bp.blogspot.com/-e5B2gxVbRi4/XCdlISamaLI/AAAAAAAACq4/rteTyQdmYgkvu9FUwYQ53DP9roT7a19MQCLcBGAs/s1600/35.jpg)
+![](/images/sulwhasooemulsion.jpg)
 
 不過要敷玉容的話就要用至emulsion才apply  
 （「爲了敷mask，你可以去到幾盡？」XD）  

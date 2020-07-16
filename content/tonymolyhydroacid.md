@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 hyaluronic acid 透明質酸，保濕成分是也  
 
-[![](https://2.bp.blogspot.com/-bWZcD9oQj4A/XC4JAhCIs-I/AAAAAAAAD20/56_Sp1SbpKI9hYs_QSF295HvrPpBb0OPQCLcBGAs/s640/66.jpg)](https://2.bp.blogspot.com/-bWZcD9oQj4A/XC4JAhCIs-I/AAAAAAAAD20/56_Sp1SbpKI9hYs_QSF295HvrPpBb0OPQCLcBGAs/s1600/66.jpg)
+![](/images/tonymolyhydroacid.jpg)
 
 （包裝袋左下乾到裂開的樣子好搞笑）XD  
 面膜本身帶超淡的香味  

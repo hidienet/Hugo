@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 黑頭租霸，投降吧！你們已經被我們的大軍重重包圍了！  
 
-[![](https://2.bp.blogspot.com/-HqmEhUJ0an4/XCiJZWGwMNI/AAAAAAAADN8/EcZd2uRxnxc6pOc0XnzUnsUmFNc1r_r_gCLcBGAs/s640/61.jpg)](https://2.bp.blogspot.com/-HqmEhUJ0an4/XCiJZWGwMNI/AAAAAAAADN8/EcZd2uRxnxc6pOc0XnzUnsUmFNc1r_r_gCLcBGAs/s1600/61.jpg)
+![](/images/poretol.jpg)
 
 這是我最最最喜歡的踢走黑頭的massage gel  
 透明的顏色，沒有難聞的氣味  

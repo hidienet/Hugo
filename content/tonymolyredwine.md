@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 飲紅酒對皮膚好我明白  
 但敷紅酒可以緊緻肌膚我就第一次聽  
 
-![](https://1.bp.blogspot.com/-I_YZZ55QokU/XC316tdp0AI/AAAAAAAAD0g/uqoINJ7UHSML2F9Lq9-ZjfcQ0fpdYcCbgCLcBGAs/s640/46.jpg)
+![](/images/tonymolyredwine.jpg)
 
 面膜不是紅酒味食淡人工花香味  
 白色薄身不織布加透明精華  

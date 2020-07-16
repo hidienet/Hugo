@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, lifestyle - rosy rosy]
 
 嘴裡吐出甜蜜的玫瑰（yo～）  
 
-[![](https://1.bp.blogspot.com/-9sc-_-q6l8Q/XCiwbuZ-m2I/AAAAAAAADcM/7BRoaq-muHQbjJ_6sYLDEEDE6Pxn0HmqwCLcBGAs/s640/03.jpg)](https://1.bp.blogspot.com/-9sc-_-q6l8Q/XCiwbuZ-m2I/AAAAAAAADcM/7BRoaq-muHQbjJ_6sYLDEEDE6Pxn0HmqwCLcBGAs/s1600/03.jpg)
+![](/images/evie.jpg)
 
 每次用都會有著天堂與地獄的感覺  
 天堂感來自又香又甜的保加利亞玫瑰味  

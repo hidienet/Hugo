@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 像芝麻糊一樣的面膜  
 黑黑的居然跟我說是美白的？  
 
-[![](https://4.bp.blogspot.com/-R8qAvCrQe0g/XCiosjuQbFI/AAAAAAAADZs/ur_LeIf6hlYphU1V9Os4DCeJrGIU0yaCACLcBGAs/s640/05.jpg)](https://4.bp.blogspot.com/-R8qAvCrQe0g/XCiosjuQbFI/AAAAAAAADZs/ur_LeIf6hlYphU1V9Os4DCeJrGIU0yaCACLcBGAs/s1600/05.jpg)
+![](/images/givenchyparfait.jpg)
 
 哈哈，小小裡裝的芝麻糊面膜  
 所謂得芝麻糊，其實texture像芝麻湯圓裡的餡料  

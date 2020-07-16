@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 溫和地byebye黑頭  
 
-[![](https://3.bp.blogspot.com/-09YjHlouNuo/XC4RVLiiTgI/AAAAAAAAD68/c_QhxCqp6iscpoxdmy8mUr737olsCsKKgCLcBGAs/s640/w.jpg)](https://3.bp.blogspot.com/-09YjHlouNuo/XC4RVLiiTgI/AAAAAAAAD68/c_QhxCqp6iscpoxdmy8mUr737olsCsKKgCLcBGAs/s1600/w.jpg)
+![](/images/tonymolyeggbh.jpg)
 
 洗面後以這oil gel按摩鼻  
 像生蛋白加橙x白粒子  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 臨床實驗證明：並非所有女生都喜歡燕窩  
 
-[![](https://3.bp.blogspot.com/-guhLgs9b5SY/XChwJYn_LwI/AAAAAAAAC90/6hm49aQX-hQYxAGSAd2pZ51Wk80f43ZFQCLcBGAs/s640/04.jpg)](https://3.bp.blogspot.com/-guhLgs9b5SY/XChwJYn_LwI/AAAAAAAAC90/6hm49aQX-hQYxAGSAd2pZ51Wk80f43ZFQCLcBGAs/s1600/04.jpg)
+![](/images/chanyeejainest.jpg)
 
 其實也不是不喜歡燕子口水  
 （絕對不介意人家送我燕盞的！）  

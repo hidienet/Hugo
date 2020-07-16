@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 V面V面，我要下巴尖到插死人，嘿嘿～  
 
-[![](https://2.bp.blogspot.com/-m5pAfMn6e9o/XDBixEsje7I/AAAAAAAAEHY/HjHSBQBLaDUqg_FUQKuo9Q1f78ikangFACLcBGAs/s640/84.jpg)](https://2.bp.blogspot.com/-m5pAfMn6e9o/XDBixEsje7I/AAAAAAAAEHY/HjHSBQBLaDUqg_FUQKuo9Q1f78ikangFACLcBGAs/s1600/84.jpg)
+![](/images/supermoistfirm.jpg)
 
 一拿出來精華就滴滴滴的漏出來有點狼狽  
 面膜也是整塊水水的（精華不用錢的嗎？）  

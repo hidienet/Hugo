@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 最愛用這瓶來對付黑眼圈跟眼紋  
 
-[![](https://2.bp.blogspot.com/-TlMRmtrZdGU/XChyFAFSzSI/AAAAAAAAC_Q/FyVzZyApwosdgmXJSVST4XRALKpKhyFNwCLcBGAs/s640/15.jpg)](https://2.bp.blogspot.com/-TlMRmtrZdGU/XChyFAFSzSI/AAAAAAAAC_Q/FyVzZyApwosdgmXJSVST4XRALKpKhyFNwCLcBGAs/s1600/15.jpg)
+![](/images/lacollineeye.jpg)
 
 別小看這小小的一瓶  
 價格雖然有點高  

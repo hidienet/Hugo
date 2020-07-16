@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 清潔去痘一take過  
 
-[![](https://4.bp.blogspot.com/-EoGFamSrRdE/XC4GEmJnHlI/AAAAAAAAD04/Ylr3aHG6qLARSIyTPEDgym065rSI1J3QACLcBGAs/s640/48.jpg)](https://4.bp.blogspot.com/-EoGFamSrRdE/XC4GEmJnHlI/AAAAAAAAD04/Ylr3aHG6qLARSIyTPEDgym065rSI1J3QACLcBGAs/s1600/48.jpg)
+![](/images/tonymolyteatree.jpg)
 
 打開包裝袋就已經有陣茶樹油味飄出  
 （不知道是甚麼氣味就去body shop拿枝精油聞一下）  

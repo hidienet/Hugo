@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 像一個個迷你版的泰式草球．．．  
 
-[![](https://1.bp.blogspot.com/-SMT2zHu1_Wg/XCQ9g3RuOdI/AAAAAAAAB6U/e8w5znb-d8cMdXT5at2bjWh_X0fwkGTDwCLcBGAs/s640/12.jpg)](https://1.bp.blogspot.com/-SMT2zHu1_Wg/XCQ9g3RuOdI/AAAAAAAAB6U/e8w5znb-d8cMdXT5at2bjWh_X0fwkGTDwCLcBGAs/s1600/12.jpg)
+![](/images/doorganicbag.jpg)
 
 以綿布包住米、米油、海泥等等  
 裡裡外外全都是有機的  

@@ -8,12 +8,10 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 一白，真能遮三醜嗎？  
 
-[![](https://2.bp.blogspot.com/-a0B6n8Q82ck/XCOPiTawA1I/AAAAAAAAB1w/y43Vo0aih6oQZ42dDtptTWw9M_rhRoHYgCLcBGAs/s640/14.jpg)](https://2.bp.blogspot.com/-a0B6n8Q82ck/XCOPiTawA1I/AAAAAAAAB1w/y43Vo0aih6oQZ42dDtptTWw9M_rhRoHYgCLcBGAs/s1600/14.jpg)
+![](/images/shuuemurawhite.jpg)
 
-包裝是一個硬膠套套著大硬紙盒   
-
-再內藏八個小紙盒，而紙盒裡是每枝獨立鐵皮牙膏裝的mask tube
-
+包裝是一個硬膠套套著大硬紙盒  
+再內藏八個小紙盒，而紙盒裡是每枝獨立鐵皮牙膏裝的mask tube  
 包裝也太多餘、太不環保了吧
 
   

@@ -11,7 +11,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 雪花秀是其一    
 
-[![](https://4.bp.blogspot.com/-Q7nifHFQ99w/XCd2_1gUi5I/AAAAAAAACts/GtmAnizCNYYYcaImbvpSxrhf3wXP95aYQCLcBGAs/s640/56.jpg)](https://4.bp.blogspot.com/-Q7nifHFQ99w/XCd2_1gUi5I/AAAAAAAACts/GtmAnizCNYYYcaImbvpSxrhf3wXP95aYQCLcBGAs/s1600/56.jpg)
+![](/images/sulwhasoomakeoff.jpg)
 
 cleansing oil這堆全是sample  
 本身麻麻cleansing oil的我   

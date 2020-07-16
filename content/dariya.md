@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 我要化妝敷mask呀！頭髮們不要纏住我好嗎？  
 
-[![](https://4.bp.blogspot.com/-iOwsf0wK3YM/XCOSCCfmL5I/AAAAAAAAB3A/xHaEfegExGEWpdtFOwEvr97NFo2H4gb4QCLcBGAs/s640/23.jpg)](https://4.bp.blogspot.com/-iOwsf0wK3YM/XCOSCCfmL5I/AAAAAAAAB3A/xHaEfegExGEWpdtFOwEvr97NFo2H4gb4QCLcBGAs/s1600/23.jpg)
+![](/images/dariya.jpg)
 
 用夾的話，會在頭髮留有痕跡  
 而且有時會被夾痛 T-T  

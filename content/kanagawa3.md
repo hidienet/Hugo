@@ -79,17 +79,17 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 **葉山牛**係神奈川縣三浦半島嘅黑毛和牛  
 一年大概只有兩百隻產量，算係數量稀少嘅品種喔！  
 
-![](https://q1wruq.ch.files.1drv.com/y4mc2o_KplDztZcqOKvTLlF6q_Hb0hX0munT9WbZeMnqrfBC8axi-a3U4LK5z8S58A2xIii-KTzAkW0CVusOA6M0jz0YAULoI8VpQbZWIYx6BMKqFA__xplFP8ejskwSeo86uWe1s50SBHO1PIGvTCt5S3gFOi1BXJ-v6nq-EI9J18R7IFNf3LBunT2yuXTpPNquK4-TdfqFjflo58LHiuTMw?width=660&height=371&cropmode=none)
+![](/images/kanagawa3g2.jpg)
 
 食飽搭車去**鎌倉**  
 
-![](https://bf14ra.ch.files.1drv.com/y4maPCV4hN21D6D3H3SAAAZaj1i0lsfL-P2QbGboAxPCgeQOaAOWnFzQ0u1JLpM8Exf4cK2ByxFJELQRRFoTva000xHxsIQUU1aqOvxOVRcPRNiUXUU7SsqziOm31cGQ9SoEDo-4UaLckxaV4EdMbzQU-RrF6XLIK3ra-WZLwsN8vLeL-yoz5KqtfTHgSsurqHzH3veNxZh1lNsxE4TuG9nEA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3g3.jpg)
 
 去八幡宮由此進  
 
-![](https://q1wuuq.ch.files.1drv.com/y4mhRMnCI3nkwWm7A-JLrzbS5rt1ZV3YSJFLqfThBhTn0Pjfe9NL1l7fRyCeIDXH5Bnf7beXsQXVmrXVYJmpGgy2CxEmEVqzn2M-8CJvXZDMYb2VKkFHxViRm3DMsIVzREyI9-Sgaa91-xhQelL2JwzcboKv2lT5kLTNRia99b3RqGsxyHDOcwOO9U_B3E0UZU-tAIzjxaDvi4eGisG0CbRCQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa3g5.jpg)
 
-**小町通り**  
+[小町通り](https://hidie.net/kanagawa3g/)  
 
 ![](https://af0nuq.ch.files.1drv.com/y4mzs_jguPXHyZ-EfU2vn1B-71wehkY2ecwLi6oIL7Lji1HtIywgatYoirX6w-qvPX-s8_WHvYJmxlSsUKYL6ZBad67-zNb8m75GXxOyxyji4HdseCuDSxbVg3ZR5N03GjNAlDPJ8b3F5sKqZz0LWQVA5C6-R4DyvWQ1oLKaXHqTjGR4MhFRdHw06JqWG-ykE1Sd8ttSRHm4ssPYi1PX-r-xw?width=660&height=371&cropmode=none)
 

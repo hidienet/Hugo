@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 一直也好好地養護著眼睫毛  
 
-[![](https://4.bp.blogspot.com/-fcYC8n4o_-k/XCOTZGJHG0I/AAAAAAAAB3s/svaQd7EuJ8M__vk5Kyqc_QTSr63Qj17BACLcBGAs/s640/29.jpg)](https://4.bp.blogspot.com/-fcYC8n4o_-k/XCOTZGJHG0I/AAAAAAAAB3s/svaQd7EuJ8M__vk5Kyqc_QTSr63Qj17BACLcBGAs/s1600/29.jpg)
+![](/images/dhceyelash.jpg)
 
 結果就是有點強有點濃也有點長  
 不論上下眼睫毛都是  

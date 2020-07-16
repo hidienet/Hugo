@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 下午茶吃甜點，超sweet  
 
-[![](https://2.bp.blogspot.com/-nUGH6c1sMlE/XChxj-YrusI/AAAAAAAAC-8/mMTCVeO2dJ831P2PDdMMIFouCg6xcJTkACLcBGAs/s640/13.jpg)](https://2.bp.blogspot.com/-nUGH6c1sMlE/XChxj-YrusI/AAAAAAAAC-8/mMTCVeO2dJ831P2PDdMMIFouCg6xcJTkACLcBGAs/s1600/13.jpg)
+![](/images/bolognetoast.jpg)
 
 麵包是danish bread  
 酥脆的外層有超多層  

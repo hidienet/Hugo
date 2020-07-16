@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 如果不是半價的價錢買，我應該不會試    
 
-[![](https://2.bp.blogspot.com/-OVaHnUWeggY/XCRURZzkYYI/AAAAAAAACDc/BENRjmFapVMtndD6PxkmJn2OSql_BflXACLcBGAs/s640/7.jpg)](https://2.bp.blogspot.com/-OVaHnUWeggY/XCRURZzkYYI/AAAAAAAACDc/BENRjmFapVMtndD6PxkmJn2OSql_BflXACLcBGAs/s1600/7.jpg)
+![](/images/dhcretino.jpg)
 
 可是若果真的沒有這次機遇  
 就不知道這東西又便宜又好用   

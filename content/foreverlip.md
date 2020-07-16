@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 甚少用添加唇色的產品，護唇的卻超常用   
 
-[![](https://4.bp.blogspot.com/-7NGqD7Oz5LI/XCRCVUKhNPI/AAAAAAAAB8I/R-IcKKETkLEQcXaMmm3E-frr1V-BLinvgCLcBGAs/s640/26.jpg)](https://4.bp.blogspot.com/-7NGqD7Oz5LI/XCRCVUKhNPI/AAAAAAAAB8I/R-IcKKETkLEQcXaMmm3E-frr1V-BLinvgCLcBGAs/s1600/26.jpg)
+![](/images/foreverlip.jpg)
 
 這枝很潤，潤得令令的像塗上唇彩一樣  
 令我本身紅紅的唇色反光得更紅  

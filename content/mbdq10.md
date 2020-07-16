@@ -6,11 +6,13 @@ aliases: [ "/2013/12/masque-q10.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-Q10全譯是Coenzyme Q10，Coenzyme是輔脢，乃酵素的一種  
+Q10全譯是Coenzyme Q10  
+Coenzyme是輔脢，乃酵素的一種  
 它不是礦物質跟氨基酸但人體內的細胞不能缺少得物質  
-作為保養品（服用）的話，臨床研究指可以強化心臟降血壓治療牙周病抗氧化減肥等  
+作為保養品（服用）的話  
+臨床研究指可以強化心臟降血壓治療牙周病抗氧化減肥等  
 
-[![](https://3.bp.blogspot.com/-KGTDFZTU6i4/XCdiYNf_LBI/AAAAAAAACpk/HTjFvBAC9H8PxtWXkUST7BZUk4C8wI6nQCLcBGAs/s640/24.jpg)](https://3.bp.blogspot.com/-KGTDFZTU6i4/XCdiYNf_LBI/AAAAAAAACpk/HTjFvBAC9H8PxtWXkUST7BZUk4C8wI6nQCLcBGAs/s1600/24.jpg)
+![](/images/mbdq10.jpg)
 
 那麼用於面上呢？（終於入正題了嗎？）  
 根據包裝說是用來柔白緊膚跟煥膚  

@@ -6,10 +6,11 @@ aliases: [ "/2013/12/masque-shu-uemura-moisture-eye-zone-mask.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-對眼好乾就去滴眼藥水，眼睛下方好乾就敷eye mask  
+對眼好乾就去滴眼藥水  
+眼睛下方好乾就敷eye mask  
 （兩者絕對沒有關係）  
 
-[![](https://3.bp.blogspot.com/-jQx0oVerP00/XCiHtWLBh4I/AAAAAAAADNA/85dLqbAbrnsIynk81bt7rDqnB9owi3MvwCLcBGAs/s640/53.jpg)](https://3.bp.blogspot.com/-jQx0oVerP00/XCiHtWLBh4I/AAAAAAAADNA/85dLqbAbrnsIynk81bt7rDqnB9owi3MvwCLcBGAs/s1600/53.jpg)
+![](/images/shuuemuraeye.jpg)
 
 以膠兜盛住的眼膜紙充滿了精華  
 精華不太黏但也說不上是水狀  

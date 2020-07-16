@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 HIMHIM 的希臘手信，多謝多謝（拍手）  
 
-[![](https://3.bp.blogspot.com/-bQ1UYRW-aC4/XCdj_hzWJmI/AAAAAAAACqc/4X7i1tx8gQ0s8-lcQG6_Tit4Gl2eiB_swCLcBGAs/s640/32.jpg)](https://3.bp.blogspot.com/-bQ1UYRW-aC4/XCdj_hzWJmI/AAAAAAAACqc/4X7i1tx8gQ0s8-lcQG6_Tit4Gl2eiB_swCLcBGAs/s1600/32.jpg)
+![](/images/alexandros.jpg)
 
 此款手製的65% dark chocolate一點都不苦  
 但也不是甜的，只有濃厚的朱古力味  

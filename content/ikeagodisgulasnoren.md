@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 ikea出即食意粉？哈哈！這算是分子料理嗎？  
 
-[![](https://3.bp.blogspot.com/-3nmEXP6lXM0/XCQ8gjKXwsI/AAAAAAAAB6A/h29G21Jz24wwXQwnr5ElGaaIXqADHyc4gCLcBGAs/s640/9.jpg)](https://3.bp.blogspot.com/-3nmEXP6lXM0/XCQ8gjKXwsI/AAAAAAAAB6A/h29G21Jz24wwXQwnr5ElGaaIXqADHyc4gCLcBGAs/s1600/9.jpg)
+![](/images/ikeagodisgulasnoren.jpg)
 
 這是toffee laces啦，聞起來有陣塑膠味 XD  
 吃著總覺得vanilla比toffee味更重  

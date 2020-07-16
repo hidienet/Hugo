@@ -6,13 +6,12 @@ aliases: [ "/2014/02/masque-nature-republic-snail-therapy.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-蝸牛黏液有保濕同修護功效
-
+蝸牛黏液有保濕同修護功效...  
 但一塊裡面含1000mg蝸牛精華  
 那麼究竟要那些蝸牛吐出多少黏液  
 是不是要它們一直看恐怖片逼出來呢（誤）  
 
-[![](https://4.bp.blogspot.com/-nimuBjE8dHA/XC4LX_hm6FI/AAAAAAAAD3o/KTyGNILzGhIVvFUMt1EtUkYBUo8ksBe4wCLcBGAs/s640/73.jpg)](https://4.bp.blogspot.com/-nimuBjE8dHA/XC4LX_hm6FI/AAAAAAAAD3o/KTyGNILzGhIVvFUMt1EtUkYBUo8ksBe4wCLcBGAs/s1600/73.jpg)
+![](/images/naturerepublicsnailhydrogel.jpg)
 
 面膜材質是厚厚的透明hydro-gel mask  
 特色是敷上後去打籃球都不會跌落  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 來一份日式的下午茶  
 
-[![](https://1.bp.blogspot.com/-jo-kfBheCP0/XChwnR4sJcI/AAAAAAAAC-M/4O0ox7ZR84oLOGkaVSPi-Hp5QHuvpZqIQCLcBGAs/s640/07.jpg)](https://1.bp.blogspot.com/-jo-kfBheCP0/XChwnR4sJcI/AAAAAAAAC-M/4O0ox7ZR84oLOGkaVSPi-Hp5QHuvpZqIQCLcBGAs/s1600/07.jpg)
+![](/images/bashoudo.jpg)
 
 芭蕉堂是大阪的一家老菓子店  
 （於明治元年，西元1868年成立）  
@@ -16,21 +16,19 @@ tags : [flavor - 螞蟻族]
 因為讀音都是わらびもち  
 蕨餅本身是蕨粉造的  
 吃起來涼涼的，比蒟蒻有嚼勁點  
-但又不像糯米滋那麼韌  
-  
+但又不像糯米滋那麼韌    
 開了蓋子，兩種氣味同時湧出來  
 
-[![](https://4.bp.blogspot.com/-aXiROJMfBgg/XChwtN7f6CI/AAAAAAAAC-Q/I7HZTGOFC6kCJAtE3AK7hlXfmjbEDnVtwCLcBGAs/s640/08.jpg)](https://4.bp.blogspot.com/-aXiROJMfBgg/XChwtN7f6CI/AAAAAAAAC-Q/I7HZTGOFC6kCJAtE3AK7hlXfmjbEDnVtwCLcBGAs/s1600/08.jpg)
+![](/images/bashoudo1.jpg)
 
 **きな粉**是黑豆粉（不是平常的黃豆粉）  
 這家是以優質（極上）丹波黒豆磨製  
 帶著純粹的豆香味，絕對不會很甜  
 是老友記都可以吃的那種甜度而已  
-（當然要能咬的老友記才可以吃）  
-  
+（當然要能咬的老友記才可以吃）    
 畢竟簡單純正的味道就是王道！  
 
-[![](https://3.bp.blogspot.com/-fcOUpV5QJd8/XChwza2zHdI/AAAAAAAAC-Y/kObioGt15s45aT7pmu_kFj4Y-sDaGvdKwCLcBGAs/s640/09.jpg)](https://3.bp.blogspot.com/-fcOUpV5QJd8/XChwza2zHdI/AAAAAAAAC-Y/kObioGt15s45aT7pmu_kFj4Y-sDaGvdKwCLcBGAs/s1600/09.jpg)
+![](/images/bashoudo2.jpg)
 
 **抹茶**的味道也很香  
 大概應該大阪也在京都附近所以茶香足（？）  

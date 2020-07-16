@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 納豆對人體有益，但真的很臭吧！  
 
-[![](https://1.bp.blogspot.com/-rm97c2esDtY/XCdplzqXqGI/AAAAAAAACsk/DLOdKPhHn1866GD_FaXRwp-WQ6357uSFwCLcBGAs/s640/48.jpg)](https://1.bp.blogspot.com/-rm97c2esDtY/XCdplzqXqGI/AAAAAAAACsk/DLOdKPhHn1866GD_FaXRwp-WQ6357uSFwCLcBGAs/s1600/48.jpg)
+![](/images/mbdnatto.jpg)
 
 但這塊面膜是沒有納豆味的  
 （有的話應該有90%的人都不會拿來敷）  

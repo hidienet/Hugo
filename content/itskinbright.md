@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 test tube, bunsen burner... 買的時候一直諗著（低B）  
 
-[![](https://2.bp.blogspot.com/-OS5DPFhJeqQ/XCRCH9SQs7I/AAAAAAAAB8E/vm69kXqSs0Uk7RHwakDgPHqqeA86DncaACLcBGAs/s640/25.jpg)](https://2.bp.blogspot.com/-OS5DPFhJeqQ/XCRCH9SQs7I/AAAAAAAAB8E/vm69kXqSs0Uk7RHwakDgPHqqeA86DncaACLcBGAs/s1600/25.jpg)
+![](/images/itskinbright.jpg)
 
 一tube一mask，講真個包裝都幾多餘  
 倒出面膜，精華全在面膜紙中  

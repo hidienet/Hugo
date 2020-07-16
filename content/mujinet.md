@@ -7,41 +7,29 @@ tags : [glamorous - 保養おたく]
 ---
 
 把cleanser起泡泡才用就沒那麼傷皮膚  
-
 （cleansing water同milk除外）
 
-[![](https://2.bp.blogspot.com/-gPp3DvJyjtk/XDBOPJwFTeI/AAAAAAAAD90/cHxne306_PA_otm9bIc6TtQoFZZpp3GJwCLcBGAs/s640/01.jpg)](https://2.bp.blogspot.com/-gPp3DvJyjtk/XDBOPJwFTeI/AAAAAAAAD90/cHxne306_PA_otm9bIc6TtQoFZZpp3GJwCLcBGAs/s1600/01.jpg)
+![](/images/mujinet.jpg)
 
-但一般沒加上很多起泡劑的
-
-只是加水用手打圈也不是件易起泡的事
-
-需知道起泡要用cleanser+水+空氣
-
-方能好好的起了個豐盈綿密的泡泡
-
+但一般沒加上很多起泡劑的  
+只是加水用手打圈也不是件易起泡的事  
+需知道起泡要用cleanser+水+空氣  
+方能好好的起了個豐盈綿密的泡泡  
 所以用起泡網就成為一個好選擇
 
   
 
-用過幾個不同品牌的
-
-有隨洗面皂附送的
-
-100円店買的跟其它等等
-
+用過幾個不同品牌的  
+有隨洗面皂附送的  
+100円店買的跟其它等等  
 最後也是鍾情於無印良品這隻
 
   
 
-起泡快，失敗率超低
-
-（對，品質不好網狀不能打入空氣的有很多）
-
-加上這些產品都是耐用品
-
-不容易損壞也不易藏污
-
+起泡快，失敗率超低  
+（對，品質不好網狀不能打入空氣的有很多）  
+加上這些產品都是耐用品  
+不容易損壞也不易藏污  
 價格還非常便宜
 
   

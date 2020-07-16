@@ -11,7 +11,7 @@ tags : [glamorous - 保養おたく]
   
 肉是赤，但好用！  
 
-[![](https://2.bp.blogspot.com/-rk0bveCsgCU/XCdjRnXGzoI/AAAAAAAACqA/3RDPoZkMLwgSeXfBFYfuD4k_2Gx4ndSawCLcBGAs/s640/28.jpg)](https://2.bp.blogspot.com/-rk0bveCsgCU/XCdjRnXGzoI/AAAAAAAACqA/3RDPoZkMLwgSeXfBFYfuD4k_2Gx4ndSawCLcBGAs/s1600/28.jpg)
+![](/images/sulwhasoocream.jpg)
 
 其實這一套雪花秀  
 我是一set過一次過買的  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 sorry～ 我的面仔下半part並不是u-zone  
 應該只能稱為v-zone（欠揍mode）  
 
-[![](https://1.bp.blogspot.com/-IWREUBWhKzM/XC3uKYS9DUI/AAAAAAAADww/AfsFG_VeQ4UlxZDMwEFtAqnzvhMBfOYfgCLcBGAs/s640/16.jpg)](https://1.bp.blogspot.com/-IWREUBWhKzM/XC3uKYS9DUI/AAAAAAAADww/AfsFG_VeQ4UlxZDMwEFtAqnzvhMBfOYfgCLcBGAs/s1600/16.jpg)
+![](/images/medihealv.jpg)
 
 雖然不知道納米白金跟瘦面有甚麼關係  
 管他的那些厲害成分  

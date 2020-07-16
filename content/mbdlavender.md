@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 不論嗅的還是喝的，我也很討厭薰衣草的味道  
 
-[![](https://2.bp.blogspot.com/-L8oEgTtUPv4/XCONwHSmpQI/AAAAAAAAB08/zVJ4c4FASh8wuema8UkPAEA-TFkyQUqPACLcBGAs/s640/7.jpg)](https://2.bp.blogspot.com/-L8oEgTtUPv4/XCONwHSmpQI/AAAAAAAAB08/zVJ4c4FASh8wuema8UkPAEA-TFkyQUqPACLcBGAs/s1600/7.jpg)
+![](/images/mbdlavender.jpg)
 
 但在這天氣轉換中的日子，應該要讓皮膚與心情鎮靜些  
   

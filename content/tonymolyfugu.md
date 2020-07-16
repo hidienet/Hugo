@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 其膠原也很豐富  
   
 
-[![](https://1.bp.blogspot.com/-tTdaf82cwEQ/XC3vvgkgMrI/AAAAAAAADxM/QwbSaMGvfps4l3WkT-Dw-jSxbKdnDvZRwCLcBGAs/s640/19.jpg)](https://1.bp.blogspot.com/-tTdaf82cwEQ/XC3vvgkgMrI/AAAAAAAADxM/QwbSaMGvfps4l3WkT-Dw-jSxbKdnDvZRwCLcBGAs/s1600/19.jpg)
+![](/images/tonymolyfugu.jpg)
 
 含河豚膠原成分的hydrogel mask  
 這條魚應該是種出來的（誤）  

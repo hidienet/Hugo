@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 話說這是一片會令皮膚增加彈性、緊緻云云  
 
-[![](https://3.bp.blogspot.com/-F7Gui4Ps8Ps/XCW7Rvhi5FI/AAAAAAAACac/z3ITcQVJl3YKqTPuK0zG65YNPfacMAvNQCLcBGAs/s640/59.jpg)](https://3.bp.blogspot.com/-F7Gui4Ps8Ps/XCW7Rvhi5FI/AAAAAAAACac/z3ITcQVJl3YKqTPuK0zG65YNPfacMAvNQCLcBGAs/s1600/59.jpg)
+![](/images/mbdrice.jpg)
 
 氣味不是強烈香精味，還好  
 面膜紙質不太厚重，剪裁依然是適合小臉人士  

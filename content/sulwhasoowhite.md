@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 其實買的時候我對這set東西一點期望也沒有（咁又買？）     
 
-[![](https://4.bp.blogspot.com/-9IjVLPYyxYc/XCdmnxVFd6I/AAAAAAAACrQ/hLhwJS0f2J0gTw3N4U30M-0lNW1Fu9vRACLcBGAs/s640/38.jpg)](https://4.bp.blogspot.com/-9IjVLPYyxYc/XCdmnxVFd6I/AAAAAAAACrQ/hLhwJS0f2J0gTw3N4U30M-0lNW1Fu9vRACLcBGAs/s1600/38.jpg)
+![](/images/sulwhasoowhite.jpg)
 
 用法有二：  
 (1) 正常的作為早晚serum  

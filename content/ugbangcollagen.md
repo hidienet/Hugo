@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 完全不知皺紋同乾燥是何物（嘿～）  
 
-[![](https://1.bp.blogspot.com/-5N4KR8kmK0M/XCirwye0tJI/AAAAAAAADbI/Z-37xkB5-ncBkSCCvHMKezHkl-F2_atBQCLcBGAs/s640/16.jpg)](https://1.bp.blogspot.com/-5N4KR8kmK0M/XCirwye0tJI/AAAAAAAADbI/Z-37xkB5-ncBkSCCvHMKezHkl-F2_atBQCLcBGAs/s1600/16.jpg)
+![](/images/ugbangcollagen.jpg)
 
 每片含25g精華，除了人參+膠原  
 還加上保濕、除皺因子  

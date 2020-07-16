@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 好可愛的包裝、超過癮的質地、有明顯的功效  
 完全大愛～ （心心心）  
 
-[![](https://3.bp.blogspot.com/-GmdlBXu2aF4/XCi3fc3dHPI/AAAAAAAADd4/lXZ6ro6zyucw7R3y0u9uMYCapfftXX2cwCLcBGAs/s640/17.jpg)](https://3.bp.blogspot.com/-GmdlBXu2aF4/XCi3fc3dHPI/AAAAAAAADd4/lXZ6ro6zyucw7R3y0u9uMYCapfftXX2cwCLcBGAs/s1600/17.jpg)
+![](/images/faceshoplovely.jpg)
 
 藍色的紙盒子  
 裡面的硬膠盒子都有耳朵  

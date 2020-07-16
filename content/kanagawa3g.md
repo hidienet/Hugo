@@ -1,5 +1,5 @@
 ---
-title: '[神奈川衝撞旅] Day3：'
+title: '[神奈川衝撞旅] Day3：鎌倉 小町通り'
 date: 2020-07-19T07:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3g.jpg"]

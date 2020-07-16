@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 蘆薈．．．保濕抗敏感美白跟甚麼甚麼一大堆  
 
-[![](https://3.bp.blogspot.com/-WETVVccMhs8/XCOUnAX6XFI/AAAAAAAAB4E/njsQ5syoJyEYwOg-uO0TO4hIzVgPClBZgCLcBGAs/s640/32.jpg)](https://3.bp.blogspot.com/-WETVVccMhs8/XCOUnAX6XFI/AAAAAAAAB4E/njsQ5syoJyEYwOg-uO0TO4hIzVgPClBZgCLcBGAs/s1600/32.jpg)
+![](/images/mbdaloe.jpg)
 
 但要這塊平價面膜能有萬用功效嗎？  
 沒有敏感的我，只要求能保濕一下就可以  

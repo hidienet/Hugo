@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 有微小小磨砂粒子的白泥  
 令肌膚平滑清潔又不會乾燥  
 
-[![](https://4.bp.blogspot.com/-qI3FJwW-rGk/XChxMeFDAzI/AAAAAAAAC-s/RnY_v3bvqSAqGQucch6Nkp3leuwWpEASwCLcBGAs/s640/11.jpg)](https://4.bp.blogspot.com/-qI3FJwW-rGk/XChxMeFDAzI/AAAAAAAAC-s/RnY_v3bvqSAqGQucch6Nkp3leuwWpEASwCLcBGAs/s1600/11.jpg)
+![](/images/ipsaclay.jpg)
 
 軟扒扒的白泥apply在洗乾淨的面上  
 竟然於抹乾的面也很容易推開  

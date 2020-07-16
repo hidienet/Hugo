@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 50年代老美國式的店舖裝潢很老土呀！  
 
-[![](https://4.bp.blogspot.com/-Ia0SZSlwhKQ/XCORWt7j7lI/AAAAAAAAB2o/4yKHOQfmXJ032n27dnlYLuNesnJ5vjdEACLcBGAs/s640/20.jpg)](https://4.bp.blogspot.com/-Ia0SZSlwhKQ/XCORWt7j7lI/AAAAAAAAB2o/4yKHOQfmXJ032n27dnlYLuNesnJ5vjdEACLcBGAs/s1600/20.jpg)
+![](/images/seestoffeeettes.jpg)
 
 但我就是在這俗氣的地方挖到寶．．．  
   

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 音波功除了在武俠小說出現  
 也需要在洗面時使用  
 
-[![](https://2.bp.blogspot.com/-XjNEf8XWZTM/XC4H8Wayh-I/AAAAAAAAD2E/HEjkkGvJSuMTDkV0ju40A7dhNJkFJzF3gCLcBGAs/s640/60.jpg)](https://2.bp.blogspot.com/-XjNEf8XWZTM/XC4H8Wayh-I/AAAAAAAAD2E/HEjkkGvJSuMTDkV0ju40A7dhNJkFJzF3gCLcBGAs/s1600/60.jpg)
+![](/images/clarisonic.jpg)
 
 以一秒300下的微震來清潔肌膚  
 而刷頭比雙手更能深入毛孔  

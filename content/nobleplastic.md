@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 超多功能但一滴精華都沒有的mask  
 
-[![](https://1.bp.blogspot.com/-7LPJe58iHhY/XCiHQNX73CI/AAAAAAAADMs/73jEzLkMb7U7gDDdsTofmvP3X2EXoW9fACLcBGAs/s640/50.jpg)](https://1.bp.blogspot.com/-7LPJe58iHhY/XCiHQNX73CI/AAAAAAAADMs/73jEzLkMb7U7gDDdsTofmvP3X2EXoW9fACLcBGAs/s1600/50.jpg)
+![](/images/nobleplastic.jpg)
 
 這是與保鮮紙一樣的東西  
 不過更方同跟可以喪reuse  
@@ -23,7 +23,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 用完後清洗乾淨風乾  
 之後又可以再用  
   
-另，不幸地敷一些[會掉下來的面膜](http://www.hidie.net/2013/12/masque_7.html)  
+另，不幸地敷一些[會掉下來的面膜](https://hidie.net/drjougold/)  
 可以用這塊膠先蓋住  
 之後再加小顏面罩的東西  
 就可以固定又不會弄髒  

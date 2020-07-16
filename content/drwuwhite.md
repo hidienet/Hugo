@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 那個叫Dr. Wu的歐吉桑全名是吳英俊 XD  
 
-[![](https://4.bp.blogspot.com/-2WOvLsDRVaw/XCc-O-DeIEI/AAAAAAAACds/hmZFj8im9sQj6Bb9eIeDUnl4Lw6Kv7GdgCLcBGAs/s640/20.jpg)](https://4.bp.blogspot.com/-2WOvLsDRVaw/XCc-O-DeIEI/AAAAAAAACds/hmZFj8im9sQj6Bb9eIeDUnl4Lw6Kv7GdgCLcBGAs/s1600/20.jpg)
+![](/images/drwuwhite.jpg)
 
 不理了，mask好用才是我最關心的  
   

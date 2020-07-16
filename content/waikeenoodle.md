@@ -9,24 +9,18 @@ tags : [flavor - 行膳積腹]
 一堆豬膶放在煮好的公仔麵上  
 碗邊圍了些豬血x熱湯混合了的啡色泡渣  
 
-[![](https://3.bp.blogspot.com/-V0UyJsrRBOg/XCRBMpTouxI/AAAAAAAAB7c/jKgydv-HLgYxDCzLLn0l1C-cod-XlR70gCLcBGAs/s640/20.jpg)](https://3.bp.blogspot.com/-V0UyJsrRBOg/XCRBMpTouxI/AAAAAAAAB7c/jKgydv-HLgYxDCzLLn0l1C-cod-XlR70gCLcBGAs/s1600/20.jpg)
+![](/images/waikeenoodle.jpg)
 
 賣相就是那麼的不討好  
 但味道卻是重點：  
 薄薄的豬膶剛好燙熟，入口爽脆  
-  
-  
-
 湯底薑味甚濃，把豬膶的腥味辟去
 
   
 
-雖然我本身不愛吃即食麵
-
-但豬膶麵不配即食麵便不對味
-
-（甚麼米粉河粉生麵烏冬都不夾豬膶！）
-
+雖然我本身不愛吃即食麵  
+但豬膶麵不配即食麵便不對味  
+（甚麼米粉河粉生麵烏冬都不夾豬膶！）  
 可惜都麵太吸湯汁，有點糊
 
   

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 好好的收毛孔黑頭才不會有窿捐  
 
-[![](https://1.bp.blogspot.com/-SJoa1teu9mo/XC4RFfsquII/AAAAAAAAD64/33mc2Xjr8qsyVxzlJTQXquX73vo6sglywCLcBGAs/s640/q.jpg)](https://1.bp.blogspot.com/-SJoa1teu9mo/XC4RFfsquII/AAAAAAAAD64/33mc2Xjr8qsyVxzlJTQXquX73vo6sglywCLcBGAs/s1600/q.jpg)
+![](/images/tonymolyeggpack.jpg)
 
 蛋白精華加上粘土  
 mask是啡色，敷上鼻顏色跟肌膚相近  

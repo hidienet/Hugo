@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 很補的按摩霜，因為要先塗潤燥和滋陰水才用的  
 
-[![](https://2.bp.blogspot.com/-5jz2Vvtp16o/XCdn-B0KZLI/AAAAAAAACr0/fZU5Emo96H0hvlISThzkNxpuh8l1CNa0wCLcBGAs/s640/42.jpg)](https://2.bp.blogspot.com/-5jz2Vvtp16o/XCdn-B0KZLI/AAAAAAAACr0/fZU5Emo96H0hvlISThzkNxpuh8l1CNa0wCLcBGAs/s1600/42.jpg)
+![](/images/sulwhasoomassage.jpg)
 
 身體要做運動才血液循環  
 面部亦然，除了平時說話做表情之外   
@@ -44,7 +44,7 @@ tags : [glamorous - 保養おたく]
 自己的皮膚真的要自己爭取  
 而且努力的話，不多不少也一定會有成果  
 
-[![](https://2.bp.blogspot.com/-90AHnYZ5iBA/XCdoEhUiAYI/AAAAAAAACr4/88146yd_Un4hn1kykf6NwYSMRzo3jIUUgCLcBGAs/s640/43.jpg)](https://2.bp.blogspot.com/-90AHnYZ5iBA/XCdoEhUiAYI/AAAAAAAACr4/88146yd_Un4hn1kykf6NwYSMRzo3jIUUgCLcBGAs/s1600/43.jpg)
+![](/images/sulwhasoomassage1.jpg)
 
 這枝是草香精華，不是精華素  
 是與按摩霜一起的   

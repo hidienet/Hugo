@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 紅色圈圈寫上"the world best hand cream"，當然要試試有幾best  
 
-[![](https://1.bp.blogspot.com/-snT5VEtNP_M/XCOJYejsVzI/AAAAAAAABzQ/dx6Un7mbdm40yx_oqepi2WbmKx72UuuawCLcBGAs/s640/p4.jpg)](https://1.bp.blogspot.com/-snT5VEtNP_M/XCOJYejsVzI/AAAAAAAABzQ/dx6Un7mbdm40yx_oqepi2WbmKx72UuuawCLcBGAs/s1600/p4.jpg)
+![](/images/bariellehand.jpg)
 
 4oz. 很大的一盒，內付一對白色棉手套  
 開蓋與使用時沒有難聞跟濃烈的味道，不會嗆鼻或臭  

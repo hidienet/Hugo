@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 看蕉！  
 
-[![](https://2.bp.blogspot.com/-cZUv2yjfpGA/XC4PEQUij4I/AAAAAAAAD5s/f4IoLILzaq88Wy6qQH-L3XKbsF5dEd1FACLcBGAs/s640/91.jpg)](https://2.bp.blogspot.com/-cZUv2yjfpGA/XC4PEQUij4I/AAAAAAAAD5s/f4IoLILzaq88Wy6qQH-L3XKbsF5dEd1FACLcBGAs/s1600/91.jpg)
+![](/images/toykobanana.jpg)
 
 鬆軟的banana味海綿蛋糕  
 裡面包覆著香甜的香蕉鮮奶cream  

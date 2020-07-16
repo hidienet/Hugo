@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 真是好一枝萬能的爽膚水！  
 
-[![](https://3.bp.blogspot.com/-rJshKpWwU0M/XCOKb5NVsPI/AAAAAAAABzw/sjBTulzFvycBQR_ZrC_R77PjnihIXpmxQCLcBGAs/s640/p8.jpg)](https://3.bp.blogspot.com/-rJshKpWwU0M/XCOKb5NVsPI/AAAAAAAABzw/sjBTulzFvycBQR_ZrC_R77PjnihIXpmxQCLcBGAs/s1600/p8.jpg)
+![](/images/albiontoner.jpg)
 
 能說得出的也差不多在這一瓶裡面：  
 補濕保濕減淡乾紋美白去黃去暗沉消除暗粒清熱退暗瘡．．．  

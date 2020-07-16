@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 驢BB，Sorry～（千頌伊腔）  
 要借你的午餐給我敷個面了  
 
-[![](https://1.bp.blogspot.com/-3CGt_5fDx1U/XC3z3ufr-JI/AAAAAAAADy8/VbSvNgYeUHQgYhcXSO0hhKEscHi2Wn5vwCLcBGAs/s640/33.jpg)](https://1.bp.blogspot.com/-3CGt_5fDx1U/XC3z3ufr-JI/AAAAAAAADy8/VbSvNgYeUHQgYhcXSO0hhKEscHi2Wn5vwCLcBGAs/s1600/33.jpg)
+![](/images/skinceramic.jpg)
 
 跟牛奶不同，驢奶產量比較少  
 所以聽起來好像比較珍貴  

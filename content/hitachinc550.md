@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 用過一部好用的機就不會想換  
 
-[![](https://2.bp.blogspot.com/-CpWqLfNwrBs/XC3x2mIBnUI/AAAAAAAADyY/j-ANz_lU_lELVqRQSdlauiBtNOJJ6N_MgCLcBGAs/s640/29.jpg)](https://2.bp.blogspot.com/-CpWqLfNwrBs/XC3x2mIBnUI/AAAAAAAADyY/j-ANz_lU_lELVqRQSdlauiBtNOJJ6N_MgCLcBGAs/s1600/29.jpg)
+![](/images/hitachinc550.jpg)
 
 這是第一代的ION導出機  
 一用就好幾個年頭  
@@ -20,11 +20,11 @@ tags : [glamorous - 保養おたく]
 要用其toner才發揮所謂最大效果  
 hitachi這部用甚麼牌子都可以  
 用了不同的toner  
-覺得[etude house wonder pore freshner](http://www.hidie.net/2014/02/toner-etude-house-wonder-pore-freshner.html)  
+覺得[etude house wonder pore freshner](https://hidie.net/etudehousepore/)  
 跟curel 美白化粧水  
 最能把髒污導出之餘  
 而且清爽不黏膩  
-棉花就用[unicharm](http://www.hidie.net/2014/02/tools-unicharm.html)  
+棉花就用[unicharm](https://hidie.net/unicharmcotton/)  
 碌完3分鐘整塊棉都不會爛不起絲  
   
 兩粒3A電，好性能的可以用到1年  

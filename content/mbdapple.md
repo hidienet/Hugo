@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 用蘋果去收毛孔？  
 
-[![](https://3.bp.blogspot.com/-LyC0jOn9eNw/XCRTkEi4FbI/AAAAAAAACDI/yF8uA7qCEdUfcVnxyrXhSHhAY5WGtQM7wCLcBGAs/s640/4.jpg)](https://3.bp.blogspot.com/-LyC0jOn9eNw/XCRTkEi4FbI/AAAAAAAACDI/yF8uA7qCEdUfcVnxyrXhSHhAY5WGtQM7wCLcBGAs/s1600/4.jpg)
+![](/images/mbdapple.jpg)
 
 包裝背面印著此mask能緊緻毛孔、細緻潤澤肌膚  
 同樣地，我是不會抱太大期望  

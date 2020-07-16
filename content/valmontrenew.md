@@ -7,35 +7,26 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
 如果這一輩子只能有一隻mask可以敷  
-
 我絕對會選這一瓶無誤
 
-[![](https://1.bp.blogspot.com/-FaJoIeGNMrQ/XCim5Gp4VkI/AAAAAAAADZM/2qmQgHu__twTDMzTReZdG9R4LT5kx7FKgCLcBGAs/s640/01.jpg)](https://1.bp.blogspot.com/-FaJoIeGNMrQ/XCim5Gp4VkI/AAAAAAAADZM/2qmQgHu__twTDMzTReZdG9R4LT5kx7FKgCLcBGAs/s1600/01.jpg)
+![](/images/valmontrenew1.jpg)
 
-又是一隻價格令人咋舌的面膜
-
+又是一隻價格令人咋舌的面膜  
 但敷完以後真的無法不愛上
 
   
 
-通常（其實是差不多每次）用了[suqqu的massage](http://www.hidie.net/2014/01/massage-suqqu-musculate-massage-cream.html)後敷
-
-效果不知為何效果更更更明顯
-
-cream狀的mask蠻容易推開
-
+通常（其實是差不多每次）用了[suqqu的massage](https://hidie.net/suqqu/)後敷  
+效果不知為何效果更更更明顯  
+cream狀的mask蠻容易推開  
 薄薄一層的敷，一敷就過夜（15分鐘？太浪費了！）
 
   
 
-如其名的renew，保濕is a MUST
-
-然後細胞也像活化了有生氣漲卜卜般
-
-面部又有光澤又白了很多（！）
-
-手忍不住摸摸，超滑溜的面呀～  
-  
+如其名的renew，保濕is a MUST  
+然後細胞也像活化了有生氣漲卜卜般  
+面部又有光澤又白了很多（！）  
+手忍不住摸摸，超滑溜的面呀～    
 加上能維持一段時間，實在太好了
 
   

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 為求迎接happy friday，要把氧化了的皮膚按re-set button  
 
-[![](https://2.bp.blogspot.com/-PVwZu-ynGRY/XCOO7arQQEI/AAAAAAAAB1Y/5OZsEdOV__EiylqsBNOXS7qLf9mF4MZNgCLcBGAs/s640/10.jpg)](https://2.bp.blogspot.com/-PVwZu-ynGRY/XCOO7arQQEI/AAAAAAAAB1Y/5OZsEdOV__EiylqsBNOXS7qLf9mF4MZNgCLcBGAs/s1600/10.jpg)
+![](/images/lifeofquality.jpg)
 
 紅酒多酚可以抗氧這回事不用多說  
 要詳細起底便自行google  

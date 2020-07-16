@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 沒有貴價的ceramide，平平地用amino acid保濕都不錯  
 
-[![](https://2.bp.blogspot.com/-ntQ_IOD9B6Y/XC3tM5GMo3I/AAAAAAAADwA/Z3OH0hLrT14CWka-k9Gnqf7oBQ8Zdb22ACLcBGAs/s640/10.jpg)](https://2.bp.blogspot.com/-ntQ_IOD9B6Y/XC3tM5GMo3I/AAAAAAAADwA/Z3OH0hLrT14CWka-k9Gnqf7oBQ8Zdb22ACLcBGAs/s1600/10.jpg)
+![](/images/doctorcos.jpg)
 
 白色一罐紅x灰色子寫上英日文同簡單韓字包裝  
 說實話覺得整個東西「好Q流」  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 贈品蝴蝶形的patch（送了幾塊）  
 
-[![](https://4.bp.blogspot.com/-stnmDERLmqI/XC4TzoTvwXI/AAAAAAAAD8U/2UKsrEXt_rMNromeG-Id2POYPM9ksAKNgCLcBGAs/s640/d.jpg)](https://4.bp.blogspot.com/-stnmDERLmqI/XC4TzoTvwXI/AAAAAAAAD8U/2UKsrEXt_rMNromeG-Id2POYPM9ksAKNgCLcBGAs/s1600/d.jpg)
+![](/images/holika3dbright.jpg)
 
 說是美白，尤其淡斑的功效  
 敷15-20分鐘  

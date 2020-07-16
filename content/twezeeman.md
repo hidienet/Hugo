@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 是這個紅圈標誌，心甘情願乖乖付錢就是    
 
-[![](https://2.bp.blogspot.com/-4DI_yj3__Uo/XCRUfDtZL-I/AAAAAAAACDg/SKS31a2hZoIrVDNyJsIgLljHfGIKlv2fwCLcBGAs/s640/8.jpg)](https://2.bp.blogspot.com/-4DI_yj3__Uo/XCRUfDtZL-I/AAAAAAAACDg/SKS31a2hZoIrVDNyJsIgLljHfGIKlv2fwCLcBGAs/s1600/8.jpg)
+![](/images/twezeeman.jpg)
 
 貴為allure與in style都推薦的，絕不會「死錯人」   
 好與不好的twezeezer分別在於鋼水及磨工  

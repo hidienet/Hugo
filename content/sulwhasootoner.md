@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 雪花秀的toner叫作爽膚水不太合適  
 說潤膚水會較為貼切     
 
-[![](https://1.bp.blogspot.com/-x1J6DSeyjRI/XCdo4pJFdDI/AAAAAAAACsU/EDJKp-7A2jApb7ai4R2HYDP3hbOkO73KQCLcBGAs/s640/46.jpg)](https://1.bp.blogspot.com/-x1J6DSeyjRI/XCdo4pJFdDI/AAAAAAAACsU/EDJKp-7A2jApb7ai4R2HYDP3hbOkO73KQCLcBGAs/s1600/46.jpg)
+![](/images/sulwhasootoner.jpg)
 
 是很厚身的toner  
 雖不及樂敦的極潤厚，但也很厚  

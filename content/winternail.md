@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 聖誕就來點深深的暗紅色彩吧～  
 
-[![](https://1.bp.blogspot.com/-LnSeV7n1_3E/XCiM_LW_34I/AAAAAAAADPw/Z6QtK9hMlm4-sKTsaONPDWje9A_ofu-3QCLcBGAs/s640/75.jpg)](https://1.bp.blogspot.com/-LnSeV7n1_3E/XCiM_LW_34I/AAAAAAAADPw/Z6QtK9hMlm4-sKTsaONPDWje9A_ofu-3QCLcBGAs/s1600/75.jpg)
+![](/images/winternail.jpg)
 
 ck 211 phoenix  
   

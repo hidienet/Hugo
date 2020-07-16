@@ -6,10 +6,10 @@ aliases: [ "/2014/01/patisserie-le-gouter-bernardaud-lgb.html" ]
 tags : [flavor - 螞蟻族]
 ---
 
-雖然上次吃了很有heart的香港品牌[Mara Js](http://www.hidie.net/2013/12/patisserie-mara-js-macaron-mille-feuille.html)  
+雖然上次吃了很有heart的香港品牌[Mara Js](https://hidie.net/marajs/)  
 我還是覺得macaron應該size小一點會更好  
 
-[![](https://1.bp.blogspot.com/-nGN4FUDeFIs/XChvu02RTFI/AAAAAAAAC9o/ZRlS9XvNcR07eFzYz85jiyl2i0ALXN1egCLcBGAs/s640/02.jpg)](https://1.bp.blogspot.com/-nGN4FUDeFIs/XChvu02RTFI/AAAAAAAAC9o/ZRlS9XvNcR07eFzYz85jiyl2i0ALXN1egCLcBGAs/s1600/02.jpg)
+![](/images/lgb.jpg)
 
 這次是法國老品牌的LGB  
 我沒有認真的認為外國的月亮特別圓  

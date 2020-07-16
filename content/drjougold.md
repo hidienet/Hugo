@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 敷金上面，數十元幾片的小奢華  
 
-[![](https://4.bp.blogspot.com/-z244KrtVN6Y/XCdmabj9qZI/AAAAAAAACrI/-E-xH6Q03REAI_sY6LiWjSDnFh-LYEsAgCLcBGAs/s640/37.jpg)](https://4.bp.blogspot.com/-z244KrtVN6Y/XCdmabj9qZI/AAAAAAAACrI/-E-xH6Q03REAI_sY6LiWjSDnFh-LYEsAgCLcBGAs/s1600/37.jpg)
+![](/images/drjougold.jpg)
 
 除了金，還有很多「珍貴」的用料在mask內  
 哇～ 面仔細細吸不吸收這麼多東西...  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 這是我第一樣接觸的雪花秀product  
 
-[![](https://1.bp.blogspot.com/-Wjnq2vArZQE/XCdj0ogBTKI/AAAAAAAACqY/C2TurhYzJZ4KIXmLDCsFAe5po4XZ0MWUACLcBGAs/s640/31.jpg)](https://1.bp.blogspot.com/-Wjnq2vArZQE/XCdj0ogBTKI/AAAAAAAACqY/C2TurhYzJZ4KIXmLDCsFAe5po4XZ0MWUACLcBGAs/s1600/31.jpg)
+![](/images/sulwhasoopack.jpg)
 
 這個不只不會令面部不會過乾的清潔mask  
 用後會很滑而有充足水份   

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 食燕窩要等食兩三個月才有功效  
 倒不如敷一塊即時有效的燕窩mask  
 
-[![](https://1.bp.blogspot.com/-itoKoxrDXqc/XCiwImY91MI/AAAAAAAADcA/5oNH_yVvrqQ-YdzUKvb6Ho38_2zDFSB5QCLcBGAs/s640/01.jpg)](https://1.bp.blogspot.com/-itoKoxrDXqc/XCiwImY91MI/AAAAAAAADcA/5oNH_yVvrqQ-YdzUKvb6Ho38_2zDFSB5QCLcBGAs/s1600/01.jpg)
+![](/images/fureika.jpg)
 
 全透明的hydrogel mask  
 兩邊質地一樣，不怕掉轉敷不吸收  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 test tube包裝雖然有點多餘同佔空間  
 不過也很過癮就是（加上試管可以重用）  
 
-[![](https://4.bp.blogspot.com/-Qr34BjlaGfQ/XC3rniIoiSI/AAAAAAAADvU/QomQ06WJ9c0P36d0Ym0cYOpXWnGZgg5owCLcBGAs/s640/04.jpg)](https://4.bp.blogspot.com/-Qr34BjlaGfQ/XC3rniIoiSI/AAAAAAAADvU/QomQ06WJ9c0P36d0Ym0cYOpXWnGZgg5owCLcBGAs/s1600/04.jpg)
+![](/images/itsskinegf.jpg)
 
 E.G.F. epidermal growth factor  
 肌膚再生因子，即是一些不知明  

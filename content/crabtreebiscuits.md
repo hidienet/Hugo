@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 小不點的聖誕禮物（喔！今年很多曲奇餅乾耶～）  
 
-[![](https://2.bp.blogspot.com/-UcJVN3YU8Oo/XCiOXkauZoI/AAAAAAAADQU/gYaghIb1EUIVlRTKpaPnu0lgQnECxlyuACLcBGAs/s640/79.jpg)](https://2.bp.blogspot.com/-UcJVN3YU8Oo/XCiOXkauZoI/AAAAAAAADQU/gYaghIb1EUIVlRTKpaPnu0lgQnECxlyuACLcBGAs/s1600/79.jpg)
+![](/images/crabtreebiscuits.jpg)
 
 fine foods festive spiced ginger biscuits（左）  
 fine foods christmas pudding biscuits（右）  

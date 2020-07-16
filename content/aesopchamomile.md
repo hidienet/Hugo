@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 雖然是比較乾的皮膚  
 但偶爾都會有少少小小暗瘡的存在  
 
-[![](https://2.bp.blogspot.com/-gVujPCmGbdI/XChyeS2SfPI/AAAAAAAAC_k/uh05fjOHnxgQcboKELHnbWgrHbEyyl9dgCLcBGAs/s640/18.jpg)](https://2.bp.blogspot.com/-gVujPCmGbdI/XChyeS2SfPI/AAAAAAAAC_k/uh05fjOHnxgQcboKELHnbWgrHbEyyl9dgCLcBGAs/s1600/18.jpg)
+![](/images/aesopchamomile.jpg)
 
 這時候此mask就會出場  
 除了祛痘痘的茶樹油成分  

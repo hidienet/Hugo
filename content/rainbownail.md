@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 手指又肥又短，指甲可畫的位置也不多  
 但不代表不能好好地畫  
 
-[![](https://4.bp.blogspot.com/-i2bktCPqYxw/XCd-sznvoWI/AAAAAAAACxQ/HRdA6_yvYxsY4az3WRxXx-5Jo6j0dSIYwCLcBGAs/s640/86.jpg)](https://4.bp.blogspot.com/-i2bktCPqYxw/XCd-sznvoWI/AAAAAAAACxQ/HRdA6_yvYxsY4az3WRxXx-5Jo6j0dSIYwCLcBGAs/s1600/86.jpg)
+![](/images/rainbownail.jpg)
 
 簡單的三色彩虹，加一兩片泡泡雲  
 躲在手指的邊緣也不錯  

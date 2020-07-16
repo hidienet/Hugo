@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 一般舊式的cupcake上面那些糖膏都是甜到不能吃  
 但這家的雖然也會甜，不過是能吃的甜  
 
-[![](https://2.bp.blogspot.com/-waTwhvfthos/XCiOzptThHI/AAAAAAAADQo/xzphMJvctPsVm5tKWdHXJG8bqVCcwEyhQCLcBGAs/s640/82.jpg)](https://2.bp.blogspot.com/-waTwhvfthos/XCiOzptThHI/AAAAAAAADQo/xzphMJvctPsVm5tKWdHXJG8bqVCcwEyhQCLcBGAs/s1600/82.jpg)
+![](/images/cupcakery1.jpg)
 
 聖誕版的，那隻雪人樣子不太美  
 但勝在輕輕的如泡泡不錯吃  
@@ -17,7 +17,7 @@ tags : [flavor - 螞蟻族]
 聖誕樹整棵都能吃  
 chocolate cake base也蠻濃郁很好  
 
-[![](https://1.bp.blogspot.com/-5w1RTqHwxQk/XCiPAoV1rvI/AAAAAAAADQw/mVYC0qDS-VoggMXwlL3FRbokKWvZ2Ig6ACLcBGAs/s640/83.jpg)](https://1.bp.blogspot.com/-5w1RTqHwxQk/XCiPAoV1rvI/AAAAAAAADQw/mVYC0qDS-VoggMXwlL3FRbokKWvZ2Ig6ACLcBGAs/s1600/83.jpg)
+![](/images/cupcakery.jpg)
 
 平常的款式也很OK  
 最喜歡中間topping是marshmallow  

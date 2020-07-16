@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 好喜歡這皮薄餡靚的pancake  
 
-[![](https://1.bp.blogspot.com/-Su3lrReyiiM/XC4TfhhW9KI/AAAAAAAAD8E/vuBEzIq80jAOE-h4mfYgPqeKSWk7skAJACLcBGAs/s640/a.jpg)](https://1.bp.blogspot.com/-Su3lrReyiiM/XC4TfhhW9KI/AAAAAAAAD8E/vuBEzIq80jAOE-h4mfYgPqeKSWk7skAJACLcBGAs/s1600/a.jpg)
+![](/images/honeymoon.jpg)
 
 皮層沒有甚麼味道  
 不過又薄又滑  

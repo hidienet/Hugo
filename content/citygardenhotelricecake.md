@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族, lifestyle - rosy rosy]
 
 恭喜發財！  
 
-[![](https://1.bp.blogspot.com/-6hQVSE5EWO8/XCiw-UR1McI/AAAAAAAADco/dtY5IDa2JbI9frPY95Cek_vllUbfgPjCQCLcBGAs/s640/06.jpg)](https://1.bp.blogspot.com/-6hQVSE5EWO8/XCiw-UR1McI/AAAAAAAADco/dtY5IDa2JbI9frPY95Cek_vllUbfgPjCQCLcBGAs/s1600/06.jpg)
+![](/images/citygardenhotelricecake.jpg)
 
 年糕當然是吃玫瑰味～  
 哈哈哈  

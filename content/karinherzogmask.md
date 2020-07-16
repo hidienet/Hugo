@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 給沉睡的肌膚大大口的吸一下氧氣  
 （很廣告的slogan XD）  
 
-[![](https://3.bp.blogspot.com/-QPArGn6iEWc/XCh3KSuuwxI/AAAAAAAADDw/Qef4JNq7Y308CI36Mq6jf_eDHpkZpEGPgCLcBGAs/s640/55.jpg)](https://3.bp.blogspot.com/-QPArGn6iEWc/XCh3KSuuwxI/AAAAAAAADDw/Qef4JNq7Y308CI36Mq6jf_eDHpkZpEGPgCLcBGAs/s1600/55.jpg)
+![](/images/karinherzogmask.jpg)
 
 一星期一至兩次，磨砂後用效果更佳   
 皮膚越攰的地方就會起得越多泡泡  

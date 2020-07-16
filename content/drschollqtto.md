@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 要瘦，就要瘦足24小時！  
 
-[![](https://1.bp.blogspot.com/-GTc2Y_TFNXg/XCiQER_ReUI/AAAAAAAADRE/u3aYjfm5n9gLFTKWF7-zpbbFZQPsWEVmACLcBGAs/s640/85.jpg)](https://1.bp.blogspot.com/-GTc2Y_TFNXg/XCiQER_ReUI/AAAAAAAADRE/u3aYjfm5n9gLFTKWF7-zpbbFZQPsWEVmACLcBGAs/s1600/85.jpg)
+![](/images/drschollqtto.jpg)
 
 其實壓力襪應該是令人減輕靜脈曲張的風險  
 （但現在有些無良商家又說是減水腫又說消脂，騙誰呀？）  

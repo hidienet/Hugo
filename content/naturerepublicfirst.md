@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 這款not for sale的mask  
 跟官網上的"the first fermentation hydrogel mask"是不同的  
 
-[![](https://1.bp.blogspot.com/-M83e1k7OA0c/XCi2_3SayyI/AAAAAAAADds/rrMScLSOeCEwatfSPsj39NtWnlrirqt5wCLcBGAs/s640/14.jpg)](https://1.bp.blogspot.com/-M83e1k7OA0c/XCi2_3SayyI/AAAAAAAADds/rrMScLSOeCEwatfSPsj39NtWnlrirqt5wCLcBGAs/s1600/14.jpg)
+![](/images/naturerepublicfirst.jpg)
 
 從包裝袋拿出來，聞到淡淡的香味  
 材質不是平常樣子的不織布  

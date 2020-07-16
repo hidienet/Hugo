@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 蜂皇漿補補肌膚營養  
 
-[![](https://4.bp.blogspot.com/-NJgym5DRAQk/XC4GeGIfqNI/AAAAAAAAD1E/w8gDBQW-bdkaDampD5caM1MYFiz_1cDxwCLcBGAs/s640/50.jpg)](https://4.bp.blogspot.com/-NJgym5DRAQk/XC4GeGIfqNI/AAAAAAAAD1E/w8gDBQW-bdkaDampD5caM1MYFiz_1cDxwCLcBGAs/s1600/50.jpg)
+![](/images/tonymolyroyaljelly.jpg)
 
 打開包裝袋就聞到蜂蜜氣味  
 面膜紙質不厚，面積較細  

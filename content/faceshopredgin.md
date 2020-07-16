@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 當生病了累壞了面色蒼白沒血色時  
 就以紅參進進補啦  
 
-[![](https://1.bp.blogspot.com/-NFbKrBqww38/XC4NbMFpGHI/AAAAAAAAD4w/KEoz-UioQrI5flxh6eGVZVgIDkfdQ0fBgCLcBGAs/s640/82.jpg)](https://1.bp.blogspot.com/-NFbKrBqww38/XC4NbMFpGHI/AAAAAAAAD4w/KEoz-UioQrI5flxh6eGVZVgIDkfdQ0fBgCLcBGAs/s1600/82.jpg)
+![](/images/faceshopredgin.jpg)
 
 還以為打開包裝袋後  
 會有濃濃人參轉進鼻裡  

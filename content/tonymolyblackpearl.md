@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 黑色的珍珠換來美白的蛋臉  
 
-[![](https://3.bp.blogspot.com/-xyE2LT47ixw/XC4HmsttrFI/AAAAAAAAD14/d8csCjlyJGQTdOTjuy0aeFqCSbP0fdNEwCLcBGAs/s640/58.jpg)](https://3.bp.blogspot.com/-xyE2LT47ixw/XC4HmsttrFI/AAAAAAAAD14/d8csCjlyJGQTdOTjuy0aeFqCSbP0fdNEwCLcBGAs/s1600/58.jpg)
+![](/images/tonymolyblackpearl.jpg)
 
 不厚的面膜紙，灌水般多的精華  
 適合面部較細的我（但鼻子位不夠長）  

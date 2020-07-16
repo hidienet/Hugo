@@ -6,9 +6,9 @@ aliases: [ "/2013/12/masque_18.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-之前寫過這家的[黑珍珠](http://www.hidie.net/2013/10/masque_16.html)，今次寫白珍珠  
+之前寫過這家的[黑珍珠](https://hidie.net/mbdblackpearl/)，今次寫白珍珠  
 
-[![](https://4.bp.blogspot.com/-W1dJgk0o-9E/XCiKW7DmJiI/AAAAAAAADOc/mkCbly6fI7gCLePkqwky_vGx_s25BvXegCLcBGAs/s640/65.jpg)](https://4.bp.blogspot.com/-W1dJgk0o-9E/XCiKW7DmJiI/AAAAAAAADOc/mkCbly6fI7gCLePkqwky_vGx_s25BvXegCLcBGAs/s1600/65.jpg)
+![](/images/mbdpearl.jpg)
 
 主要爲潤白跟滋潤  
 （珍珠末不是用來定驚的嗎？）  

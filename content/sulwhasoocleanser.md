@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 很怕一些cleansing product洗完面會很乾的感覺   
 所以乾性皮膚的我選潔面產品會有點揀擇     
 
-[![](https://2.bp.blogspot.com/-qx5D5vRIA6Q/XCd2ANyBx8I/AAAAAAAACtI/nMXhCWdEBeUIYe5vlfYjeDEpjD7Khc5QgCLcBGAs/s640/52.jpg)](https://2.bp.blogspot.com/-qx5D5vRIA6Q/XCd2ANyBx8I/AAAAAAAACtI/nMXhCWdEBeUIYe5vlfYjeDEpjD7Khc5QgCLcBGAs/s1600/52.jpg)
+![](/images/sulwhasoocleanser.jpg)
 
 先說潔顏泡，右邊的一枝二枝就是   
 大枝貨裝不是買的，是VIP生日的gift   
@@ -62,7 +62,7 @@ pump一下勁易起泡
 正常的早晚使用，只洗面能用三個月；  
 洗全身+面就大概一個月  
 
-[![](https://1.bp.blogspot.com/-plM1pc-CGhM/XCd2KU6yxzI/AAAAAAAACtM/mD2NWjl_anowguTKoEzH6Ku_HTKxMmuBgCLcBGAs/s640/53.jpg)](https://1.bp.blogspot.com/-plM1pc-CGhM/XCd2KU6yxzI/AAAAAAAACtM/mD2NWjl_anowguTKoEzH6Ku_HTKxMmuBgCLcBGAs/s1600/53.jpg)
+![](/images/sulwhasoocleanser1.jpg)
 
 tips：蜜皂底部的貼紙不會撕  
 因為撕破了皂會變型成一pat野

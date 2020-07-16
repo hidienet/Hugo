@@ -21,7 +21,7 @@ tags : [flavor - 行膳積腹]
  
 ![](/images/yuethingyuen1.jpg)  
   
-**咸檸梳打**  
+**咸青檸梳打**  
 係soda唔係檸七  
 唔會甜甜咁又夠順氣  
 

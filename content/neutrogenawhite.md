@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 冬天沒那麼曬，美白能keep得持久點  
 （總之能有多白就多白啦）  
 
-[![](https://3.bp.blogspot.com/-ghC0irxjGfE/XCiMcPNRoHI/AAAAAAAADPk/iCyKLmUfSfoBir_LgkB5KBn1GbwO_y_lwCLcBGAs/s640/74.jpg)](https://3.bp.blogspot.com/-ghC0irxjGfE/XCiMcPNRoHI/AAAAAAAADPk/iCyKLmUfSfoBir_LgkB5KBn1GbwO_y_lwCLcBGAs/s1600/74.jpg)
+![](/images/neutrogenawhite.jpg)
 
 相比起一般不織布的材質  
 這塊的質地是有一個一個小洞洞  

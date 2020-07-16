@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂, lifestyle - rosy ros
 
 「角落那窗口 聞得到玫瑰花香 被你一說是有些印象」  
 
-[![](https://2.bp.blogspot.com/-wRkVI85nGhg/XC4OJei317I/AAAAAAAAD5I/qoAa8spNuaweuRevmUypsXoeMfytKdXKQCLcBGAs/s640/86.jpg)](https://2.bp.blogspot.com/-wRkVI85nGhg/XC4OJei317I/AAAAAAAAD5I/qoAa8spNuaweuRevmUypsXoeMfytKdXKQCLcBGAs/s1600/86.jpg)
+![](/images/mamondemoist.jpg)
 
 打開包裝袋，有淡淡的玫瑰味滲出  
 幸好真的不濃烈，因為氣味蠻人工化  

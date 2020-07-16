@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 N.M.F. 全名味nature moisturising factor  
 天然保濕因子是也  
 
-[![](https://4.bp.blogspot.com/-RaTsjQISSVM/XCjLA1nS7jI/AAAAAAAADiU/7b3c506FN-U1ZfZ4FdKLRXvqLR7pPXI-ACLcBGAs/s640/13.jpg)](https://4.bp.blogspot.com/-RaTsjQISSVM/XCjLA1nS7jI/AAAAAAAADiU/7b3c506FN-U1ZfZ4FdKLRXvqLR7pPXI-ACLcBGAs/s1600/13.jpg)
+![](/images/medihealnmf.jpg)
 
   
 

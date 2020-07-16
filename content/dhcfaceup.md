@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 我想我是幸運的一個  
 
-[![](https://3.bp.blogspot.com/-O6K1F8AWoSE/XCQ75x5HQPI/AAAAAAAAB5w/YVrpRl4RSzccotYv7E76fFe1drAIMcbCwCLcBGAs/s640/7.jpg)](https://3.bp.blogspot.com/-O6K1F8AWoSE/XCQ75x5HQPI/AAAAAAAAB5w/YVrpRl4RSzccotYv7E76fFe1drAIMcbCwCLcBGAs/s1600/7.jpg)
+![](/images/dhcfaceup.jpg)
 
 有很多人都說這是件雷品  
 但我用是work的，去了少少水腫  

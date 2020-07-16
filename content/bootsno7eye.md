@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 愛用這隻eye mask：如其名，夠whitening同hydrating！  
 
-[![](https://3.bp.blogspot.com/-oVHbf-H2pO0/XCQ8xQIVkjI/AAAAAAAAB6I/gDPRm3yhBHc1eXh1ZaQ9A1F1u-jOCwUowCLcBGAs/s640/10.jpg)](https://3.bp.blogspot.com/-oVHbf-H2pO0/XCQ8xQIVkjI/AAAAAAAAB6I/gDPRm3yhBHc1eXh1ZaQ9A1F1u-jOCwUowCLcBGAs/s1600/10.jpg)
+![](/images/bootsno7eye.jpg)
 
 實不相瞞，我是用作急救mask般用的   
 會一次連續敷上五日，甚至七日  

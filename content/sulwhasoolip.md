@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 很喜歡這枝唇霜，雖然當初只為「湊數」而買  
 
-[![](https://2.bp.blogspot.com/-cFo7PaCf3aw/XCdhvvVu9ZI/AAAAAAAACpQ/dUGxcFxdTgEpd_RXyEt2OweiB6g5UShswCLcBGAs/s640/22.jpg)](https://2.bp.blogspot.com/-cFo7PaCf3aw/XCdhvvVu9ZI/AAAAAAAACpQ/dUGxcFxdTgEpd_RXyEt2OweiB6g5UShswCLcBGAs/s1600/22.jpg)
+![](/images/sulwhasoolip.jpg)
 
 唧出來像超濃縮的潤燥似的  
 杰身啡色的，不太濃的韓藥味  

@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 除了這瓶，我就已經想不到了  
 （但數cleanser的話就不是它）  
 
-[![](https://2.bp.blogspot.com/-x4V5lolSryQ/XChxacIY6FI/AAAAAAAAC-0/DPcvGEt-pcoz9ImoPtr6Bq7JykPJ2R6kgCLcBGAs/s640/12.jpg)](https://2.bp.blogspot.com/-x4V5lolSryQ/XChxacIY6FI/AAAAAAAAC-0/DPcvGEt-pcoz9ImoPtr6Bq7JykPJ2R6kgCLcBGAs/s1600/12.jpg)
+![](/images/evelomcleanser.jpg)
 
 樸素的包裝，大大的一罐（200ml）  
 打開蓋就聞到很舒服的香薰味道  

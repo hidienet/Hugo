@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 懶人最愛sleeping mask  
 
-[![](https://3.bp.blogspot.com/-rzeNODU-f4Y/XC3059b6ysI/AAAAAAAADzw/lRv29hZQcqEDjwvzZuw7GAPUzlypz1tIgCLcBGAs/s640/40.jpg)](https://3.bp.blogspot.com/-rzeNODU-f4Y/XC3059b6ysI/AAAAAAAADzw/lRv29hZQcqEDjwvzZuw7GAPUzlypz1tIgCLcBGAs/s1600/40.jpg)
+![](/images/mioggisleep.jpg)
 
 透明的gel，超淡的香味  
 塗抹後很快就全吸收  

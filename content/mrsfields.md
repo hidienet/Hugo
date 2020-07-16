@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族]
 chewy的cookies都好好食  
 （那有甚麼的不好食？「漏風的」XD）  
 
-[![](https://1.bp.blogspot.com/-r4Jq3foIP3E/XC4ISzrW92I/AAAAAAAAD2U/Q65priX2VWwZg6GYyBrhD_LU-AGfIX_oQCLcBGAs/s640/62.jpg)](https://1.bp.blogspot.com/-r4Jq3foIP3E/XC4ISzrW92I/AAAAAAAAD2U/Q65priX2VWwZg6GYyBrhD_LU-AGfIX_oQCLcBGAs/s1600/62.jpg)
+![](/images/mrsfields.jpg)
 
 愛食dark chocolate  
 但偶爾食white chocolate都不會抗拒  

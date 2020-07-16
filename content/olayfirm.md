@@ -9,12 +9,10 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 那天，小不點問我有沒有修緊的mask  
 找呀找，找到這片遞給她  
 
-[![](https://1.bp.blogspot.com/-CpJMjgj7muY/XCiLQ9zUQfI/AAAAAAAADO0/ffHdchxb8VcZijn_mdmAxaU7GDyAOmi-gCLcBGAs/s640/68.jpg)](https://1.bp.blogspot.com/-CpJMjgj7muY/XCiLQ9zUQfI/AAAAAAAADO0/ffHdchxb8VcZijn_mdmAxaU7GDyAOmi-gCLcBGAs/s1600/68.jpg)
+![](/images/olayfirm.jpg)
 
-但她居然鄙視地說：  
-  
-「吓？ 賤lay呀？ 唔要！你求其俾塊美白我就算！」  
-  
+但她居然鄙視地說：    
+「吓？ 賤lay呀？ 唔要！你求其俾塊美白我就算！」    
 （！！！）  
   
 雖然這片面膜應該是不知道哪裡的贈品or誰送給我用  

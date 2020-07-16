@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 這個品牌有很多人都會認知的是落妝水  
 不過這枝保濕也算這家的名物  
 
-[![](https://4.bp.blogspot.com/-2RLTuLdtbc0/XCdnleDef8I/AAAAAAAACrs/RaOcAr7i6T0BIv4BNP2NTnIH2d7C37CwACLcBGAs/s640/41.jpg)](https://4.bp.blogspot.com/-2RLTuLdtbc0/XCdnleDef8I/AAAAAAAACrs/RaOcAr7i6T0BIv4BNP2NTnIH2d7C37CwACLcBGAs/s1600/41.jpg)
+![](/images/biodermahydrabio.jpg)
 
 醫學品牌，說是甚麼爛肌膚都可以用  
 上網看過又好像沒有人用它之後會敏感哭喪的樣子  

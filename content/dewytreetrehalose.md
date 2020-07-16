@@ -13,7 +13,7 @@ trehalose本名是海藻糖
 提取的自然保濕成分（即不知明的甚麼）  
 再加上海藻糖這樣
 
-[![](https://1.bp.blogspot.com/-BgsOugliuDI/XC3wp9ENrNI/AAAAAAAADxw/RMA3UlJ4kcYdSiyTSkBjYM-B_73wGJVRACLcBGAs/s640/23.jpg)](https://1.bp.blogspot.com/-BgsOugliuDI/XC3wp9ENrNI/AAAAAAAADxw/RMA3UlJ4kcYdSiyTSkBjYM-B_73wGJVRACLcBGAs/s1600/23.jpg)
+![](/images/dewytreetrehalose.jpg)
 
 管他吧～ 不就是保濕mask一塊  
 超薄的純棉mask  

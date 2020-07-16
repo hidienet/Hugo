@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 青蘋果除了好吃，還可以收毛孔？  
 （最愛吃法國golden apple！）  
 
-[![](https://4.bp.blogspot.com/-CjoovIERyOU/XC4J-Uz38PI/AAAAAAAAD3Q/Nnrm6F0_FYQCgawQHhV20UrxXpOsq6PBQCLcBGAs/s640/69.jpg)](https://4.bp.blogspot.com/-CjoovIERyOU/XC4J-Uz38PI/AAAAAAAAD3Q/Nnrm6F0_FYQCgawQHhV20UrxXpOsq6PBQCLcBGAs/s1600/69.jpg)
+![](/images/tonymolyapple.jpg)
 
 一陣陣清新的青蘋果氣味  
 從包裝袋裡湧出  

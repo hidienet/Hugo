@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 但來自韓國這種阿嫲級的刷布  
 卻是又便宜又好用的超耐用產品  
 
-[![](https://2.bp.blogspot.com/-qs5NUVR2l4M/XCi1J7kZSRI/AAAAAAAADdY/eN9jT1s_Jo4MEhdXeBUJrfsrABOADXNsQCLcBGAs/s640/12.jpg)](https://2.bp.blogspot.com/-qs5NUVR2l4M/XCi1J7kZSRI/AAAAAAAADdY/eN9jT1s_Jo4MEhdXeBUJrfsrABOADXNsQCLcBGAs/s1600/12.jpg)
+![](/images/daisoscrubtower.jpg)
 
 薄薄的帶紋路的布料  
 摸上手「鞋拾拾」的  

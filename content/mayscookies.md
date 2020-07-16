@@ -8,24 +8,17 @@ tags : [flavor - 螞蟻族]
 
 究竟「雞汁may」買的杏仁曲奇有沒有落雞汁？  
 
-[![](https://2.bp.blogspot.com/-hFZH_BPRb1g/XCOOb--wEII/AAAAAAAAB1Q/AqsxxEWyKTwdNJplaYwuIfWv_buGS-nGACLcBGAs/s640/9.jpg)](https://2.bp.blogspot.com/-hFZH_BPRb1g/XCOOb--wEII/AAAAAAAAB1Q/AqsxxEWyKTwdNJplaYwuIfWv_buGS-nGACLcBGAs/s1600/9.jpg)
+![](/images/mayscookies.jpg)
 
-金黃色的曲奇裡插入一片片的杏仁片
-
-袋子外怎樣出盡力也「索」不到曲奇應有的牛油香氣
-
+金黃色的曲奇裡插入一片片的杏仁片  
+袋子外怎樣出盡力也「索」不到曲奇應有的牛油香氣  
 開封後才有點牛油跟杏仁的氣味飄出
 
   
 
-入口牛油味不重，非常非常鬆脆
-
-杏仁片的硬度在這脆口的曲奇中令咬下咀嚼時沒有粉碎了的感覺
-
-脆身清爽而不黏口，但淡淡的牛油跟杏仁味繼續於口中盤旋
-
-  
-
+入口牛油味不重，非常非常鬆脆  
+杏仁片的硬度在這脆口的曲奇中令咬下咀嚼時沒有粉碎了的感覺  
+脆身清爽而不黏口，但淡淡的牛油跟杏仁味繼續於口中盤旋  
 配香甜的茶就成一個美味的break呢～
 
   

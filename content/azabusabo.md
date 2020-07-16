@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 甜美的人生怎能缺少甜美的食物？  
 
-[![](https://2.bp.blogspot.com/-ziLc1t4r9Yo/XCOQESj2bBI/AAAAAAAAB2E/A1nRzWrCGCsmjDwo167huEfAyek8sWxMwCLcBGAs/s320/16.jpg)](https://2.bp.blogspot.com/-ziLc1t4r9Yo/XCOQESj2bBI/AAAAAAAAB2E/A1nRzWrCGCsmjDwo167huEfAyek8sWxMwCLcBGAs/s1600/16.jpg)
+![](/images/azabusabo.jpg)
 
 來一份熱的安倍川年糕  
 熱熱的日式年糕上有香香的黃豆粉   
@@ -20,7 +20,7 @@ tags : [flavor - 螞蟻族]
   
   
 
-[![](https://2.bp.blogspot.com/-hkkIrnuIdW8/XCOQNugJL5I/AAAAAAAAB2I/_goIkAjUmAsxLb2P5iqHBS_tO66fwh4BACLcBGAs/s640/17.jpg)](https://2.bp.blogspot.com/-hkkIrnuIdW8/XCOQNugJL5I/AAAAAAAAB2I/_goIkAjUmAsxLb2P5iqHBS_tO66fwh4BACLcBGAs/s1600/17.jpg)
+![](/images/azabusabo1.jpg)
 
 再來是超喜歡的（半？）凍食  
 燒蕃薯霜淇淋－宇治金時   

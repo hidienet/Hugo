@@ -6,9 +6,10 @@ aliases: [ "/2013/10/masque-sk-ii-ws-derm-revival-program.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-一整塊臉白一個tone？未夠，我要斑點自身再白多一個tone！  
+一整塊臉白一個tone？  
+未夠，我要斑點自身再白多一個tone！  
 
-[![](https://1.bp.blogspot.com/-VQhCOcycp6s/XCRVDift3zI/AAAAAAAACDw/N5IddU5fVBEb1QT7SUs6lnfnPu9ZV9BlQCLcBGAs/s640/10.jpg)](https://1.bp.blogspot.com/-VQhCOcycp6s/XCRVDift3zI/AAAAAAAACDw/N5IddU5fVBEb1QT7SUs6lnfnPu9ZV9BlQCLcBGAs/s1600/10.jpg)
+![](/images/skiirevival.jpg)
 
 平日的美白mask會令面部表面白了  
 但要明白，斑是一條長～～線一直落  

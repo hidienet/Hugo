@@ -10,7 +10,7 @@ arbutin是熊果素，作用爲美白
 而α-arbutin種穩定性高的種類  
 亦是比β-arbutin強9倍（其實多9倍即多少呢？）  
 
-[![](https://1.bp.blogspot.com/-hm2LARnfgAI/XCdonkZhjhI/AAAAAAAACsI/2XaR8w4RFU8fB8VMI-sBFGQMXLfBssHKwCLcBGAs/s640/45.jpg)](https://1.bp.blogspot.com/-hm2LARnfgAI/XCdonkZhjhI/AAAAAAAACsI/2XaR8w4RFU8fB8VMI-sBFGQMXLfBssHKwCLcBGAs/s1600/45.jpg)
+![](/images/dhcarbutin.jpg)
 
 一片面膜裡又12ml的α-arbutin精華  
 不過從包裝袋拿出來又不覺得有好多精華  

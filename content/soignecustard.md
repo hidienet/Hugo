@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 這個mask算是多功能，而且效果也能在短時間內看得見    
 
-[![](https://4.bp.blogspot.com/-WA3fupcs-O0/XCRVsDmEO-I/AAAAAAAACEI/4le3j8eEDg4_8NAazsWlvc7yk_lovAtDQCLcBGAs/s640/13.jpg)](https://4.bp.blogspot.com/-WA3fupcs-O0/XCRVsDmEO-I/AAAAAAAACEI/4le3j8eEDg4_8NAazsWlvc7yk_lovAtDQCLcBGAs/s1600/13.jpg)
+![](/images/soignecustard.jpg)
 
 清潔面部後只需要敷上10分鐘  
 質地是十分「可愛」的   

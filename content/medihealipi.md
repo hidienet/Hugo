@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 I.P.I.是指美白針  
 但此mask是不需要真的要打針  
 
-[![](https://1.bp.blogspot.com/-PzD8N9J6wBU/XC4SLMdiv4I/AAAAAAAAD7o/PV3BE3BPvGsk7g8HxRt9jz3Go6vhJnNogCLcBGAs/s640/u.jpg)](https://1.bp.blogspot.com/-PzD8N9J6wBU/XC4SLMdiv4I/AAAAAAAAD7o/PV3BE3BPvGsk7g8HxRt9jz3Go6vhJnNogCLcBGAs/s1600/u.jpg)
+![](/images/medihealipi.jpg)
 
 面膜的布超薄  
 精華滲透整張面膜  

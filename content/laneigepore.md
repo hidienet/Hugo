@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 是在看其美白mask的時候給BA拉去試這個而買的  
 
-[![](https://3.bp.blogspot.com/-PF7kYr-4Nes/XCiIPXEYXAI/AAAAAAAADNY/O-PSkSQMqF8-wFNlScxAnvcwEfSXjNTkACLcBGAs/s640/57.jpg)](https://3.bp.blogspot.com/-PF7kYr-4Nes/XCiIPXEYXAI/AAAAAAAADNY/O-PSkSQMqF8-wFNlScxAnvcwEfSXjNTkACLcBGAs/s1600/57.jpg)
+![](/images/laneigepore.jpg)
 
 當時試在鼻子上（人不多的時候，不會太異相）  
 清洗後看起來黑頭先生們有被克制的感覺  

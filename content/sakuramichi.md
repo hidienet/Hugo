@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 每天製的（但我是下午買的已經說不上是新鮮了）銅鑼燒  
 
-[![](https://4.bp.blogspot.com/-jjk0kgUJ3Wo/XCQ9SUDPrZI/AAAAAAAAB6Q/-11lhFOnyLA1nkDM7rwTW8L4TNdv69bBgCLcBGAs/s640/11.jpg)](https://4.bp.blogspot.com/-jjk0kgUJ3Wo/XCQ9SUDPrZI/AAAAAAAAB6Q/-11lhFOnyLA1nkDM7rwTW8L4TNdv69bBgCLcBGAs/s1600/11.jpg)
+![](/images/sakuramichi.jpg)
 
 左邊的是strawberry custard味；右邊是牛油紅豆味  
 先說餅皮，前者是生皮，較輕較軟，主要配搭cream餡  

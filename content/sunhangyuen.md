@@ -8,36 +8,23 @@ tags : [flavor - 行膳積腹]
 
 這裡的南乳豬手真的是豬手！  
 
-[![](https://1.bp.blogspot.com/-2To2EG5iQZU/XCRBdXpffpI/AAAAAAAAB7k/KgRAgHouDrUyNe-AJU3XC0kPQTLLiE-uACLcBGAs/s640/21.jpg)](https://1.bp.blogspot.com/-2To2EG5iQZU/XCRBdXpffpI/AAAAAAAAB7k/KgRAgHouDrUyNe-AJU3XC0kPQTLLiE-uACLcBGAs/s1600/21.jpg)
+![](/images/sunhangyuen.jpg)
 
-很奇怪嗎？因為我要說很多地方賣的都是豬腳
-
-皮和肉的比例根本就不同！有分別的啊！
-
-講返碗麵，豬手很腍但肉沒有散開
-
-以南乳炆的豬手入味也不會死鹹
-
-皮層入口感覺豐厚，肉也很嫩沒有渣
-
+很奇怪嗎？因為我要說很多地方賣的都是豬腳  
+皮和肉的比例根本就不同！有分別的啊！  
+講返碗麵，豬手很腍但肉沒有散開  
+以南乳炆的豬手入味也不會死鹹  
+皮層入口感覺豐厚，肉也很嫩沒有渣  
 不是河粉不好吃，但配生麵才不致太膩
 
-[![](https://1.bp.blogspot.com/-iomTujeGMHs/XCRBjmEXlVI/AAAAAAAAB7o/CU3JEqlEE-QU4hwgyGMItjHPPJMXiOezwCLcBGAs/s640/22.jpg)](https://1.bp.blogspot.com/-iomTujeGMHs/XCRBjmEXlVI/AAAAAAAAB7o/CU3JEqlEE-QU4hwgyGMItjHPPJMXiOezwCLcBGAs/s1600/22.jpg)
+![](/images/sunhangyuen1.jpg)
 
-一般吃蛋牛治多為咸牛肉，這家為鮮牛肉
-
-又，很多賣鮮牛的牛也是一塊塊
-
-吃時要咬開或用口扯出來
-
-而這個蛋牛治，是鮮剁碎牛肉的蛋牛治
-
-非絞肉或肉餅般的那樣
-
-故入口能咬多幾口，鮮牛肉滑滑不會太鹹
-
-雞蛋煎至八分熟，外面焦香亦流出鮮黃色蛋汁
-
-牛肉汁跟蛋汁一同溢出，連同烘了底的麵包同吃
-
+一般吃蛋牛治多為咸牛肉，這家為鮮牛肉  
+又，很多賣鮮牛的牛也是一塊塊  
+吃時要咬開或用口扯出來  
+而這個蛋牛治，是鮮剁碎牛肉的蛋牛治  
+非絞肉或肉餅般的那樣  
+故入口能咬多幾口，鮮牛肉滑滑不會太鹹  
+雞蛋煎至八分熟，外面焦香亦流出鮮黃色蛋汁  
+牛肉汁跟蛋汁一同溢出，連同烘了底的麵包同吃  
 人間美味也～ （感動）

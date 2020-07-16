@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 甲面乾淨邊緣位沒有死皮  
 就算塗不塗指甲油手指都會漂漂亮亮  
 
-[![](https://2.bp.blogspot.com/-KpachvlUCAs/XC4SqCkfFiI/AAAAAAAAD74/cOdO7fD2ctQZmB1gH97ubV-xDWAk6tB1wCLcBGAs/s640/o.jpg)](https://2.bp.blogspot.com/-KpachvlUCAs/XC4SqCkfFiI/AAAAAAAAD74/cOdO7fD2ctQZmB1gH97ubV-xDWAk6tB1wCLcBGAs/s1600/o.jpg)
+![](/images/sparitual.jpg)
 
 先以溫水浸指甲（or 洗碗後都OK）  
 軟化表皮後用效果會更好  

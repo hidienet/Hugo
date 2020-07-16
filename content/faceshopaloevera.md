@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 蘆薈，就算被說成天上有地下無的功效  
 我也只認為它只有抗敏感的保濕作用  
 
-[![](https://3.bp.blogspot.com/-kRVoDN72TJQ/XC3x_P7xTMI/AAAAAAAADyc/HUmC43FZAl8-cmXOR4q_92LG73rA-Q58QCLcBGAs/s640/30.jpg)](https://3.bp.blogspot.com/-kRVoDN72TJQ/XC3x_P7xTMI/AAAAAAAADyc/HUmC43FZAl8-cmXOR4q_92LG73rA-Q58QCLcBGAs/s1600/30.jpg)
+![](/images/faceshopaloevera.jpg)
 
 不厚的不織布面膜紙  
 滲滿爆多的透明色精華  

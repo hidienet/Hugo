@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 來來去去不是物理性的磨磨磨  
 就是化學性的酸酸酸  
 
-[![](https://1.bp.blogspot.com/-AdV_ridmj6w/XCd2nT6wi_I/AAAAAAAACtc/2dPhhFcJiPUInokPiNJNIhTgYanD10jJACLcBGAs/s640/55.jpg)](https://1.bp.blogspot.com/-AdV_ridmj6w/XCd2nT6wi_I/AAAAAAAACtc/2dPhhFcJiPUInokPiNJNIhTgYanD10jJACLcBGAs/s1600/55.jpg)
+![](/images/neostratagelplus.jpg)
 
 酸通常的是能用在皮膚上已最強力的果酸  
 果酸呢，市面上不是AHA就是BHA  

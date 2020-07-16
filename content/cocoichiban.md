@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹]
 咖喱飯呀咖喱飯  
 你會不會覺得自己好食得太過分？  
 
-[![](https://3.bp.blogspot.com/-VMfZTuYAHS0/XC3r2rVpSvI/AAAAAAAADvY/91Zws96YreQ34w9uuM6fZBhEqFPSbmcLwCLcBGAs/s640/05.jpg)](https://3.bp.blogspot.com/-VMfZTuYAHS0/XC3r2rVpSvI/AAAAAAAADvY/91Zws96YreQ34w9uuM6fZBhEqFPSbmcLwCLcBGAs/s1600/05.jpg)
+![](/images/cocoichiban.jpg)
 
 濃濃的日式咖喱有香料味道但不辣  
 奄列那隻蛋真的很滑很滑  

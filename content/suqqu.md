@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 用了會年輕七歲的按摩霜（huh? 真好騙）  
 
-[![](https://3.bp.blogspot.com/-uRVwnu34n7g/XChvZMMSnTI/AAAAAAAAC9g/eMuTrSmXsCMDWntm9HO4qiY3kwhyTDzDwCLcBGAs/s640/01.jpg)](https://3.bp.blogspot.com/-uRVwnu34n7g/XChvZMMSnTI/AAAAAAAAC9g/eMuTrSmXsCMDWntm9HO4qiY3kwhyTDzDwCLcBGAs/s1600/01.jpg)
+![](/images/suqqu.jpg)
 
 一般的massage都是血液循環  
 血液循環跟血液循環  

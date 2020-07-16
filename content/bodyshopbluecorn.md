@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 每次經過body shop都因為鋪內的「香氣」太濃烈而卻步  
 
-[![](https://1.bp.blogspot.com/-Inrw439Qj3s/XCOTK1-xHSI/AAAAAAAAB3o/rHwFfWk8LuYoCDakPHiIzF0oWEZgTDGTgCLcBGAs/s640/28.jpg)](https://1.bp.blogspot.com/-Inrw439Qj3s/XCOTK1-xHSI/AAAAAAAAB3o/rHwFfWk8LuYoCDakPHiIzF0oWEZgTDGTgCLcBGAs/s1600/28.jpg)
+![](/images/bodyshopbluecorn.jpg)
 
 3-in-1，當然適合懶如我這樣的人（一星期敷七次面的懶人？）  
   

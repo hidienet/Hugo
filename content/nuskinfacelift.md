@@ -8,13 +8,12 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 要一塊沒有皺紋的瓜子面吖唔該～  
 
-[![](https://2.bp.blogspot.com/-ssAdFMc4dmw/XCOQgO9D2mI/AAAAAAAAB2U/egiGOXHBc6AuCidmk55oG2_NaacVbuoowCLcBGAs/s640/17.jpg)](https://2.bp.blogspot.com/-ssAdFMc4dmw/XCOQgO9D2mI/AAAAAAAAB2U/egiGOXHBc6AuCidmk55oG2_NaacVbuoowCLcBGAs/s1600/17.jpg)
+![](/images/nuskinfacelift.jpg)
 
 撫平了乾紋及淺皺紋，收好面部的輪廓線條  
 就是這個mask的用途   
   
-效果很好，毛孔也能收細  
-  
+效果很好，毛孔也能收細    
 但一定要躺下來敷30分鐘  
 不能作任何表情  
 而且拿份量一定要很準，太稀會周圍漏；  

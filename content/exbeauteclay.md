@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 只需要五分鐘，就可以換到清潔、保濕、淨白的臉  
 
-[![](https://4.bp.blogspot.com/-DVB8mAiNI-0/XCh1ox260ZI/AAAAAAAADCU/4ul7HVYD50kMKqOke4LOaHhmc7uFQEZfwCLcBGAs/s640/41.jpg)](https://4.bp.blogspot.com/-DVB8mAiNI-0/XCh1ox260ZI/AAAAAAAADCU/4ul7HVYD50kMKqOke4LOaHhmc7uFQEZfwCLcBGAs/s1600/41.jpg)
+![](/images/exbeauteclay.jpg)
 
 所以價格稍微偏高了一點  
 不過快+有效果，沒有理由不乖乖付款   

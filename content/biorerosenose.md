@@ -9,12 +9,12 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂, lifestyle - rosy ros
 黑頭先生，拜託你們走吧  
 不然我就訴諸暴力了  
 
-[![](https://3.bp.blogspot.com/-O1Dt--6Ugk0/XCiJp1yR_UI/AAAAAAAADOE/BaywISeKCto_v5THE3noeylzokRevY7cQCLcBGAs/s640/62.jpg)](https://3.bp.blogspot.com/-O1Dt--6Ugk0/XCiJp1yR_UI/AAAAAAAADOE/BaywISeKCto_v5THE3noeylzokRevY7cQCLcBGAs/s1600/62.jpg)
+![](/images/biorerosenose.jpg)
 
 又是一隻多年來愛用的物品  
 黑色的鼻貼，這些年頭已幫我拔出無數粒黑頭  
   
-最喜歡先以[ポアトル 角栓クリアジェル](http://www.hidie.net/2013/12/massage_17.html)massage  
+最喜歡先以[ポアトル 角栓クリアジェル](https://hidie.net/poretol/)massage  
 發熱後突出的黑頭再敷上這鼻貼15分鐘  
   
 黑色的鼻貼會很明顯看出成品  

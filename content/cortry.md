@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 不過這眼膜真的很好用，一直用已經過了十多個年頭  
 （我不會說我幾歲就開始敷的 XD）  
 
-[![](https://3.bp.blogspot.com/-1gGeXbk7fq4/XCiGrydf_qI/AAAAAAAADMU/DLMc5oT-4yAZNc7QoLtLPt03Uq4f40SPQCLcBGAs/s640/47.jpg)](https://3.bp.blogspot.com/-1gGeXbk7fq4/XCiGrydf_qI/AAAAAAAADMU/DLMc5oT-4yAZNc7QoLtLPt03Uq4f40SPQCLcBGAs/s1600/47.jpg)
+![](/images/cortry.jpg)
 
 超強勁的中藥味道  
 有些人很不喜歡  

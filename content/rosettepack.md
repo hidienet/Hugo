@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 一有粒粒危機，就一定會用它洗面  
 
-[![](https://1.bp.blogspot.com/-yFxHawyn0UY/XC3xRK43WWI/AAAAAAAADx8/2-n-89_fcIwug3eJysIVbftlJHqnyUa2gCLcBGAs/s640/25.jpg)](https://1.bp.blogspot.com/-yFxHawyn0UY/XC3xRK43WWI/AAAAAAAADx8/2-n-89_fcIwug3eJysIVbftlJHqnyUa2gCLcBGAs/s1600/25.jpg)
+![](/images/rosettepack.jpg)
 
 （@cosme第1位是入手的最大引誘）  
 硫磺cleansing cream  
@@ -27,7 +27,7 @@ tags : [glamorous - 保養おたく]
 用它痘痘就謝得很快  
 所以這是我得大愛品耶～  
 
-[![](https://2.bp.blogspot.com/-_ADhob_I1Og/XC3xZBE-c9I/AAAAAAAADyE/KTIfRqXgKMUB3hoxYC19jzW0LLr5w2kiACLcBGAs/s640/26.jpg)](https://2.bp.blogspot.com/-_ADhob_I1Og/XC3xZBE-c9I/AAAAAAAADyE/KTIfRqXgKMUB3hoxYC19jzW0LLr5w2kiACLcBGAs/s1600/26.jpg)
+![](/images/rosettepack1.jpg)
 
 裡面是這樣，好像是為了衛生問題的設計  
 要按周圍位置洗面膏才推出來  

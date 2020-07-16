@@ -23,7 +23,7 @@ tags : [glamorous - 蛋臉以外]
 這家店都不會像香港那樣  
 因為甚麼甚麼牌子要另加收費這樣  
 
-[![](https://2.bp.blogspot.com/-tYmTvoocK9c/XCi5yTIUzeI/AAAAAAAADf8/DQHNSJ0AVOc2SFs2Da-EkVc-5ItGrzyFQCLcBGAs/s640/35.jpg)](https://2.bp.blogspot.com/-tYmTvoocK9c/XCi5yTIUzeI/AAAAAAAADf8/DQHNSJ0AVOc2SFs2Da-EkVc-5ItGrzyFQCLcBGAs/s1600/35.jpg)
+![](/images/chanellilis647.jpg)
 
 這顏色令手看起來白了（嘻嘻）  
   

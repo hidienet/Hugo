@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 我的手肥肥軟軟，而手指是肥肥短短的  
 
-[![](https://3.bp.blogspot.com/-KJ5lxYG42VE/XCORmj7JXzI/AAAAAAAAB20/sgxbOhVu58wPWXJLIoV2dmtNNd9AmDgYwCLcBGAs/s640/21.jpg)](https://3.bp.blogspot.com/-KJ5lxYG42VE/XCORmj7JXzI/AAAAAAAAB20/sgxbOhVu58wPWXJLIoV2dmtNNd9AmDgYwCLcBGAs/s1600/21.jpg)
+![](/images/frenchnail.jpg)
 
 指甲很健康，很厚又不易裂  
 甲面也長期粉紅色   

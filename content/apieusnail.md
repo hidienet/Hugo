@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 15%的蝸牛精華（其實也不知道份量是多少）  
 
-[![](https://1.bp.blogspot.com/-v8-WQl1Y8MQ/XC4QSLjHStI/AAAAAAAAD6g/av4JPOYN0PsMHk306HfrKcf1iXcyfWOgwCLcBGAs/s640/98.jpg)](https://1.bp.blogspot.com/-v8-WQl1Y8MQ/XC4QSLjHStI/AAAAAAAAD6g/av4JPOYN0PsMHk306HfrKcf1iXcyfWOgwCLcBGAs/s1600/98.jpg)
+![](/images/apieusnail.jpg)
 
 滲滿了精華是面膜呈現淡啡黃色  
 取出後包裝袋已沒有剩下精華  

@@ -7,9 +7,10 @@ tags : [glamorous - 保養おたく]
 ---
 
 又如果，這輩子又只能再用一隻cream  
-la mer當然是抱著不放手的一罐（你la mer，去跳海好了）  
+la mer當然是抱著不放手的一罐  
+（你la mer，去跳海好了）  
 
-[![](https://3.bp.blogspot.com/-FDRsvta_U8g/XCio3_e0QFI/AAAAAAAADZ0/yj9oR-GlysESalYAW0OUWSF5YLdXgNMRACLcBGAs/s640/06.jpg)](https://3.bp.blogspot.com/-FDRsvta_U8g/XCio3_e0QFI/AAAAAAAADZ0/yj9oR-GlysESalYAW0OUWSF5YLdXgNMRACLcBGAs/s1600/06.jpg)
+![](/images/cremedelamer.jpg)
 
 搪瓷瓶裝好像比膠瓶比較好保護  
 但蓋子都是膠造的 XD  

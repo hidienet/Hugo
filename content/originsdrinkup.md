@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 面部水份充足，細胞飽飽滿滿  
 才會滑溜靚靚有光澤    
 
-[![](https://1.bp.blogspot.com/-ScW3scWOoKc/XCiOCLLc9yI/AAAAAAAADQI/82SX4P0Pwcomw_UypeL0lj1Wh3030tYKgCLcBGAs/s640/78.jpg)](https://1.bp.blogspot.com/-ScW3scWOoKc/XCiOCLLc9yI/AAAAAAAADQI/82SX4P0Pwcomw_UypeL0lj1Wh3030tYKgCLcBGAs/s1600/78.jpg)
+![](/images/originsdrinkup.jpg)
 
 推薦這枝號稱全球首隻10分鐘完成的mask  
 有住甜美的果香味   

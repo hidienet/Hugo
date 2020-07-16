@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹]
 漢堡包一向給人肥漏漏的形象  
 這次吃的是將高脂肪三個字推到極緻！  
 
-[![](https://2.bp.blogspot.com/-MhVZ7LV6UgU/XCQ5NS_1rwI/AAAAAAAAB5E/vlFoHxbdfYETILf7RtPyrH8CUcFJUJrBwCLcBGAs/s640/2.jpg)](https://2.bp.blogspot.com/-MhVZ7LV6UgU/XCQ5NS_1rwI/AAAAAAAAB5E/vlFoHxbdfYETILf7RtPyrH8CUcFJUJrBwCLcBGAs/s1600/2.jpg)
+![](/images/burgeroom.jpg)
 
 比我的一整隻手還要大的熱辣辣漢堡包  
 那是滿滿芝麻的外脆內軟包包  
@@ -28,6 +28,6 @@ foie gras跟漢堡扒的油和肉汁會流走
 但醬汁酸酸甜甜，像把一切油膩感去掉  
 反而另配的朱古力飲品喝起來比包包更膩  
 
-[![](https://4.bp.blogspot.com/-LWPLkH9Bx0M/XCQ5WfKWQqI/AAAAAAAAB5I/ET5DdOm1v0cI_9Qki5StcXC3K2Nsmb6owCLcBGAs/s640/3.jpg)](https://4.bp.blogspot.com/-LWPLkH9Bx0M/XCQ5WfKWQqI/AAAAAAAAB5I/ET5DdOm1v0cI_9Qki5StcXC3K2Nsmb6owCLcBGAs/s1600/3.jpg)
+![](/images/burgeroom1.jpg)
 
 （吃光光！）

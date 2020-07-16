@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 這枝是我覺得蠻好用  
 但未想過掏腰包買的東西  
 
-[![](https://1.bp.blogspot.com/-HXP4YebIMPc/XCdinHChquI/AAAAAAAACps/K8M5qXRiU4o_QVOOBbga6mdkVxaf762wgCLcBGAs/s640/25.jpg)](https://1.bp.blogspot.com/-HXP4YebIMPc/XCdinHChquI/AAAAAAAACps/K8M5qXRiU4o_QVOOBbga6mdkVxaf762wgCLcBGAs/s1600/25.jpg)
+![](/images/sulwhasooeye.jpg)
 
 其實也沒有為什麼  
 只是我有太多用不完的眼霜而已  

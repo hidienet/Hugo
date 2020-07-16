@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 美白是不分季節的，尤其是速效的  
 
-[![](https://3.bp.blogspot.com/-o8u1wyIdSME/XCdg95Mb-YI/AAAAAAAACoo/5bJssSEh42MhTrFz7j_sBTbl_cjEj_M2wCLcBGAs/s640/17.jpg)](https://3.bp.blogspot.com/-o8u1wyIdSME/XCdg95Mb-YI/AAAAAAAACoo/5bJssSEh42MhTrFz7j_sBTbl_cjEj_M2wCLcBGAs/s1600/17.jpg)
+![](/images/ipsawhiteex.jpg)
 
 標榜10分鐘就能美白，再懶都要一試  
   

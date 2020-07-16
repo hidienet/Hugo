@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 
 又怎可以少了嬌嫩的嘴唇？
 
-[![](/images/sarahapp.jpg)
+![](/images/sarahapp.jpg)
 
 哪來的甜美唇部磨砂  
 甜蜜的crème brûlée味道  

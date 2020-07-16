@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 即叫即做，新鮮熱烘烘上枱  
 
-[![](https://2.bp.blogspot.com/-E-skXI3IHRo/XCOTni4w_XI/AAAAAAAAB30/3w0ZsJJhn6Y0WJXV-FuQ8JbtD8SpDXDPgCLcBGAs/s640/30.jpg)](https://2.bp.blogspot.com/-E-skXI3IHRo/XCOTni4w_XI/AAAAAAAAB30/3w0ZsJJhn6Y0WJXV-FuQ8JbtD8SpDXDPgCLcBGAs/s1600/30.jpg)
+![](/images/ociowaffle.jpg)
 
 四方格仔中滲出的是牛油香氣  
 咬下脆脆的外皮裡面是軟軟內層  

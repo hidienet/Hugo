@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 剝殼雞蛋般？還未夠！要去埋衣 :p  
 
-[![](https://1.bp.blogspot.com/-h0tLr9aKZwg/XCOSe11ANoI/AAAAAAAAB3M/7NE6MR4YAPECuiYuIg9VUxKfU3olD4n6gCLcBGAs/s640/25.jpg)](https://1.bp.blogspot.com/-h0tLr9aKZwg/XCOSe11ANoI/AAAAAAAAB3M/7NE6MR4YAPECuiYuIg9VUxKfU3olD4n6gCLcBGAs/s1600/25.jpg)
+![](/images/dsbubble.jpg)
 
 我承認因為個包裝真的很可愛而買的  
 個BB的樣子真的超～可～愛～嘛～  

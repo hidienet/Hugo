@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 姑勿論有沒有效果，至少它很好玩！  
 
-[![](https://1.bp.blogspot.com/-qVk7nWrpydA/XCQ6P1CWceI/AAAAAAAAB5U/nC3Nf9l0QWM2QzSBgoq58-5TCZfoBdlBwCLcBGAs/s640/4.jpg)](https://1.bp.blogspot.com/-qVk7nWrpydA/XCQ6P1CWceI/AAAAAAAAB5U/nC3Nf9l0QWM2QzSBgoq58-5TCZfoBdlBwCLcBGAs/s1600/4.jpg)
+![](/images/cliniquewhite.jpg)
 
 用一號肥肥矮矮那個的gel敷上面  
 過10分鐘後，用二號的spray噴噴  

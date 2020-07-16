@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 補補水gel mask  
 
-![](https://3.bp.blogspot.com/-zrnl9J7svKU/XC4Nx-iBfhI/AAAAAAAAD48/ov7pfvtNJ1QE5zAK92OL6WR5uMS23dXwgCLcBGAs/s640/84.jpg)
+![](/images/mamondewatering.jpg)
 
 面膜拿出後還剩5蚊大小的精華  
 水水的精華帶一點黏膩需時才完全吸收  

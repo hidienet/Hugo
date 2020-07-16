@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 25對的腰果型補濕paper mask，只是百多元，抵！
 
-[![](https://1.bp.blogspot.com/-SBpJzdS139U/XCdGBlii41I/AAAAAAAACfk/Eqw16E0UtzQ-_o31mPKnOYD6fx96M8bCACEwYBhgL/s640/34.jpg)](https://1.bp.blogspot.com/-SBpJzdS139U/XCdGBlii41I/AAAAAAAACfk/Eqw16E0UtzQ-_o31mPKnOYD6fx96M8bCACEwYBhgL/s1600/34.jpg)
+![](/images/arrenirsheet.jpg)
 
 就是因為就算每天敷也不心痛的價錢  
 

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 給肌膚「飲用」的美肌茶
 
-![](https://3.bp.blogspot.com/-JyfwSFQ4_Ss/XC4Vhxyr3II/AAAAAAAAD9k/d42kngeGVFwi8acQA0HCay03qton-MYawCLcBGAs/s640/6.jpg)
+![](/images/face3mask.jpg)
 
 zip袋裝住32塊無獨立包裝的面膜  
 那算是懶人toner mask  

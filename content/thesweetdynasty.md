@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 感覺像在打湯圓邊爐般  
 
-[![](https://2.bp.blogspot.com/-l8rToERyG8k/XC3uT2fPsSI/AAAAAAAADw4/PYqyBVF5mXM-lLjFCxHOPvOkl_mSaGYxwCLcBGAs/s640/17.jpg)](https://2.bp.blogspot.com/-l8rToERyG8k/XC3uT2fPsSI/AAAAAAAADw4/PYqyBVF5mXM-lLjFCxHOPvOkl_mSaGYxwCLcBGAs/s1600/17.jpg)
+![](/images/thesweetdynasty.jpg)
 
 一整個明爐上檯，有點氣勢  
 薑湯的氣味就一直飄出來  

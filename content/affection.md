@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 細細粒，可以一次食多幾款  
 
-[![](https://1.bp.blogspot.com/-sH7jNuejodo/XCOU4sOj9gI/AAAAAAAAB4Q/pfzP9z2jn_kA8k5CGvfWKmflLuCq0HQLgCLcBGAs/s640/33.jpg)](https://1.bp.blogspot.com/-sH7jNuejodo/XCOU4sOj9gI/AAAAAAAAB4Q/pfzP9z2jn_kA8k5CGvfWKmflLuCq0HQLgCLcBGAs/s1600/33.jpg)
+![](/images/affection.jpg)
 
 12粒，有黑有白有牛奶有果仁有松露  
 其實除了體積比一般買的細小之外  

@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 這枝還添加了collagen，那麼應該很適合我這種老化肌膚  
 （哪來的老？）  
 
-[![](https://3.bp.blogspot.com/-xsnEzp21I_0/XCdhjrzitlI/AAAAAAAACpI/7iQazbhCf8s0kj6gWtC2CUbH7NgO0NyiwCLcBGAs/s640/21.jpg)](https://3.bp.blogspot.com/-xsnEzp21I_0/XCdhjrzitlI/AAAAAAAACpI/7iQazbhCf8s0kj6gWtC2CUbH7NgO0NyiwCLcBGAs/s1600/21.jpg)
+![](/images/mioggichoco.jpg)
 
 一打開就有濃濃的朱古力味道  
 對！是那種dark chocolate的氣味  

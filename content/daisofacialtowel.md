@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 不是死人時拿布蓋上面啦  
 （年頭年尾百無禁忌哈哈）  
 
-[![](https://4.bp.blogspot.com/-7yKPU892YqA/XCixIRf5lmI/AAAAAAAADcs/SXWUvyKPruoNiKbDnkllQuYAqEqZGKLuQCLcBGAs/s640/07.jpg)](https://4.bp.blogspot.com/-7yKPU892YqA/XCixIRf5lmI/AAAAAAAADcs/SXWUvyKPruoNiKbDnkllQuYAqEqZGKLuQCLcBGAs/s1600/07.jpg)
+![](/images/daisofacialtowel.jpg)
 
 有鼻孔位來投透氣的  
   
@@ -23,7 +23,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 超～ 舒～ 服～  
   
 另一種方法是先塗厚厚精華  
-再放上一層[膠膜](http://www.hidie.net/2013/12/masque-noble-plastic-cover-sheet.html)  
+再放上一層[膠膜](https://hidie.net/nobleplastic/)  
 才敷這暖暖的毛巾層  
   
 冷掉就拿下  

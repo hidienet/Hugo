@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 好耐無寫eye mask，因為一整個月就只敷這個  
 
-[![](https://3.bp.blogspot.com/-3bl2VLteOb4/XC3xkVGw2mI/AAAAAAAADyI/w8icOKz3qCULcqpCEGqL7JLYoVk7QW18ACLcBGAs/s640/27.jpg)](https://3.bp.blogspot.com/-3bl2VLteOb4/XC3xkVGw2mI/AAAAAAAADyI/w8icOKz3qCULcqpCEGqL7JLYoVk7QW18ACLcBGAs/s1600/27.jpg)
+![](/images/petitfeehydro.jpg)
 
 黑色的hydrogel mask有點點的金粉  
 敷在眼底下就活像一隻熊貓  

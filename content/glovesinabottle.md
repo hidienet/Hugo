@@ -6,9 +6,10 @@ aliases: [ "/2013/10/hand-gloves-in-bottle.html" ]
 tags : [glamorous - 蛋臉以外]
 ---
 
-乾燥時最常發生的工傷是paper cut，要用好一點的hand care product  
+乾燥時最常發生的工傷是paper cut  
+要用好一點的hand care product  
 
-[![](https://2.bp.blogspot.com/-KyGlCJGQTtU/XCQ48skAUyI/AAAAAAAAB48/IScYzDq3iUEr59BCw3pgGguEMAS53oeEACLcBGAs/s640/1.jpg)](https://2.bp.blogspot.com/-KyGlCJGQTtU/XCQ48skAUyI/AAAAAAAAB48/IScYzDq3iUEr59BCw3pgGguEMAS53oeEACLcBGAs/s1600/1.jpg)
+![](/images/glovesinabottle.jpg)
 
 這枝神奇東東又稱作「隱形手套」  
 味道，絕對是不敢恭維（好～難～聞～）  

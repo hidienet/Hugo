@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 10000ppm的蝸牛黏液  
 這份量好像好厲害的樣子  
 
-[![](https://2.bp.blogspot.com/-vga8P_0F2Fg/XCi0oNc9ftI/AAAAAAAADdQ/_OvKVjYvK0ssXkeT8E3Gis4Jgx4ApbVrACLcBGAs/s640/11.jpg)](https://2.bp.blogspot.com/-vga8P_0F2Fg/XCi0oNc9ftI/AAAAAAAADdQ/_OvKVjYvK0ssXkeT8E3Gis4Jgx4ApbVrACLcBGAs/s1600/11.jpg)
+![](/images/tonymolysnailgel.jpg)
 
 面膜是hydro-gel mask的質地
 

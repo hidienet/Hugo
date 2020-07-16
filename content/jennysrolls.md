@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族]
 但看到了這個盒子也愛不釋手  
 當然，最緊要不是金玉其外敗絮其中  
 
-[![](https://4.bp.blogspot.com/-hDQRmnX4fLA/XCQ9-tPu03I/AAAAAAAAB6o/1nhZ33JdOpI4Cvc8LFRyVYYjLaklsVWugCLcBGAs/s640/14.jpg)](https://4.bp.blogspot.com/-hDQRmnX4fLA/XCQ9-tPu03I/AAAAAAAAB6o/1nhZ33JdOpI4Cvc8LFRyVYYjLaklsVWugCLcBGAs/s1600/14.jpg)
+![](/images/jennysrolls.jpg)
 
 賣相跟一般的不一樣，是開口的  
 很香的牛油皮外層  
@@ -25,4 +25,4 @@ tags : [flavor - 螞蟻族]
 我？有人請的．．．  
   
   
-申延閱讀：[jenny bakery - 4 mix cookies](http://www.hidie.net/2013/12/cookies-jenny-bakery-4-mix-cookies.html)
+申延閱讀：[jenny bakery - 4 mix cookies](https://hidie.net/jenny4mix/)

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 好mask不怕入手多（其實這裡只是2盒的份量啦哈哈）  
 
-[![](https://2.bp.blogspot.com/-qi0bCwZqMt8/XCiPiQMUPtI/AAAAAAAADQ4/dVE520UXxMcwXT4Si-oY4iwqCdiG2EitQCLcBGAs/s640/84.jpg)](https://2.bp.blogspot.com/-qi0bCwZqMt8/XCiPiQMUPtI/AAAAAAAADQ4/dVE520UXxMcwXT4Si-oY4iwqCdiG2EitQCLcBGAs/s1600/84.jpg)
+![](/images/dhceye.jpg)
 
 含橄欖葉精華跟植物性保濕成分（即不知道是甚麼）  
 就是保濕跟保濕  

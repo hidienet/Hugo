@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 除了好用的東西會吸引我之外  
 好玩的東西我更是不會不入手的（笑）  
 
-[![](https://2.bp.blogspot.com/-DtSo8AobMnc/XC3sZLrMQoI/AAAAAAAADvw/GrlDPRu_w7A8_WJeZfhAHVohXzuTgZwrwCEwYBhgL/s640/07.jpg)](https://2.bp.blogspot.com/-DtSo8AobMnc/XC3sZLrMQoI/AAAAAAAADvw/GrlDPRu_w7A8_WJeZfhAHVohXzuTgZwrwCEwYBhgL/s1600/07.jpg)
+![](/images/holikaice.jpg)
 
 一搥打落包裝袋中間  
 1-2分鐘後面膜就會變凍（超過癮）  

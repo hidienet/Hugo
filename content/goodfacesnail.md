@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 平到令人跌眼球的mask（因為跌眼鏡已不夠形容）  
 
-[![](https://1.bp.blogspot.com/-wOOFTuKw_OM/XDBiG3tY4NI/AAAAAAAAEHA/WfDnNt2s62A4T0zcyLcIYwL83hnyVoPwACLcBGAs/s640/81.jpg)](https://1.bp.blogspot.com/-wOOFTuKw_OM/XDBiG3tY4NI/AAAAAAAAEHA/WfDnNt2s62A4T0zcyLcIYwL83hnyVoPwACLcBGAs/s1600/81.jpg)
+![](/images/goodfacesnail.jpg)
 
 蝸牛 x EGF  
 濃厚透明色的精華  

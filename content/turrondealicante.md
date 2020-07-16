@@ -7,10 +7,9 @@ tags : [flavor - 螞蟻族]
 ---
 
 turrón是傳統的西班牙杏仁糖果  
-
 跟平常的nougat很相似
 
-[![](https://3.bp.blogspot.com/-ACeaujQOa0o/XCh3BNI9WnI/AAAAAAAADDs/9xWohqwD3iQr4U_bIeMEi-GNviP9cZEXgCLcBGAs/s640/54.jpg)](https://3.bp.blogspot.com/-ACeaujQOa0o/XCh3BNI9WnI/AAAAAAAADDs/9xWohqwD3iQr4U_bIeMEi-GNviP9cZEXgCLcBGAs/s1600/54.jpg)
+![](/images/turrondealicante.jpg)
 
 1880這品牌更是依照西班牙對turrón的最高標準  
 （軟版至少60%杏仁；硬版更是64%的）  

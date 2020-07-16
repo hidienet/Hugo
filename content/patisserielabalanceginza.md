@@ -7,7 +7,7 @@ aliases: [ "/2014/02/cake-patisserie-la-balance-ginza.html" ]
 
 牛奶雪糕 x 芝士牛奶蛋糕  
 
-[![](https://3.bp.blogspot.com/-AwieUxJXArU/XC4UpUpg6eI/AAAAAAAAD84/C6DosyO4_oADAR0WG3QcFJTreqBd-LiFwCLcBGAs/s640/k.jpg)](https://3.bp.blogspot.com/-AwieUxJXArU/XC4UpUpg6eI/AAAAAAAAD84/C6DosyO4_oADAR0WG3QcFJTreqBd-LiFwCLcBGAs/s1600/k.jpg)
+![](/images/patisserielabalanceginza.jpg)
 
 （噢～ 蛋糕給淹沒了）  
 雪糕是3.6牛乳製作  

@@ -13,7 +13,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 這一切一切，都在香味包圍下面部就解決了  
 
-[![](https://1.bp.blogspot.com/-PyvrQ8V4rts/XChv54TJoJI/AAAAAAAAC9s/dxROJpp66N8yIAQYTJ_rgwGCmLZYeIYugCLcBGAs/s640/03.jpg)](https://1.bp.blogspot.com/-PyvrQ8V4rts/XChv54TJoJI/AAAAAAAAC9s/dxROJpp66N8yIAQYTJ_rgwGCmLZYeIYugCLcBGAs/s1600/03.jpg)
+![](/images/chantecaillelift.jpg)
 
 可惡的貴，但皮膚更可惡的不爭氣  
 因為實在真的太好用太有效果了  

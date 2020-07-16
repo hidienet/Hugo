@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 用豬皮mask補返個豬樣  
 
-[![](https://1.bp.blogspot.com/-3TWyxevxa4s/XC3twOZxqUI/AAAAAAAADwY/DJ8-O-ORpQMFmEWP5wgB3DRMN-jXMQ7_QCLcBGAs/s640/13.jpg)](https://1.bp.blogspot.com/-3TWyxevxa4s/XC3twOZxqUI/AAAAAAAADwY/DJ8-O-ORpQMFmEWP5wgB3DRMN-jXMQ7_QCLcBGAs/s1600/13.jpg)
+![](/images/pigell.jpg)
 
 豬collagen的hydrogel mask  
 奶白色一塊無分底面  
@@ -29,7 +29,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 那麼好的肌膚只用一晚就換來  
   
 雖然價格一點都不親民  
-（一塊的價錢就貴過另一品牌的一整罐[豬膠原mask](http://www.hidie.net/2014/02/masque-elizavecca-green-piggy-collagen.html)）  
+（一塊的價錢就貴過另一品牌的一整罐[豬膠原mask](https://hidie.net/elizavecca/)）  
 但效果真的極！級！好！  
 
   

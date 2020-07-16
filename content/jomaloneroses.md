@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 
 純粹的red roses，既簡單又優雅  
 
-[![](https://2.bp.blogspot.com/-mbTOTLLbYLE/XCioNocujbI/AAAAAAAADZY/iiclrC898Y8Cay54eP13CS_n9IBV0RpYQCLcBGAs/s640/02.jpg)](https://2.bp.blogspot.com/-mbTOTLLbYLE/XCioNocujbI/AAAAAAAADZY/iiclrC898Y8Cay54eP13CS_n9IBV0RpYQCLcBGAs/s1600/02.jpg)
+![](/images/jomaloneroses.jpg)
 
 筆直的瓶身，沒有甚麼花樣  
 也只有簡單大方的招紙  

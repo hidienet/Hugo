@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 天天敷都不會肉赤的保濕面膜  
 
-[![](https://2.bp.blogspot.com/-daspcc7llRs/XCYwWAw_iyI/AAAAAAAACaw/EsBEjqfL_rwHLuU8mxoKScqUpGonOPa6gCLcBGAs/s640/1.jpg)](https://2.bp.blogspot.com/-daspcc7llRs/XCYwWAw_iyI/AAAAAAAACaw/EsBEjqfL_rwHLuU8mxoKScqUpGonOPa6gCLcBGAs/s1600/1.jpg)
+![](/images/cpwatermask.jpg)
 
 （盒子藍色的，但早已掉了拍不到）
 

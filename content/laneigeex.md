@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 會用mask的應該不會不認識這sleeping mask吧  
 
-[![](https://3.bp.blogspot.com/-oh0viK9MiJs/XC4TRLzgjUI/AAAAAAAAD8A/JsUqrrTXbY8J7XThjde1t7Sf6FsTvgcJwCLcBGAs/s640/p.jpg)](https://3.bp.blogspot.com/-oh0viK9MiJs/XC4TRLzgjUI/AAAAAAAAD8A/JsUqrrTXbY8J7XThjde1t7Sf6FsTvgcJwCLcBGAs/s1600/p.jpg)
+![](/images/laneigeex.jpg)
 
 打開蓋就被香薰味籠罩  
 不過與其說香，我就覺得較人工氣味  

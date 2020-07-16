@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 指甲面平滑，塗指甲油就更加輕鬆  
 
-[![](https://3.bp.blogspot.com/-SJDw2H2yd5g/XC4GQhshtHI/AAAAAAAAD08/UB6O4kfg3zgIEo6KFfcJ9cTBAysWN_OlwCLcBGAs/s640/49.jpg)](https://3.bp.blogspot.com/-SJDw2H2yd5g/XC4GQhshtHI/AAAAAAAAD08/UB6O4kfg3zgIEo6KFfcJ9cTBAysWN_OlwCLcBGAs/s1600/49.jpg)
+![](/images/talikashaper.jpg)
 
 這枝sharper跟一般的四面刷一樣  
 不過用電的東西就能加快完成時間  

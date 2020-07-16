@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 新年除了收餐金，也可以敷鑊金 XD  
 
-[![](https://1.bp.blogspot.com/-ASyVL9Xo2Fk/XCiwkP1pKxI/AAAAAAAADcQ/Eg_IJUc6DtUVYvxGtt8KiisaW7rQCeQiACLcBGAs/s640/04.jpg)](https://1.bp.blogspot.com/-ASyVL9Xo2Fk/XCiwkP1pKxI/AAAAAAAADcQ/Eg_IJUc6DtUVYvxGtt8KiisaW7rQCeQiACLcBGAs/s1600/04.jpg)
+![](/images/faceshopsseal.jpg)
 
 24k gold x royal jelly  
 好奢華的樣子  

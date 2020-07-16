@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 面仔呀面仔，你就細D又再細D啦  
 （秀man那麼細的巴掌面？）  
 
-[![](https://2.bp.blogspot.com/-AInJ1qFLfdE/XC4O6qmeKeI/AAAAAAAAD5o/P-Zd5AHr4XI2M8ornzayPIU4ahRSwuoZwCLcBGAs/s640/90.jpg)](https://2.bp.blogspot.com/-AInJ1qFLfdE/XC4O6qmeKeI/AAAAAAAAD5o/P-Zd5AHr4XI2M8ornzayPIU4ahRSwuoZwCLcBGAs/s1600/90.jpg)
+![](/images/sciniclift.jpg)
 
 內含36ml成分爲Q10、adenosine、vitamin E等精華  
 作用都是甚麼緊緻提升加彈性云云  

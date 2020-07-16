@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 為了個「太陰人」樣子太可愛而忍不住買 XD  
 
-[![](https://4.bp.blogspot.com/-21GnBVAN5po/XC4PrkCNo3I/AAAAAAAAD6M/GfC4MwtuVzAOZrrgHJVwKXPVxoeBjDy2QCLcBGAs/s640/95.jpg)](https://4.bp.blogspot.com/-21GnBVAN5po/XC4PrkCNo3I/AAAAAAAAD6M/GfC4MwtuVzAOZrrgHJVwKXPVxoeBjDy2QCLcBGAs/s1600/95.jpg)
+![](/images/thesaemtaeeum.jpg)
 
 分兩part的美白mask  
 先用step 1 的base  

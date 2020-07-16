@@ -6,7 +6,7 @@ aliases: [ "/2013/09/cleanser-menthoderm-mint-gelato.html" ]
 tags : [glamorous - 保養おたく]
 ---
 
-[![](https://2.bp.blogspot.com/-5tU0H28DQiI/XCOIqERrwII/AAAAAAAABzA/pjgHVv-nsGAvGk4WUG1a5WaUVEDb5NNaQCLcBGAs/s640/p2.jpg)](https://2.bp.blogspot.com/-5tU0H28DQiI/XCOIqERrwII/AAAAAAAABzA/pjgHVv-nsGAvGk4WUG1a5WaUVEDb5NNaQCLcBGAs/s1600/p2.jpg)
+![](/images/menthodermmintgelato.jpg)
 
 cleanser當然是要根據不同天氣與肌膚狀態而有所不同    
   

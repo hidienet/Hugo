@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 冬天就愛敷上暖暖的mask  
 
-[![](https://4.bp.blogspot.com/-nHeEV8Ss-PI/XCh0LmY2uzI/AAAAAAAADA8/Ecu497dcQK4BgOx_i3w03MRDlRNiKeToACLcBGAs/s640/30.jpg)](https://4.bp.blogspot.com/-nHeEV8Ss-PI/XCh0LmY2uzI/AAAAAAAADA8/Ecu497dcQK4BgOx_i3w03MRDlRNiKeToACLcBGAs/s1600/30.jpg)
+![](/images/orbisform.jpg)
 
 一按瓶便擠出了綿密的泡泡  
 泡泡遇上空氣就會發熱  

@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外, glamorous - 面膜魂]
 
 指甲mask，對！就是指甲都要敷mask～  
 
-[![](https://4.bp.blogspot.com/-Rolj93W48UA/XC3wMoIgY2I/AAAAAAAADxk/xKMqJm1dM_wIlFmCWRn90_wmNdD0q8CQACLcBGAs/s640/22.jpg)](https://4.bp.blogspot.com/-Rolj93W48UA/XC3wMoIgY2I/AAAAAAAADxk/xKMqJm1dM_wIlFmCWRn90_wmNdD0q8CQACLcBGAs/s1600/22.jpg)
+![](/images/faceshopnailpack.jpg)
 
 不織布的套子  
 左右各5隻，只有拇指最大  

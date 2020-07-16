@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 店員說可以分兩次（我可以三次）用  
 這種包裝又不能封口真的好麻煩  
 
-[![](https://1.bp.blogspot.com/-z2Gd8_y3E4k/XCi58XfcymI/AAAAAAAADgE/IZzqOgjWrvMTGzMnlRRDlXwFDbScWabIgCLcBGAs/s640/36.jpg)](https://1.bp.blogspot.com/-z2Gd8_y3E4k/XCi58XfcymI/AAAAAAAADgE/IZzqOgjWrvMTGzMnlRRDlXwFDbScWabIgCLcBGAs/s1600/36.jpg)
+![](/images/tcfspinkpack.jpg)
 
 像BB吃的米糊般質地  
 加上一點點紅色粒子  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 還以為面膜會是黑色的，哈～  
 
-[![](https://4.bp.blogspot.com/-XYEu3Knhfps/XCRBAoYJA2I/AAAAAAAAB7Y/4ajm5Z3lW3UW3NnaVcfV2DO_I4V_2EmFQCLcBGAs/s640/19.jpg)](https://4.bp.blogspot.com/-XYEu3Knhfps/XCRBAoYJA2I/AAAAAAAAB7Y/4ajm5Z3lW3UW3NnaVcfV2DO_I4V_2EmFQCLcBGAs/s1600/19.jpg)
+![](/images/mbdblackpearl.jpg)
 
 沒有甚麼奇怪氣味的面膜  
 其功效是美白與加強皮膚彈性  

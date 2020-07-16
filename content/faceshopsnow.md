@@ -11,7 +11,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 因為用料跟製法都最講究，當中설（雪）系列是美白的  
 對於鍾愛美白的我，沒有不試的道理！  
 
-[![](https://2.bp.blogspot.com/--Y18ruV3_CY/XCjJM6pq4QI/AAAAAAAADg8/yioA_YEOgu8FONrJmykMRernWFyQJUytQCLcBGAs/s640/02.jpg)](https://2.bp.blogspot.com/--Y18ruV3_CY/XCjJM6pq4QI/AAAAAAAADg8/yioA_YEOgu8FONrJmykMRernWFyQJUytQCLcBGAs/s1600/02.jpg)
+![](/images/faceshopsnow.jpg)
 
 mask的質地是薄身透明sheet mask  
 比平常生物纖維的薄一點  
@@ -41,5 +41,5 @@ mask的質地是薄身透明sheet mask
   
   
   
-個人非常喜歡這塊mask～  
+非常喜歡這塊mask～  
 絕對是愛美白的強烈推薦品！

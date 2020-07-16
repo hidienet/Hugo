@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 雖然不及美國人那麼吃得甜（和油膩）  
 但這冬甩， 一定要吃原味    
 
-[![](https://4.bp.blogspot.com/-wPNfrMF1Z-w/XCh1HmLFJUI/AAAAAAAADCA/Z5ROqeeRDeo6gC-7WvNbUvAQszKi7QNMACLcBGAs/s640/39.jpg)](https://4.bp.blogspot.com/-wPNfrMF1Z-w/XCh1HmLFJUI/AAAAAAAADCA/Z5ROqeeRDeo6gC-7WvNbUvAQszKi7QNMACLcBGAs/s1600/39.jpg)
+![](/images/krispykreme.jpg)
 
 不吃它那減半甜味的款式  
 因為這包包圈不甜便不好吃   

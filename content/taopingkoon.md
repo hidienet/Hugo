@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 「哇～ 大到核爆」  
 
-[![](https://1.bp.blogspot.com/-5E1nMDN4m64/XC3tVGGqdBI/AAAAAAAADwI/SH4yv2Dmlro-_u-LU4AuQGd2Q4pIKACKgCLcBGAs/s640/11.jpg)](https://1.bp.blogspot.com/-5E1nMDN4m64/XC3tVGGqdBI/AAAAAAAADwI/SH4yv2Dmlro-_u-LU4AuQGd2Q4pIKACKgCLcBGAs/s1600/11.jpg)
+![](/images/taopingkoon.jpg)
 
 比我的頭還要大的soufflé  
 就是把法式精緻甜品  

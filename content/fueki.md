@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 這間公司原本是家生產漿糊的  
 近年出了skincare系列  
 
-[![](https://3.bp.blogspot.com/-XsNWOg76Rnw/XCiQThAvweI/AAAAAAAADRI/ORY1a-r9IycXRX3VbTNerJiyCn1DmSAPgCLcBGAs/s640/86.jpg)](https://3.bp.blogspot.com/-XsNWOg76Rnw/XCiQThAvweI/AAAAAAAADRI/ORY1a-r9IycXRX3VbTNerJiyCn1DmSAPgCLcBGAs/s1600/86.jpg)
+![](/images/fueki.jpg)
 
 聖誕包裝很可愛～  
   

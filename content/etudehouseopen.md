@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 好funny的眼罩～  
 
-[![](https://3.bp.blogspot.com/-XHHZIpTMvYg/XCi5UF053ZI/AAAAAAAADfc/P6eCO8_ZNV4Jt_K7KwkBABMEUQh8uG4GgCLcBGAs/s640/31.jpg)](https://3.bp.blogspot.com/-XHHZIpTMvYg/XCi5UF053ZI/AAAAAAAADfc/P6eCO8_ZNV4Jt_K7KwkBABMEUQh8uG4GgCLcBGAs/s1600/31.jpg)
+![](/images/etudehouseopen.jpg)
 
 但這是hydro gel mask  
 敷上去是很貼面的透明mask  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 以燕窩淨化肌膚？  
 好像兩者沒甚麼關係吧  
 
-[![](https://1.bp.blogspot.com/-sD6M0LI9nAk/XC4IHI8VzcI/AAAAAAAAD2M/1CzdHqSv-tUglmRq2Iquo1r9z-nbUVvBwCLcBGAs/s640/61.jpg)](https://1.bp.blogspot.com/-sD6M0LI9nAk/XC4IHI8VzcI/AAAAAAAAD2M/1CzdHqSv-tUglmRq2Iquo1r9z-nbUVvBwCLcBGAs/s1600/61.jpg)
+![](/images/tonymolybirdnest.jpg)
 
 雖然不明白，但亦照敷無誤  
 這張帶有淡淡花香味  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 一次過解決眼部問題？真的有那麼神奇嗎？  
 
-[![](https://3.bp.blogspot.com/-c0xmieIPkpk/XCdkhvspV_I/AAAAAAAACqs/xpuP1iJ8b24EWbdR74bG6cZFwID-pK4xQCLcBGAs/s640/34.jpg)](https://3.bp.blogspot.com/-c0xmieIPkpk/XCdkhvspV_I/AAAAAAAACqs/xpuP1iJ8b24EWbdR74bG6cZFwID-pK4xQCLcBGAs/s1600/34.jpg)
+![](/images/derminstituteeye.jpg)
 
 薄薄的蠶絲材質的眼膜  
 精華是水狀不太黏的那種  

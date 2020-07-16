@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 使用神仙水，根本就像吸食毒品一樣  
 會～ 上～ 癮～ 的～～～  
 
-[![](https://4.bp.blogspot.com/-X5A2_YMjL-k/XCQ-zjwyP2I/AAAAAAAAB68/6bm3MJ_0AMEpq7kV5rijz4DIfXdKH7aIQCLcBGAs/s640/16.jpg)](https://4.bp.blogspot.com/-X5A2_YMjL-k/XCQ-zjwyP2I/AAAAAAAAB68/6bm3MJ_0AMEpq7kV5rijz4DIfXdKH7aIQCLcBGAs/s1600/16.jpg)
+![](/images/skiiessence.jpg)
 
 只有前面中間那枝侏儒是帶淡黃色  
 因為其也那幾枝早已被的完全用光了  

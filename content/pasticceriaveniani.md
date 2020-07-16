@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 謝謝同事的意大利手信  
 
-[![](https://2.bp.blogspot.com/-BPobpp3FV4A/XCiIAaqzQiI/AAAAAAAADNM/EEKFpINKoYMVOnpBgMisD8b829KdCUiRQCLcBGAs/s640/55.jpg)](https://2.bp.blogspot.com/-BPobpp3FV4A/XCiIAaqzQiI/AAAAAAAADNM/EEKFpINKoYMVOnpBgMisD8b829KdCUiRQCLcBGAs/s1600/55.jpg)
+![](/images/pasticceriaveniani.jpg)
 
 包裝像一粒大大的糖果（更像加應子 XD）  
 整個包裝有我整隻手那麼大  
@@ -18,7 +18,7 @@ tags : [flavor - 螞蟻族]
 拆開糖果的扭扭包裝  
 （這是個很開心的舉動）  
 
-[![](https://2.bp.blogspot.com/-Tl5NU31vnrk/XCiIFhqxsWI/AAAAAAAADNQ/jYWMlq8iqwkV3wvq9IsG-sLMHy5UaIRfACLcBGAs/s640/56.jpg)](https://2.bp.blogspot.com/-Tl5NU31vnrk/XCiIFhqxsWI/AAAAAAAADNQ/jYWMlq8iqwkV3wvq9IsG-sLMHy5UaIRfACLcBGAs/s1600/56.jpg)
+![](/images/pasticceriaveniani1.jpg)
 
 裡面有兩粒米白色的波波球  
 樣子有點醜，不過這卻是傳統不造作的甜點樣子  

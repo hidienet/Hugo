@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 黑蒜面膜，哈哈～  
 
-[![](https://1.bp.blogspot.com/-t40io0SqH-g/XCW5-kC3cfI/AAAAAAAACZU/xwF19qscUFUPxMmp8VlwX3Y_CWFspE5iACLcBGAs/s640/50.jpg)](https://1.bp.blogspot.com/-t40io0SqH-g/XCW5-kC3cfI/AAAAAAAACZU/xwF19qscUFUPxMmp8VlwX3Y_CWFspE5iACLcBGAs/s1600/50.jpg)
+![](/images/beyondgarlic.jpg)
 
 打開蓋，真的是黑色的 XD  
 沒有蒜頭的味道（黑蒜本身都沒有強烈的氣味）  

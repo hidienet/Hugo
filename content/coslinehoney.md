@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 給肌膚吃點蜂蜜～  
 
-[![](https://3.bp.blogspot.com/-7jzdgXWg0JQ/XCQ9uxf3QtI/AAAAAAAAB6c/IV__zDN7bEce5o0XxYY7Y4GZxMQeE50pwCLcBGAs/s640/13.jpg)](https://3.bp.blogspot.com/-7jzdgXWg0JQ/XCQ9uxf3QtI/AAAAAAAAB6c/IV__zDN7bEce5o0XxYY7Y4GZxMQeE50pwCLcBGAs/s1600/13.jpg)
+![](/images/coslinehoney.jpg)
 
 打開蓋大叫一聲"what?!"  
 湧出來的不是甜甜的蜜糖味  

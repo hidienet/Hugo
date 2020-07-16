@@ -6,6 +6,6 @@ aliases: [ "/2014/02/danbo-mini-x-mtr_18.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://2.bp.blogspot.com/-g_rNbZl6qgE/XC4KTeqsb9I/AAAAAAAAD3Y/4vVBqQhBL908vVLkwrPuqNCR2wHhKUZzwCLcBGAs/s640/71.jpg)](https://2.bp.blogspot.com/-g_rNbZl6qgE/XC4KTeqsb9I/AAAAAAAAD3Y/4vVBqQhBL908vVLkwrPuqNCR2wHhKUZzwCLcBGAs/s1600/71.jpg)
+![](/images/danbochoihung.jpg)
 
 「哪裡有彩虹告訴我～」

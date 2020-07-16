@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 最愛自己白白淨無瑕的樣子  
 包裝張圖跟畢卡索有關嗎哈哈？  
 
-[![](https://2.bp.blogspot.com/-BPr1O3KjSig/XCisQegI0AI/AAAAAAAADbc/D3sVq438cTEcr14aW-3nTCg-9c2XjHhkgCLcBGAs/s640/19.jpg)](https://2.bp.blogspot.com/-BPr1O3KjSig/XCisQegI0AI/AAAAAAAADbc/D3sVq438cTEcr14aW-3nTCg-9c2XjHhkgCLcBGAs/s1600/19.jpg)
+![](/images/tcfswhite.jpg)
 
 不是啦～ 這是3D mask的樣式  
 滲滿精華的不織布不會很厚  

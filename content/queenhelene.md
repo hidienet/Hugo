@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 綠色膏狀的深層清潔泥面膜  
 加上薄荷，又乾爽也乾淨    
 
-[![](https://4.bp.blogspot.com/-lz1-11XTM8g/XCd1t_AFgHI/AAAAAAAACtA/X2GWlejxjr4ck-aX8M4_AL1YXIgqEcFngCLcBGAs/s640/51.jpg)](https://4.bp.blogspot.com/-lz1-11XTM8g/XCd1t_AFgHI/AAAAAAAACtA/X2GWlejxjr4ck-aX8M4_AL1YXIgqEcFngCLcBGAs/s1600/51.jpg)
+![](/images/queenhelene.jpg)
 
 2oz.裝，不算很大的一枝  
 但用的份量不太多   

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 這是我最喜歡的雪花秀product  
 也是個人最愛用的保濕精華  
 
-[![](https://4.bp.blogspot.com/-cE4sTHaFQME/XCdp_D-XXVI/AAAAAAAACss/m394mQFNd3Mmz-nZS7KjO6_01THMnw-bACLcBGAs/s640/49.jpg)](https://4.bp.blogspot.com/-cE4sTHaFQME/XCdp_D-XXVI/AAAAAAAACss/m394mQFNd3Mmz-nZS7KjO6_01THMnw-bACLcBGAs/s1600/49.jpg)
+![](/images/sulwhasooessence.jpg)
 
 於潔面後第一樣塗上面的東西  
 不是toner，是這枝essence   

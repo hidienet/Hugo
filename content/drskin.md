@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 莫過於鼻則位生瘡  
 （鼻頭的話簡直要撞牆自殺）  
 
-[![](https://1.bp.blogspot.com/-yUAWMHZBpis/XEQFScqAGyI/AAAAAAAAGBg/acsKAnH_ymgA_xc4tPyYPlQ1_tuR3sZhgCLcBGAs/s640/14474271409_2a6138fdd6_z.jpg)](https://1.bp.blogspot.com/-yUAWMHZBpis/XEQFScqAGyI/AAAAAAAAGBg/acsKAnH_ymgA_xc4tPyYPlQ1_tuR3sZhgCLcBGAs/s1600/14474271409_2a6138fdd6_z.jpg)
+![](/images/drskin.jpg)
 
 幸好雖然皮膚偏乾  
 也會有去瘡mask以備不時之需  

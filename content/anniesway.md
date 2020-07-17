@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 冷卻皮膚的凍gel mask？  
 
-[![](https://2.bp.blogspot.com/-ehTnW_aByHs/XDGFNbAncuI/AAAAAAAAEc0/GRu8tVon_KQ1qmrdYEPOUGtZtydoAFdoQCLcBGAs/s640/31.jpg)](https://2.bp.blogspot.com/-ehTnW_aByHs/XDGFNbAncuI/AAAAAAAAEc0/GRu8tVon_KQ1qmrdYEPOUGtZtydoAFdoQCLcBGAs/s1600/31.jpg)
+![](/images/anniesway.jpg)
 
 well，這罐面膜其實是深層清潔的  
 有點奇怪，因為添加美白的熊果素  

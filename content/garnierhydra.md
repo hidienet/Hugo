@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 又悶又焗的天氣  
 還是敷塊保濕mask比較好  
 
-[![](https://4.bp.blogspot.com/-qm0BjLxVN0Y/XDGCAho0PVI/AAAAAAAAEaQ/gNz09wh6l-08ML0U1efjNxjKaQspcfiGACLcBGAs/s640/09.jpg)](https://4.bp.blogspot.com/-qm0BjLxVN0Y/XDGCAho0PVI/AAAAAAAAEaQ/gNz09wh6l-08ML0U1efjNxjKaQspcfiGACLcBGAs/s1600/09.jpg)
+![](/images/garnierhydra.jpg)
 
 薄薄的紙質感覺真像第2層皮膚  
 面膜size不算大但夠敷我的面  

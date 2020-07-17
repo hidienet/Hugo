@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 碳酸碳酸光亮面膜～  
 
-[![](https://1.bp.blogspot.com/-2cZSobsOtMI/XEQh_hI6D9I/AAAAAAAAGMc/gaWVAz9qAQ4e_BmYSHETSq7UnOZ3Oe9tQCLcBGAs/s640/14620876518_fcb8046516_z.jpg)](https://1.bp.blogspot.com/-2cZSobsOtMI/XEQh_hI6D9I/AAAAAAAAGMc/gaWVAz9qAQ4e_BmYSHETSq7UnOZ3Oe9tQCLcBGAs/s1600/14620876518_fcb8046516_z.jpg)
+![](/images/pdcsodapack.jpg)
 
 包裝封面全英文易讀易明  
 （背面全日文一樣清晰）  
@@ -23,7 +23,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 不過精華吸收後光亮度有點減退  
 而且保濕度也是一般  
 
-[![](https://1.bp.blogspot.com/-DpNe0CtWVZ4/XEQiFKkFuOI/AAAAAAAAGMg/YJpbgeoGM3EQa1mj5Y86BJdcTFPzczXsACLcBGAs/s640/14826704955_0fb042421c_z.jpg)](https://1.bp.blogspot.com/-DpNe0CtWVZ4/XEQiFKkFuOI/AAAAAAAAGMg/YJpbgeoGM3EQa1mj5Y86BJdcTFPzczXsACLcBGAs/s1600/14826704955_0fb042421c_z.jpg)
+![](/images/pdcsodamilk.jpg)
 
 之後再用上同系列的保濕液  
 搖搖搖按出來是泡泡  

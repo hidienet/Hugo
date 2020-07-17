@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 黃金mask感覺土豪了點  
 那麼白金+銀呢？  
 
-[![](https://1.bp.blogspot.com/-XqQ8AxGGX_g/XEM6inpO6_I/AAAAAAAAF7E/AC-sZ_uis1UBq8axlHXoIdqvXYRdV-G9QCLcBGAs/s640/9999135066_cac70b2a99_z.jpg)](https://1.bp.blogspot.com/-XqQ8AxGGX_g/XEM6inpO6_I/AAAAAAAAF7E/AC-sZ_uis1UBq8axlHXoIdqvXYRdV-G9QCLcBGAs/s1600/9999135066_cac70b2a99_z.jpg)
+![](/images/dhcpsn.jpg)
 
 除了白金同銀，還有透明質酸  
 主要為抗氧抗菌抗衰老  

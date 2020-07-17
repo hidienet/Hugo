@@ -8,11 +8,11 @@ tags : [glamorous - 蛋臉以外]
 
 帶住枝mousse周街gel頭？  
 
-[![](https://1.bp.blogspot.com/-iESqBR-4pnI/XEQiQFezukI/AAAAAAAAGMo/rn-YOwAUCH4fNICWJ7Ye6TqlFMBPTdUNACLcBGAs/s640/14630973478_89454ce207_z.jpg)](https://1.bp.blogspot.com/-iESqBR-4pnI/XEQiQFezukI/AAAAAAAAGMo/rn-YOwAUCH4fNICWJ7Ye6TqlFMBPTdUNACLcBGAs/s1600/14630973478_89454ce207_z.jpg)
+![](/images/kpalettewhip.jpg)
 
 NO啦！這是泡泡hand cream喔～  
 
-[![](https://3.bp.blogspot.com/-OiXq-CFslng/XEQiVbsQjzI/AAAAAAAAGMw/bJIqdC7YfrEdXtQEFPYEJuKkDXXY5yTQQCLcBGAs/s640/14794610656_012f28cc14_z.jpg)](https://3.bp.blogspot.com/-OiXq-CFslng/XEQiVbsQjzI/AAAAAAAAGMw/bJIqdC7YfrEdXtQEFPYEJuKkDXXY5yTQQCLcBGAs/s1600/14794610656_012f28cc14_z.jpg)
+![](/images/kpalettewhip1.jpg)
 
 搖搖搖再擠出一舊泡  
 （T-T，手很乾耶...）  

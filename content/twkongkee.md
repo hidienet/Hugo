@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 因為之前有個舊同事一嚷著要買這個  
 所以好吧我也試一下（不蝕底）  
 
-[![](https://3.bp.blogspot.com/-kBSF5t2khfc/XDGoHlUbAQI/AAAAAAAAEmA/SnWtCvlMP7IL_4VZ4e9d7huzCwy9ghVwACLcBGAs/s640/9.jpg)](https://3.bp.blogspot.com/-kBSF5t2khfc/XDGoHlUbAQI/AAAAAAAAEmA/SnWtCvlMP7IL_4VZ4e9d7huzCwy9ghVwACLcBGAs/s1600/9.jpg)
+![](/images/twkongkee.jpg)
 
 娘爆的包裝（！）  
   

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 皮膚像蜂蜜那樣剔透有光澤（閃亮）  
 
-[![](https://2.bp.blogspot.com/-sW2-EgyNfHo/XEMk_Yyxj-I/AAAAAAAAFvg/uj8wliby7l8XXVlGwq-jqEchsEu8tb1BwCLcBGAs/s640/14196412669_da117c9905_z.jpg)](https://2.bp.blogspot.com/-sW2-EgyNfHo/XEMk_Yyxj-I/AAAAAAAAFvg/uj8wliby7l8XXVlGwq-jqEchsEu8tb1BwCLcBGAs/s1600/14196412669_da117c9905_z.jpg)
+![](/images/beyondshining.jpg)
 
 開了包裝袋已聞到香甜的蜜糖氣味  
 100% cotton，濃厚濃厚的精華  

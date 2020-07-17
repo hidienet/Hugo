@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 lazy hidie敷lazymandy，齊齊lazy（哈）  
 
-[![](https://4.bp.blogspot.com/-yvKMEFMFDf4/XEMl9EaVEhI/AAAAAAAAFv0/n5yKZHRWI2IEDurODBEQTT0j28yTtJ_FgCLcBGAs/s640/14230843380_1e7007ce37_z.jpg)](https://4.bp.blogspot.com/-yvKMEFMFDf4/XEMl9EaVEhI/AAAAAAAAFv0/n5yKZHRWI2IEDurODBEQTT0j28yTtJ_FgCLcBGAs/s1600/14230843380_1e7007ce37_z.jpg)
+![](/images/lazymandy.jpg)
 
 薄薄的奶白色bio-cellulose mask  
 色澤是來自椰子  

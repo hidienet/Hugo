@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 雖然很喜歡AESOP這品牌  
 不過這枝絕對是雷品（哼）  
 
-[![](https://2.bp.blogspot.com/-rkF7MojN3Uk/XDCxa4E1_cI/AAAAAAAAEQI/DlCdR9F0HzAsbzvI46bt8kOTFKKH1a3ZQCLcBGAs/s640/66.jpg)](https://2.bp.blogspot.com/-rkF7MojN3Uk/XDCxa4E1_cI/AAAAAAAAEQI/DlCdR9F0HzAsbzvI46bt8kOTFKKH1a3ZQCLcBGAs/s1600/66.jpg)
+![](/images/aesoprosehip.jpg)
 
 rosehip是玫瑰果不是玫瑰花我很清楚  
 但味道不要那麼難聞好嗎？  

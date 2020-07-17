@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 新鮮的印尼千層蛋糕要襯早食  
 否則就不鬆軟（購自新加波）  
 
-[![](https://3.bp.blogspot.com/-KDZu5fjXyEs/XDBkHfPBsOI/AAAAAAAAEHw/1ayiv5MixbgyYRwHfNuu0WrtO0_MIikPgCLcBGAs/s640/86.jpg)](https://3.bp.blogspot.com/-KDZu5fjXyEs/XDBkHfPBsOI/AAAAAAAAEHw/1ayiv5MixbgyYRwHfNuu0WrtO0_MIikPgCLcBGAs/s1600/86.jpg)
+![](/images/kedaikuekue.jpg)
 
 綠色的班蘭口味  
 不太規則的一層層  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 用鑽石拋光肌膚（閃亮）  
 
-[![](https://1.bp.blogspot.com/-Uugb8i1BHYM/XERvPPwGHKI/AAAAAAAAGWc/p8fVjztDk0AfSruCpJUehOyDL4Z3sjCswCLcBGAs/s640/14859606536_50853f76e4_z.jpg)](https://1.bp.blogspot.com/-Uugb8i1BHYM/XERvPPwGHKI/AAAAAAAAGWc/p8fVjztDk0AfSruCpJUehOyDL4Z3sjCswCLcBGAs/s1600/14859606536_50853f76e4_z.jpg)
+![](/images/hauteskindiamond.jpg)
 
 每罐含有20份（0.2卡）鑽石  
 能磨磨砂鑽去除死皮之外  

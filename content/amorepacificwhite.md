@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 牙齒美白筆不是甚麼新鮮事  
 只差在有效無效會不會令牙肉敏感  
 
-[![](https://1.bp.blogspot.com/-UbF6t9GsqC8/XERrPyLBQuI/AAAAAAAAGU0/CvhNQjKPIuEDqXRUJMQk6-qY8JfY1PZkwCLcBGAs/s640/14682557517_811b83d7f5_z.jpg)](https://1.bp.blogspot.com/-UbF6t9GsqC8/XERrPyLBQuI/AAAAAAAAGU0/CvhNQjKPIuEDqXRUJMQk6-qY8JfY1PZkwCLcBGAs/s1600/14682557517_811b83d7f5_z.jpg)
+![](/images/amorepacificwhite.jpg)
 
 不敢說大公司出品必屬佳品  
 但aroma pacific出的東東  
@@ -25,7 +25,7 @@ tags : [glamorous - 蛋臉以外]
 不是髒髒黃黃嘔心啦拜託  
   
 我只在晚上刷牙後用  
-時間充裕會再加[藍光機](http://www.hidie.net/2014/07/smile-dr-white-ultra-magic-tooth.html)  
+時間充裕會再加[藍光機](https://hidie.net/drwhite/)  
 沒有因為用了此產品而敏感  
 然而我本身也沒有牙肉敏感問題  
 可生痱滋那四天是停用了  

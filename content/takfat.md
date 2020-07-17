@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹]
 海防道的這個臨時街市  
 「臨時」的年紀比我還要大呢～  
 
-[![](https://2.bp.blogspot.com/-jQ9SA7ROgAI/XEMxfyrcFxI/AAAAAAAAF1I/nRbeRnqDW1QFOyYHGmBTWwW2Ap7wq7LRACLcBGAs/s640/14231188669_f056ed0a0e_z.jpg)](https://2.bp.blogspot.com/-jQ9SA7ROgAI/XEMxfyrcFxI/AAAAAAAAF1I/nRbeRnqDW1QFOyYHGmBTWwW2Ap7wq7LRACLcBGAs/s1600/14231188669_f056ed0a0e_z.jpg)
+![](/images/takfat.jpg)
 
 一般食東西，通常上了一點年紀的時候也會說  
 「當年的味道乜乜乜」or「食唔返以前的物物物」  

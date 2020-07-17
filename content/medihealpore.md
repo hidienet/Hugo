@@ -11,7 +11,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 混合性皮膚，兩樣出齊  
 簡直是鬼哭神嚎的節奏啊（淚）  
 
-[![](https://3.bp.blogspot.com/-y2F8rmPSIVc/XEQJuWCoxWI/AAAAAAAAGFU/2FMvBYergZ4eT1uJRi6tAZz8b54v1OioACLcBGAs/s640/10154991275_171ed2ed04_z.jpg)](https://3.bp.blogspot.com/-y2F8rmPSIVc/XEQJuWCoxWI/AAAAAAAAGFU/2FMvBYergZ4eT1uJRi6tAZz8b54v1OioACLcBGAs/s1600/10154991275_171ed2ed04_z.jpg)
+![](/images/medihealpore.jpg)
 
 炭造的薄黑綿mask  
 見過我敷無數奇怪mask的tak  
@@ -20,7 +20,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 精華透明色濃厚濃厚卻不黏膩  
   
 敷10-20分鐘，拿下後還有很多精華  
-用手按摩怕手斷，所以用了[導入機](http://www.hidie.net/2014/07/tools-dhc-pretico.html)  
+用手按摩怕手斷，所以用了[導入機](https://hidie.net/dhcpretico/)  
 鼻翼兩邊毛孔連肉眼都看到有收細  
 像吃了骨膠原般的緊緻  
 鼻頭也稍微清透，翌日明顯地控制油脂分泌  

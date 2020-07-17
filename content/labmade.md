@@ -12,7 +12,7 @@ tags : [flavor - 螞蟻族]
 會不會既能滿足試分子料理的欲望  
 又能在炎熱夏天消消暑的好選擇？  
 
-[![](https://2.bp.blogspot.com/-jyyyte_XpRE/XEQd7etwK9I/AAAAAAAAGLs/9tmNTKBElW4E1-6Wls0yVwopwRDLM-JwgCLcBGAs/s640/14802829941_c572fc39d2_z.jpg)](https://2.bp.blogspot.com/-jyyyte_XpRE/XEQd7etwK9I/AAAAAAAAGLs/9tmNTKBElW4E1-6Wls0yVwopwRDLM-JwgCLcBGAs/s1600/14802829941_c572fc39d2_z.jpg)
+![](/images/labmade.jpg)
 
 凍檸賓乳酪（左） 薑汁豆腐花（右）  
 兩款味道對我來說都很對味  

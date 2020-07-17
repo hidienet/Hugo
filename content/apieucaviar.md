@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 片裝的魚子醬是給面吃的  
 
-[![](https://1.bp.blogspot.com/-5f4FJamn534/XEQDTahhTfI/AAAAAAAAGAE/pbKr6t9qcT42MlBlt2CzvAm0_EesQPOvACLcBGAs/s640/10155151643_c3e337a1c5_z.jpg)](https://1.bp.blogspot.com/-5f4FJamn534/XEQDTahhTfI/AAAAAAAAGAE/pbKr6t9qcT42MlBlt2CzvAm0_EesQPOvACLcBGAs/s1600/10155151643_c3e337a1c5_z.jpg)
+![](/images/apieucaviar.jpg)
 
 一片mask內含有23%魚子醬精華  
 還以為會有點腥味  

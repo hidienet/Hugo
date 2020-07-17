@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 去旅行、飲酒後必用的落妝品  
 
-[![](https://3.bp.blogspot.com/-dnd0cnZgk8Q/XEMtEPQE-9I/AAAAAAAAFzA/WKnmNmxffEMzIgGIBBPvGhTxZchyCV96gCLcBGAs/s640/14186356960_b9812c2714_z.jpg)](https://3.bp.blogspot.com/-dnd0cnZgk8Q/XEMtEPQE-9I/AAAAAAAAFzA/WKnmNmxffEMzIgGIBBPvGhTxZchyCV96gCLcBGAs/s1600/14186356960_b9812c2714_z.jpg)
+![](/images/bifesta.jpg)
 
 （衝著@cosme 第一位來買通常都無死錯人）  
 棉質柔韌，含落妝水的化妝棉  

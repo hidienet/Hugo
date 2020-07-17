@@ -6,10 +6,10 @@ aliases: [ "/2014/07/masque-sk-ii-facial-treatment-mask.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-除了喜愛用[神仙水](http://www.hidie.net/2013/10/essence-sk-ii-facial-treatment-essence.html)自製essence mask外  
+除了喜愛用[神仙水](https://hidie.net/skiiessence/)自製essence mask外  
 有時候也會破費一點買濃縮版本  
 
-[![](https://3.bp.blogspot.com/-vmGKmfLj-TU/XEQBvWVzC-I/AAAAAAAAF-8/DvXmoNXHDb8Yh5_kpCn1iQb77Rf0HphzwCLcBGAs/s640/10034759863_833bbf7e8a_z.jpg)](https://3.bp.blogspot.com/-vmGKmfLj-TU/XEQBvWVzC-I/AAAAAAAAF-8/DvXmoNXHDb8Yh5_kpCn1iQb77Rf0HphzwCLcBGAs/s1600/10034759863_833bbf7e8a_z.jpg)
+![](/images/skiimask.jpg)
 
 比平時的布mask厚身點  
 其實綿裡已經吸滿精華  

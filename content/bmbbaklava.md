@@ -6,10 +6,10 @@ aliases: [ "/2014/06/pastry-bmb-gourmet-baklava.html" ]
 tags : [flavor - 螞蟻族]
 ---
 
-就算不是新鮮的baklava（新鮮的[在此](http://www.hidie.net/2014/05/day8-rich-restaurant.html)）  
+就算不是新鮮的baklava（新鮮的[在此](https://hidie.net/bulgaria8k/)）  
 但這是真真正正的中東貨色！  
 
-[![](https://1.bp.blogspot.com/-0kmpir2xZ_Y/XEMufIW_wMI/AAAAAAAAFzY/9ZSGhjfCaeASQT3uGsFStziSo9bfnrzAgCLcBGAs/s640/14240148940_6c6ffbc4a4_z.jpg)](https://1.bp.blogspot.com/-0kmpir2xZ_Y/XEMufIW_wMI/AAAAAAAAFzY/9ZSGhjfCaeASQT3uGsFStziSo9bfnrzAgCLcBGAs/s1600/14240148940_6c6ffbc4a4_z.jpg)
+![](/images/bmbbaklava.jpg)
 
 doha機場買的喔～  
 有4種不同款色  

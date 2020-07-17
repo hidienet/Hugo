@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 在又濕又焗的春天  
 要敷張冰冰涼涼mask refresh一下  
 
-[![](https://4.bp.blogspot.com/-q94ezpff4W8/XDCGC0kAneI/AAAAAAAAEPA/Lx2ioA2jnIUBGKjVc3irGDllU4ua3M9HACLcBGAs/s640/58.jpg)](https://4.bp.blogspot.com/-q94ezpff4W8/XDCGC0kAneI/AAAAAAAAEPA/Lx2ioA2jnIUBGKjVc3irGDllU4ua3M9HACLcBGAs/s1600/58.jpg)
+![](/images/mbdice.jpg)
 
 有涼涼感覺的薄荷  
 所以一直敷上都是涼快涼快  

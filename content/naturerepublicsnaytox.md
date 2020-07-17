@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 我知我知我知，這個人叫張根碩（囂張mode）  
 
-[![](https://4.bp.blogspot.com/-QzSMc6rd6lY/XDGEi3IbUCI/AAAAAAAAEcc/UEKxPxEmK1okMG9W98_Xz9fVnr7iNpKpwCLcBGAs/s640/28.jpg)](https://4.bp.blogspot.com/-QzSMc6rd6lY/XDGEi3IbUCI/AAAAAAAAEcc/UEKxPxEmK1okMG9W98_Xz9fVnr7iNpKpwCLcBGAs/s1600/28.jpg)
+![](/images/naturerepublicsnaytox.jpg)
 
 不是看到這個樣子就買啦  
 這是not for sales的  

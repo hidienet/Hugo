@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 有效的話，貴點就貴點啦（又是姐我用得起的臭臉）  
 
-[![](https://3.bp.blogspot.com/-a3TxcHfSPGc/XDC2xbxGZQI/AAAAAAAAET8/q8t4bW99e30rmtQ7o3Jxxg4aq6C9Wb_ewCLcBGAs/s640/99.jpg)](https://3.bp.blogspot.com/-a3TxcHfSPGc/XDC2xbxGZQI/AAAAAAAAET8/q8t4bW99e30rmtQ7o3Jxxg4aq6C9Wb_ewCLcBGAs/s1600/99.jpg)
+![](/images/derminstituteface.jpg)
 
 這隻東西說是揉合  
 古印度阿育吠陀藥草療法  

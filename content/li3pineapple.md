@@ -6,9 +6,9 @@ aliases: [ "/2014/05/time_8.html" ]
 tags : [flavor - 螞蟻族]
 ---
 
-在九份等巴士時殺了的一盒（笑）  
+在[九份](https://hidie.net/taipei3a/)等巴士時殺了的一盒（笑）  
 
-[![](https://4.bp.blogspot.com/-ShqH_QjVy7I/XDGorubg3FI/AAAAAAAAEmg/_9P17dmJEWYuv9k5HoBjhsMZv8d9mRXrQCLcBGAs/s640/989.jpg)](https://4.bp.blogspot.com/-ShqH_QjVy7I/XDGorubg3FI/AAAAAAAAEmg/_9P17dmJEWYuv9k5HoBjhsMZv8d9mRXrQCLcBGAs/s1600/989.jpg)
+![](/images/li3pineapple.jpg)
 
 這個包裝有夠老土呢～  
   

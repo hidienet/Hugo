@@ -6,6 +6,6 @@ aliases: [ "/2014/03/danbo-mini-x-mtr_4082.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://4.bp.blogspot.com/-i_YyNaRr0K0/XDCxSeOwC3I/AAAAAAAAEQA/Qi1Y4TAqWS8CLeQ2C4u0dEtV7uvqZTQaACLcBGAs/s640/65.jpg)](https://4.bp.blogspot.com/-i_YyNaRr0K0/XDCxSeOwC3I/AAAAAAAAEQA/Qi1Y4TAqWS8CLeQ2C4u0dEtV7uvqZTQaACLcBGAs/s1600/65.jpg)
+![](/images/danboquarrybay.jpg)
 
-我肯定呢條唔係鰂魚！
+肯肯定呢條唔係鰂魚！

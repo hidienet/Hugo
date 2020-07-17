@@ -8,12 +8,12 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 美白之餘，滋潤也很重要  
 
-[![](https://1.bp.blogspot.com/-Q3xSNVZLLQk/XDC1BO-d8EI/AAAAAAAAESw/K9IwOgivuqQ3PnDAShd9vYYVuXuGvGPcgCLcBGAs/s640/89.jpg)](https://1.bp.blogspot.com/-Q3xSNVZLLQk/XDC1BO-d8EI/AAAAAAAAESw/K9IwOgivuqQ3PnDAShd9vYYVuXuGvGPcgCLcBGAs/s1600/89.jpg)
+![](/images/banilacoradiant.jpg)
 
 一隻mask有齊10種會令皮膚白的花  
 不單只這樣…  
 
-[![](https://3.bp.blogspot.com/-oyHmTCu2w7A/XDC1I0cArrI/AAAAAAAAES4/yeLUYkF2_GUtkPoZ8Io-sNcE3g1tqzmvQCLcBGAs/s640/90.jpg)](https://3.bp.blogspot.com/-oyHmTCu2w7A/XDC1I0cArrI/AAAAAAAAES4/yeLUYkF2_GUtkPoZ8Io-sNcE3g1tqzmvQCLcBGAs/s1600/90.jpg)
+![](/images/banilacoradiant1.jpg)
 
 塊hydrogel mask中間撐層  
 是lace，好華麗呢  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 納豆營養同酵素都很豐富  
 但我還是覺得臭臭的不好吃  
 
-[![](https://3.bp.blogspot.com/-aGSuLKs3wl4/XEMi5VCmvnI/AAAAAAAAFus/s9ZMJiYMNSMsYukUYTtxwbGJNTSh-XZCQCLcBGAs/s640/14196607377_153bdc5b6d_z.jpg)](https://3.bp.blogspot.com/-aGSuLKs3wl4/XEMi5VCmvnI/AAAAAAAAFus/s9ZMJiYMNSMsYukUYTtxwbGJNTSh-XZCQCLcBGAs/s1600/14196607377_153bdc5b6d_z.jpg)
+![](/images/beyondnatto.jpg)
 
 不過如果像這種沒有納豆氣味的mask  
 就OKOK無問題  

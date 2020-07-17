@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 雖然價格不便宜，而且香港都有得賣  
 不過還是覺得自己拿回家會新鮮點  
 
-[![](https://3.bp.blogspot.com/-2LazuSfN_a8/XDGnc7aF5qI/AAAAAAAAElo/UJE0zV2Db1ktgx9kmD25UNYeh7rjjDNcgCLcBGAs/s640/6.jpg)](https://3.bp.blogspot.com/-2LazuSfN_a8/XDGnc7aF5qI/AAAAAAAAElo/UJE0zV2Db1ktgx9kmD25UNYeh7rjjDNcgCLcBGAs/s1600/6.jpg)
+![](/images/kigorkobopine.jpg)
 
 填了色的毛筆小童畫好可愛  
 四四方方的鳳梨酥  

@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 哈哈哈～ 超好笑的red dot，好minnie呀  
 
-[![](https://1.bp.blogspot.com/-KCfzpSHOf-4/XDGIDmr6NHI/AAAAAAAAEdw/2cXvfPIKEgcFyxInuj1Bs2P1qzJHYXkwACLcBGAs/s640/38.jpg)](https://1.bp.blogspot.com/-KCfzpSHOf-4/XDGIDmr6NHI/AAAAAAAAEdw/2cXvfPIKEgcFyxInuj1Bs2P1qzJHYXkwACLcBGAs/s1600/38.jpg)
+![](/images/daisoreddot.jpg)
 
 忍不住拿出re-ment的minnie同蘑菇cupcake一齊影  
   
@@ -17,7 +17,7 @@ tags : [glamorous - 蛋臉以外]
 缺點通常都是太貴  
 買一pack的價錢差不多可抵半隻貴價指甲油  
 
-[![](https://1.bp.blogspot.com/-uAJZxtoE7_c/XDGIIz8g3cI/AAAAAAAAEd0/JxCTOrUFLGgQU5OVsY9SUB_oRV_e-ruQACLcBGAs/s640/39.jpg)](https://1.bp.blogspot.com/-uAJZxtoE7_c/XDGIIz8g3cI/AAAAAAAAEd0/JxCTOrUFLGgQU5OVsY9SUB_oRV_e-ruQACLcBGAs/s1600/39.jpg)
+![](/images/daisoreddot1.jpg)
 
 所以，親愛的韓國daiso  
 竟然出了這親民價格的指甲貼（撒花）  

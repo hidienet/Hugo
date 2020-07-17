@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 士多啤梨同乳酪都是我喜歡吃的東西  
 拿來敷，我想至少氣味應該都會喜歡吧  
 
-[![](https://3.bp.blogspot.com/-CMZHHpNjn3M/XEQCqS-LWUI/AAAAAAAAF_w/YpSpSocRoUMHBNsFIbDcu_VjXkl9VktLQCLcBGAs/s640/9999810793_e4569fdb1e_z.jpg)](https://3.bp.blogspot.com/-CMZHHpNjn3M/XEQCqS-LWUI/AAAAAAAAF_w/YpSpSocRoUMHBNsFIbDcu_VjXkl9VktLQCLcBGAs/s1600/9999810793_e4569fdb1e_z.jpg)
+![](/images/mbdberryyogurt.jpg)
 
 主打淨白零油光  
 是款適合夏天的產品  

@@ -6,11 +6,10 @@ aliases: [ "/2014/05/masque-skin-carboxy-system-co2-mask.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-1 set 5枝5塊mask，1星期用1次
-
+1 set 5枝5塊mask，1星期用1次  
 弄得去旅行都要帶著它
 
-[![](https://4.bp.blogspot.com/-vgumVqR5Kuc/XDGm9zQPQNI/AAAAAAAAElc/GkgODkPJQfISvpiZM0KcrBPZzmAGcIbBgCEwYBhgL/s640/4.jpg)](https://4.bp.blogspot.com/-vgumVqR5Kuc/XDGm9zQPQNI/AAAAAAAAElc/GkgODkPJQfISvpiZM0KcrBPZzmAGcIbBgCEwYBhgL/s1600/4.jpg)
+![](/images/co2mask.jpg)
 
 韓國brand，用甚麼甚麼醫學技術  
 反正不理甚麼東東有用就OK  
@@ -40,7 +39,6 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 第一次：  
 感覺皮膚白裡透紅了一點  
 面仔稍微瘦少少  
-
 （對我來說是無料到，OK？）  
   
 第二次：  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 一打開盒蓋就看到的笑臉  
 
-[![](https://4.bp.blogspot.com/-kXH5zXKmZ-Q/XDCxt6fnAlI/AAAAAAAAEQU/ECwtxQBnZXcIrL8dmnMP1_uh2O84_biOwCLcBGAs/s640/68.jpg)](https://4.bp.blogspot.com/-kXH5zXKmZ-Q/XDCxt6fnAlI/AAAAAAAAEQU/ECwtxQBnZXcIrL8dmnMP1_uh2O84_biOwCLcBGAs/s1600/68.jpg)
+![](/images/cookiesquartet.jpg)
 
 不會太甜的手作曲奇  
 誠意應該在選料上  

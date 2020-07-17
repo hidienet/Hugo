@@ -8,29 +8,29 @@ tags : [glamorous - 保養おたく]
 
 掌心般大的飛碟～  
 
-[![](https://4.bp.blogspot.com/-OyOGJ7Jgeyw/XEMwLwu-FwI/AAAAAAAAF0Y/WFqf5tePWAEcrcvBQ4Tf12RO-s3TJNEuwCLcBGAs/s640/14475532264_1eb36e086a_z.jpg)](https://4.bp.blogspot.com/-OyOGJ7Jgeyw/XEMwLwu-FwI/AAAAAAAAF0Y/WFqf5tePWAEcrcvBQ4Tf12RO-s3TJNEuwCLcBGAs/s1600/14475532264_1eb36e086a_z.jpg)
+![](/images/talikalightduo.jpg)
 
 開了蓋，知道是甚麼嗎？  
 
-[![](https://4.bp.blogspot.com/-CBAshXrjhyw/XEMwQB0VGHI/AAAAAAAAF0c/JLg5SbDOa78gg3DMkDVgi7qf0Z9WBNeJwCLcBGAs/s640/14453628756_da41ea0d17_z.jpg)](https://4.bp.blogspot.com/-CBAshXrjhyw/XEMwQB0VGHI/AAAAAAAAF0c/JLg5SbDOa78gg3DMkDVgi7qf0Z9WBNeJwCLcBGAs/s1600/14453628756_da41ea0d17_z.jpg)
+![](/images/talikalightduo1.jpg)
 
 開著後發出橙色燈  
 用來補充collagen的  
 只需要每晚照一次就OK  
 一次亦只不過45秒鐘  
 
-[![](https://1.bp.blogspot.com/-s0HM3nhCOrw/XEMwVR5lXeI/AAAAAAAAF0g/W9i8yrKm3WQhodyig_NS3HDb96jDMovlQCLcBGAs/s640/14475431932_a705a94a2e_z.jpg)](https://1.bp.blogspot.com/-s0HM3nhCOrw/XEMwVR5lXeI/AAAAAAAAF0g/W9i8yrKm3WQhodyig_NS3HDb96jDMovlQCLcBGAs/s1600/14475431932_a705a94a2e_z.jpg)
+![](/images/talikalightduo2.jpg)
 
 關的蓋就看到印上590波長字樣  
 刺激collagen要比較底層點  
 
-[![](https://3.bp.blogspot.com/-klE0ySSXsPE/XEMwbo3cQDI/AAAAAAAAF0k/wtQgurDPIFMMQRWrp_3lGN1KorOSJ-2kwCLcBGAs/s640/14290148698_88ecfb8087_z.jpg)](https://3.bp.blogspot.com/-klE0ySSXsPE/XEMwbo3cQDI/AAAAAAAAF0k/wtQgurDPIFMMQRWrp_3lGN1KorOSJ-2kwCLcBGAs/s1600/14290148698_88ecfb8087_z.jpg)
+![](/images/talikalightduo3.jpg)
 
 話名這部機是duo  
 當然有另一面  
 波長525，沒那麼深層的光  
 
-[![](https://4.bp.blogspot.com/-CLoEbaNmk_g/XEMwgJKpg6I/AAAAAAAAF0o/XeASpdVWvpsPOGHymE-Vr6Nj0oTYMPERQCLcBGAs/s640/14290115870_0091ec3971_z.jpg)](https://4.bp.blogspot.com/-CLoEbaNmk_g/XEMwgJKpg6I/AAAAAAAAF0o/XeASpdVWvpsPOGHymE-Vr6Nj0oTYMPERQCLcBGAs/s1600/14290115870_0091ec3971_z.jpg)
+![](/images/talikalightduo4.jpg)
 
 發出綠色的光  
 作用是美白淡斑  

@@ -9,9 +9,9 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 跟一般罐裝的sleeping mask不同  
 這是像精華液般的sleeping pack  
 
-[![](https://4.bp.blogspot.com/-_dWioyUo6HA/XEMwAJl3BEI/AAAAAAAAF0Q/jyScXolRrT4bZAzLhPPKkenXITBv0oekACLcBGAs/s640/14239702677_ecc70d475a_z.jpg)](https://4.bp.blogspot.com/-_dWioyUo6HA/XEMwAJl3BEI/AAAAAAAAF0Q/jyScXolRrT4bZAzLhPPKkenXITBv0oekACLcBGAs/s1600/14239702677_ecc70d475a_z.jpg)
+![](/images/yamadahoney.jpg)
 
-樽子的樣式好漂亮喔  
+樽子的樣子好漂亮喔  
 滴管裝，方便調節分量  
 日本的設計就是user friendly  
 濃稠質地有點像稍微稀釋的蜂蜜  

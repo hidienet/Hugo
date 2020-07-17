@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 近來一時落驟雨；要麼太陽就超猛烈  
 又濕又熱，真的受不了  
 
-[![](https://2.bp.blogspot.com/--8jvE0WNOzg/XEQP7sfiUUI/AAAAAAAAGHE/ZEXyhbyIidUWCS8FcCL4QoEyflsyRR7WACLcBGAs/s640/9707524327_69265cb336_z.jpg)](https://2.bp.blogspot.com/--8jvE0WNOzg/XEQP7sfiUUI/AAAAAAAAGHE/ZEXyhbyIidUWCS8FcCL4QoEyflsyRR7WACLcBGAs/s1600/9707524327_69265cb336_z.jpg)
+![](/images/tongpakfu.jpg)
 
 沒有冰品怎樣過活？  
   

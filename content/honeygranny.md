@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族]
 加上有一小舊蜂巢那麼可愛  
 就算明知物離鄉貴都真的要試試  
 
-[![](https://4.bp.blogspot.com/-wr5Qp16Q7nM/XEM61IfqTjI/AAAAAAAAF7U/gzVDXs-CtAETOt9N35Nsjyu-yxd3eICogCLcBGAs/s640/14626651234_e8e7068982_z.jpg)](https://4.bp.blogspot.com/-wr5Qp16Q7nM/XEM61IfqTjI/AAAAAAAAF7U/gzVDXs-CtAETOt9N35Nsjyu-yxd3eICogCLcBGAs/s1600/14626651234_e8e7068982_z.jpg)
+![](/images/honeygranny.jpg)
 
 小小的一杯…  
 牛奶軟雪糕上淋上蜜糖  

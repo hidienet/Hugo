@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 美麗的海灣招紙，配上怪怪的球體
 
-[![](https://4.bp.blogspot.com/-cStDOQaGtiM/XDGCKpYrm8I/AAAAAAAAEaY/w9OwxNE9dcA9f8V_xeAGlcZRjabcw3gPACLcBGAs/s640/10.jpg)](https://4.bp.blogspot.com/-cStDOQaGtiM/XDGCKpYrm8I/AAAAAAAAEaY/w9OwxNE9dcA9f8V_xeAGlcZRjabcw3gPACLcBGAs/s1600/10.jpg)
+![](/images/greecepuff.jpg)
 
 這舊是海下面撈的海藻  
 脱了水，一球彈性彈性物體  

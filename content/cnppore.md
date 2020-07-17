@@ -6,20 +6,19 @@ aliases: [ "/2014/07/masque-cnp-laboratory-anti-pore.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-[膠原鼻貼set](http://www.hidie.net/2014/04/masque-collagen-clean.html)是很好用沒錯  
-不過也有悲慘情況的時候（哭）  
-  
+[膠原鼻貼set](https://hidie.net/momus/)是很好用沒錯  
+不過也有悲慘情況的時候（哭）    
 話說平日會先用cleansing mask  
 才敷上這黑頭mask  
-一般都是用[annie's way](http://www.hidie.net/2014/04/masque-annies-way.html)  
+一般都是用[annie's way](https://hidie.net/anniesway/)  
 但要知道，這mask要敷30-40分鐘  
 哪會經常騰出那麼多時間呢？  
-有次為了省時間點敷了[lovea](http://www.hidie.net/2014/06/masque-lovea-purifying-clay-paste-green.html)  
+有次為了省時間點敷了[lovea](https://hidie.net/loveaclay/)  
 5分鐘就OK，可惜稍微敷過了時間  
 （也大概6-7分鐘而已）  
 再敷黑頭mask，出事了出事了  
 扯甩皮！痛！死！了！！！  
-（雖然沒有[ettusais那款](http://www.hidie.net/2014/05/masque-ettusais-medicated-sebum-off-mask.html)那麼痛）  
+（雖然沒有[ettusais那款](https://hidie.net/ettusaissebumoff/)那麼痛）  
 不過一個星期很快就過去  
 皮，還未好回來  
 也不能被黑頭給下馬威的  
@@ -27,7 +26,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 （聽說這盒再韓國一推出，每個月就銷了10萬盒  
 泡菜國除了出產好多士多啤梨，也出了好多士多啤梨鼻呢）  
 
-[![](https://1.bp.blogspot.com/--pdhqWY4CwQ/XEM2dQbEOaI/AAAAAAAAF4E/nOHDhysTcagY2cftK-vLJaL55ceV8X5dgCLcBGAs/s640/14585442025_6a49353583_z.jpg)](https://1.bp.blogspot.com/--pdhqWY4CwQ/XEM2dQbEOaI/AAAAAAAAF4E/nOHDhysTcagY2cftK-vLJaL55ceV8X5dgCLcBGAs/s1600/14585442025_6a49353583_z.jpg)
+![](/images/cnppore.jpg)
 
 set裝真身（終於入正題）  
 先貼上白色的1號鼻膜  

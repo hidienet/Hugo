@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 面仔白、皮膚白、牙齒白還是未滿意  
 小小一片的underarm，我也沒有忽視喔！  
 
-[![](https://4.bp.blogspot.com/-kc9JZKarYyQ/XEv9QcPWuFI/AAAAAAAAGZ4/uBLvvnQQu3kEvtPLxcLWmAc1paTy327_ACLcBGAs/s640/14888457473_d95ce5281d_z.jpg)](https://4.bp.blogspot.com/-kc9JZKarYyQ/XEv9QcPWuFI/AAAAAAAAGZ4/uBLvvnQQu3kEvtPLxcLWmAc1paTy327_ACLcBGAs/s1600/14888457473_d95ce5281d_z.jpg)
+![](/images/pasjelsmooth.jpg)
 
 雖然underarm通常都是不見天  
 沒有經過日曬基本上是少一點煩惱  

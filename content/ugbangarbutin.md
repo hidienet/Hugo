@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 熊果素、膠原蛋白、黃蓮、高麗蔘⋯⋯  
 就是要白得來夠潤又能血液循環  
 
-[![](https://4.bp.blogspot.com/-7YfGf58GICk/XDGpbY7zVbI/AAAAAAAAEnE/zmEKAK5kQ3I3IdYwBVteUi1uyqolOcxeQCLcBGAs/s640/787.jpg)](https://4.bp.blogspot.com/-7YfGf58GICk/XDGpbY7zVbI/AAAAAAAAEnE/zmEKAK5kQ3I3IdYwBVteUi1uyqolOcxeQCLcBGAs/s1600/787.jpg)
+![](/images/ugbangarbutin.jpg)
 
 25ml的精華牢牢地鎖在面膜紙裡  
 所以包裝袋裡一滴都沒有剩  

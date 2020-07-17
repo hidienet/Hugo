@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外, glamorous - 面膜魂]
 原來用來敷指甲都不錯啊  
 （做hand mask時不是跟手指同敷的嗎？）  
 
-[![](https://3.bp.blogspot.com/-hv5tmGQ1xJc/XDGBZ9m7G5I/AAAAAAAAEZo/cMnarExupQsiJuKcaVDmoaCjgZ3RBrHAACLcBGAs/s640/04.jpg)](https://3.bp.blogspot.com/-hv5tmGQ1xJc/XDGBZ9m7G5I/AAAAAAAAEZo/cMnarExupQsiJuKcaVDmoaCjgZ3RBrHAACLcBGAs/s1600/04.jpg)
+![](/images/soobeautenail.jpg)
 
 這杯含蠟在裡面的  
 用的時候加熱水進去就可以  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 美白滲透爽膚水精華mask  
 
-[![](https://1.bp.blogspot.com/-AcVeiOx6EvY/XERqlBjxmmI/AAAAAAAAGUM/qaUK6sXtXCAt54RyQBgY-8VwnshRJaf7QCLcBGAs/s640/11151118955_4bb7216006_z.jpg)](https://1.bp.blogspot.com/-AcVeiOx6EvY/XERqlBjxmmI/AAAAAAAAGUM/qaUK6sXtXCAt54RyQBgY-8VwnshRJaf7QCLcBGAs/s1600/11151118955_4bb7216006_z.jpg)
+![](/images/lululunwhite.jpg)
 
 薄薄紙質地加上超濕的面膜  
 無香料顏色同礦物油  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 熱辣辣的夏天當然冷氣大開  
 所以別忘了保濕的重要性  
 
-[![](https://1.bp.blogspot.com/-mHv9Uiv7z3o/XEQOIPTPREI/AAAAAAAAGGE/PxTuaantuDsYgmVIjP0f_9LtMpHwmDryACLcBGAs/s640/14753946343_e909c72dc6_z.jpg)](https://1.bp.blogspot.com/-mHv9Uiv7z3o/XEQOIPTPREI/AAAAAAAAGGE/PxTuaantuDsYgmVIjP0f_9LtMpHwmDryACLcBGAs/s1600/14753946343_e909c72dc6_z.jpg)
+![](/images/tonymolyaquaporin.jpg)
 
 可是這樣的天氣最怕產品太滋潤  
 又夠保濕又夠清爽的sleeping mask  

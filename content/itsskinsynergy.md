@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 放了隻蝸牛入test tube  
 再舖上面做mask，哈哈  
 
-[![](https://4.bp.blogspot.com/--bkH-BY3izw/XENAcVlMBkI/AAAAAAAAF9E/emmRB_zOWYwRyAv7mqpxuoyhGdGC3u6WACLcBGAs/s640/10155097083_60297a4e7f_z.jpg)](https://4.bp.blogspot.com/--bkH-BY3izw/XENAcVlMBkI/AAAAAAAAF9E/emmRB_zOWYwRyAv7mqpxuoyhGdGC3u6WACLcBGAs/s1600/10155097083_60297a4e7f_z.jpg)
+![](/images/itsskinsynergy.jpg)
 
 21%蝸牛黏液精華  
 加上松茸提取物EGF熊果甘等等  

@@ -8,13 +8,13 @@ tags : [glamorous - 保養おたく]
 
 每天每分每秒都同黑頭搏鬥（握拳）  
 
-[![](https://3.bp.blogspot.com/-FnAJV8eVpyA/XEQHb_gDugI/AAAAAAAAGDQ/U_y-efX2KDE9aoJhYL_Bakb9s2oNAU1mACLcBGAs/s640/14562395266_116330ccef_z.jpg)](https://3.bp.blogspot.com/-FnAJV8eVpyA/XEQHb_gDugI/AAAAAAAAGDQ/U_y-efX2KDE9aoJhYL_Bakb9s2oNAU1mACLcBGAs/s1600/14562395266_116330ccef_z.jpg)
+![](/images/nellafantasia.jpg)
 
 二合一去黑頭gel  
 透明色的gel並不是溫熱的  
 含薄荷成份冰冰涼涼  
 
-[![](https://4.bp.blogspot.com/-akz0FppRlr0/XEQHgUURc9I/AAAAAAAAGDU/Y5YV6C_yKSkE7NlF1TktwuE7cbyd4Ug-gCLcBGAs/s640/14583607434_c0399c5178_z.jpg)](https://4.bp.blogspot.com/-akz0FppRlr0/XEQHgUURc9I/AAAAAAAAGDU/Y5YV6C_yKSkE7NlF1TktwuE7cbyd4Ug-gCLcBGAs/s1600/14583607434_c0399c5178_z.jpg)
+![](/images/nellafantasia.jpg)
 
 再以這個粒粒矽膠頭按摩  
 軟淋淋按摩好舒服  

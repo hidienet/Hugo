@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 還以為檸檬只是美白，還可以firming？  
 
-[![](https://4.bp.blogspot.com/-84ade1EN4hM/XEMiQZ5SToI/AAAAAAAAFuQ/a0Q3pRlDO9Au1jTauCi8bLPAujsc8O3ZgCLcBGAs/s640/14196608187_efa2d80e17_z.jpg)](https://4.bp.blogspot.com/-84ade1EN4hM/XEMiQZ5SToI/AAAAAAAAFuQ/a0Q3pRlDO9Au1jTauCi8bLPAujsc8O3ZgCLcBGAs/s1600/14196608187_efa2d80e17_z.jpg)
+![](/images/beyondlemon.jpg)
 
 檸檬mask當然地充滿維他命C  
 其實那氣味也能令肌膚提神有活力  

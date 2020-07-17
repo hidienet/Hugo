@@ -6,6 +6,6 @@ aliases: [ "/2014/05/danbo-mini-x-mtr.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://2.bp.blogspot.com/-N2OegDOhZV4/XDGoiwp1QgI/AAAAAAAAEmY/Abu5DJQA6-UFSwpYKcXgmGEmgzgbeLk9QCLcBGAs/s640/000.jpg)](https://2.bp.blogspot.com/-N2OegDOhZV4/XDGoiwp1QgI/AAAAAAAAEmY/Abu5DJQA6-UFSwpYKcXgmGEmgzgbeLk9QCLcBGAs/s1600/000.jpg)
+![](/images/danboshaukeiwan.jpg)
 
 自古英雄難過筲箕灣

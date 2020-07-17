@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 那麼敷面又是有甚麼作用呢？  
 （well，薯仔敷眼對我對萬年眼圈一點用都沒有）  
 
-[![](https://4.bp.blogspot.com/-w0oSEfxISgo/XEM4j1GT3WI/AAAAAAAAF5g/ljJU7_pyYf482cVI-fQnA-RkqyQveeymwCLcBGAs/s640/10504290283_863a32729b_z.jpg)](https://4.bp.blogspot.com/-w0oSEfxISgo/XEM4j1GT3WI/AAAAAAAAF5g/ljJU7_pyYf482cVI-fQnA-RkqyQveeymwCLcBGAs/s1600/10504290283_863a32729b_z.jpg)
+![](/images/icharmingpotato.jpg)
 
 在韓國mini mall的平價櫃掃回來  
 別看封面寫上英文  
@@ -18,7 +18,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 （幸好看到阿拉伯數目字知道mask大概敷幾耐）  
 不織布mask，精華都幾多  
 剪裁一般鼻頭位完全叫救命  
-貼面度一般故要用[daiso膠膜](http://www.hidie.net/2014/07/masque-daiso.html)固定  
+貼面度一般故要用[daiso膠膜](https://hidie.net/daisosilicone/)固定  
   
 敷15-20分鐘，精華都吸收得8899  
 保濕度不錯，至少比想像中的平價mask好  

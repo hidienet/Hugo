@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 絕對懷疑自己是否把膠水塗了上面（！）  
 
-[![](https://2.bp.blogspot.com/-YtLR46e2geo/XDGqEM71ZuI/AAAAAAAAEns/n249oz6BnfkVxSW382CwkyXzuaWJ9hGHACLcBGAs/s640/555.jpg)](https://2.bp.blogspot.com/-YtLR46e2geo/XDGqEM71ZuI/AAAAAAAAEns/n249oz6BnfkVxSW382CwkyXzuaWJ9hGHACLcBGAs/s1600/555.jpg)
+![](/images/dhcpeeloff.jpg)
 
 撕除式去死皮的mask  
 味道也是膠膠無誤  

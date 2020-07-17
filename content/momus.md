@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 黑頭們，你們膽敢在我面上不肯撤離  
 就不要怪我要用武力清場！  
 
-[![](https://2.bp.blogspot.com/-gET90fyqIvg/XDGG5G9_sdI/AAAAAAAAEdU/cijxwR9a9s89o8N3n17F_EsUpZ12mP9IQCLcBGAs/s640/35.jpg)](https://2.bp.blogspot.com/-gET90fyqIvg/XDGG5G9_sdI/AAAAAAAAEdU/cijxwR9a9s89o8N3n17F_EsUpZ12mP9IQCLcBGAs/s1600/35.jpg)
+![](/images/momus.jpg)
 
 一套三枝的軍事精英，出動  
 首先是中間啡色的深層清潔泥  

@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 就是愛用這種老掉了牙的cream  
 
-[![](https://4.bp.blogspot.com/-_vUKy8pa4hc/XDGn-0IpB7I/AAAAAAAAEl8/hONyv7JsNtsrS6CVyEcc5SS8-Gxk---1ACLcBGAs/s640/8.jpg)](https://4.bp.blogspot.com/-_vUKy8pa4hc/XDGn-0IpB7I/AAAAAAAAEl8/hONyv7JsNtsrS6CVyEcc5SS8-Gxk---1ACLcBGAs/s1600/8.jpg)
+![](/images/pehchaolin.jpg)
 
 白色的cream x 老氣横秋的氣味  
 很潤身，所以不敢塗抹於面上  

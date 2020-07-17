@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 有些東西，不管你給了它幾多次機會  
 雷品就是雷品（哼！）  
 
-[![](https://2.bp.blogspot.com/-NPS0lS15Rao/XDGnmvDivjI/AAAAAAAAElw/3foVoX0wFJwY8ghFlNoIa2SWmXvvYpiQwCLcBGAs/s640/7.jpg)](https://2.bp.blogspot.com/-NPS0lS15Rao/XDGnmvDivjI/AAAAAAAAElw/3foVoX0wFJwY8ghFlNoIa2SWmXvvYpiQwCLcBGAs/s1600/7.jpg)
+![](/images/ettusaissebumoff.jpg)
 
 先用那個用完即棄的軟化死皮濕紙巾  
 酸味紗布，話說可以把髒污抹出  

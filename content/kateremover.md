@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 其實對洗甲水的要求並不多  
 
-[![](https://4.bp.blogspot.com/-swsS7TLsI28/XEMsuIqQMUI/AAAAAAAAFy0/4Nq3CdUo9jc8TkNKW7EzrCg9SrhZsNu5QCLcBGAs/s640/9950408763_559f21aa50_z.jpg)](https://4.bp.blogspot.com/-swsS7TLsI28/XEMsuIqQMUI/AAAAAAAAFy0/4Nq3CdUo9jc8TkNKW7EzrCg9SrhZsNu5QCLcBGAs/s1600/9950408763_559f21aa50_z.jpg)
+![](/images/kateremover.jpg)
 
 但原來如果要卸除後指甲不泛白  
 就已有很多枝會不能放shop list（！）  

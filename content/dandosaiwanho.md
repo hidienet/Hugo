@@ -6,6 +6,6 @@ aliases: [ "/2014/03/danbo-mini-x-mtr_2479.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://3.bp.blogspot.com/-vMhCqBl-kR0/XDCF6Nuj6AI/AAAAAAAAEO4/xQVV8Xq1Dz445frehhrstXIZuwb0ZOFwgCLcBGAs/s640/57.jpg)](https://3.bp.blogspot.com/-vMhCqBl-kR0/XDCF6Nuj6AI/AAAAAAAAEO4/xQVV8Xq1Dz445frehhrstXIZuwb0ZOFwgCLcBGAs/s1600/57.jpg)
+![](/images/dandosaiwanho.jpg)
 
 好肚餓，整碗西灣河～

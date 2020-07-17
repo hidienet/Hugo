@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 手掌般大枝的精華  
 用於微細細的毛孔上  
 
-[![](https://farm6.staticflickr.com/5594/14491004647_e3be099e5b_z.jpg)](https://farm6.staticflickr.com/5594/14491004647_e3be099e5b_z.jpg)
+![](/images/leapcellpore.jpg)
 
 主要收毛孔同預防黑頭形式  
 油性鼻頭跟乾性鼻側毛孔也好好收斂  

@@ -8,7 +8,7 @@ tags : [collections - 김수현, flavor - 螞蟻族]
 
 要吃點甜品醒醒神～（yeah！）  
 
-[![](https://1.bp.blogspot.com/-Fy44ilOjyrY/XERq35_UPHI/AAAAAAAAGUc/NVlEYRc0sio4jJmrkzsCDUEol8GRUumigCLcBGAs/s640/14682922089_10c55d655f_z.jpg)](https://1.bp.blogspot.com/-Fy44ilOjyrY/XERq35_UPHI/AAAAAAAAGUc/NVlEYRc0sio4jJmrkzsCDUEol8GRUumigCLcBGAs/s1600/14682922089_10c55d655f_z.jpg)
+![](/images/cjyogurtjelly.jpg)
 
 四種不同口味的yogurt jelly  
 每杯都是爆～ 多～ 果肉  
@@ -27,6 +27,6 @@ tangerine也是一舊舊果肉在中
 而是買看似更香濃味美的sweety系列的pudding  
 但為甚麼最後入手的是它？  
 
-[![](https://1.bp.blogspot.com/-HtbGlQY4SPI/XERq8igfCcI/AAAAAAAAGUg/DHGZJ853864tHSQJ3Lk7zqzZ9lguEpuDwCLcBGAs/s640/14869553765_2a98bf7dfe_z.jpg)](https://1.bp.blogspot.com/-HtbGlQY4SPI/XERq8igfCcI/AAAAAAAAGUg/DHGZJ853864tHSQJ3Lk7zqzZ9lguEpuDwCLcBGAs/s1600/14869553765_2a98bf7dfe_z.jpg)
+![](/images/cjyogurtjelly.jpg)
 
-答案습니다（噗）
+這就是原因습니다（噗）

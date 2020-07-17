@@ -6,11 +6,10 @@ aliases: [ "/2014/08/chocolate-amedei-tuscany.html" ]
 tags : [flavor - 螞蟻族]
 ---
 
-星期五已經很有holiday mood
-
+星期五已經很有holiday mood  
 但還在office怎能好好感受happy Friday呢？  
 
-[![](https://1.bp.blogspot.com/-zai_6JiVuIE/XERnHtT0PtI/AAAAAAAAGRs/5RUkTUVtq7MMXNMvFizkY9MO2Pok2Kn5QCLcBGAs/s640/14824758941_49733029bf_z.jpg)](https://1.bp.blogspot.com/-zai_6JiVuIE/XERnHtT0PtI/AAAAAAAAGRs/5RUkTUVtq7MMXNMvFizkY9MO2Pok2Kn5QCLcBGAs/s1600/14824758941_49733029bf_z.jpg)
+![](/images/amedeituscany.jpg)
 
 當然是吃上能寵愛自己的朱古力啦  
 集香濃滑於一身  

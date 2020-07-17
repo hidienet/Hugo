@@ -8,17 +8,17 @@ tags : [glamorous - 保養おたく]
 
 多謝友人V跟我分「金」同味  
 
-[![](https://3.bp.blogspot.com/-I7FwrDecbp8/XDGFui7NIdI/AAAAAAAAEdA/wjjyLd4tAng81RWn_hRF6hvwvIAjWrUJgCLcBGAs/s640/32.jpg)](https://3.bp.blogspot.com/-I7FwrDecbp8/XDGFui7NIdI/AAAAAAAAEdA/wjjyLd4tAng81RWn_hRF6hvwvIAjWrUJgCLcBGAs/s1600/32.jpg)
+![](/images/chayasoap.jpg)
 
 簡約的包裝，誰知道裡面是包住金的呢？  
 
-[![](https://4.bp.blogspot.com/-jLBpjEhTT-8/XDGF0fcKUbI/AAAAAAAAEdE/0Jwg_brH_oQOaSmK6_wtNsEK2rjkLHUjwCLcBGAs/s640/33.jpg)](https://4.bp.blogspot.com/-jLBpjEhTT-8/XDGF0fcKUbI/AAAAAAAAEdE/0Jwg_brH_oQOaSmK6_wtNsEK2rjkLHUjwCLcBGAs/s1600/33.jpg)
+![](/images/chayasoap1.jpg)
 
 這舊金箔牛奶鹼  
 沒有濃列人工或天然奶味  
 也不是重金屬味啦哈哈  
 是最原始的白皂味  
-起泡超易，加水再用[氣泡網](http://www.hidie.net/2014/03/tools.html)  
+起泡超易，加水再用[氣泡網](https://hidie.net/mujinet/)  
 很快就打成大大舊雲朵泡  
 泡沫細密卻輕柔不厚重  
   

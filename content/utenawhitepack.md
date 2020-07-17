@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 用30秒的時間換來白白肌  
 
-[![](https://2.bp.blogspot.com/-LiyrIS3Z0mg/XERrFngDJHI/AAAAAAAAGUo/6LnD7f8vXtg7MgoX6SOQKJmQHg7nvErrQCLcBGAs/s640/14888179813_48a34033fe_z.jpg)](https://2.bp.blogspot.com/-LiyrIS3Z0mg/XERrFngDJHI/AAAAAAAAGUo/6LnD7f8vXtg7MgoX6SOQKJmQHg7nvErrQCLcBGAs/s1600/14888179813_48a34033fe_z.jpg)
+![](/images/utenawhitepack.jpg)
 
 個公仔的樣子好樣衰  
 幸好掉了packing之後就只剩下字體  

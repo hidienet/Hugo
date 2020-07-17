@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, collections - 김수현, glamorous - 面膜
 
 看著這個金秀賢，我也想有這樣的好肌膚呢（心心眼）  
 
-[![](https://1.bp.blogspot.com/-SfygREXNDQg/XEMqz7PsvFI/AAAAAAAAFxo/ZhvEaO3LP1sukdYR05e6gwtzjk_3TAgNwCLcBGAs/s640/14230796139_0fda1afbc4_z.jpg)](https://1.bp.blogspot.com/-SfygREXNDQg/XEMqz7PsvFI/AAAAAAAAFxo/ZhvEaO3LP1sukdYR05e6gwtzjk_3TAgNwCLcBGAs/s1600/14230796139_0fda1afbc4_z.jpg)
+![](/images/beyondhydra.jpg)
 
 3-gift mask中的3rd gift  
 透明質酸的水水不織布mask  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 從kanebo到改成kracie  
 這款肌美精美白mask已陪了我N個年頭  
 
-[![](https://4.bp.blogspot.com/-r_jy9RMYZOI/XDC3QfKXw0I/AAAAAAAAEUU/tpCAlhJXozgdBNxE1bYePYFBS7lGwvXCQCLcBGAs/s640/w.jpg)](https://4.bp.blogspot.com/-r_jy9RMYZOI/XDC3QfKXw0I/AAAAAAAAEUU/tpCAlhJXozgdBNxE1bYePYFBS7lGwvXCQCLcBGAs/s1600/w.jpg)
+![](/images/kraciewhite.jpg)
 
 有20ml美白精華在內  
 所以整塊不織布面膜很墜手  

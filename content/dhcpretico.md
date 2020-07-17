@@ -8,11 +8,11 @@ tags : [glamorous - 保養おたく]
 
 哈哈哈，小小的豆子好可愛（心）  
 
-[![](https://1.bp.blogspot.com/-Zj6fNiREi9A/XEMzF2j-zyI/AAAAAAAAF10/zDr7MjC87TspPkuCoT94z15eTNovJm3iACLcBGAs/s640/14291059628_f48f47de56_z.jpg)](https://1.bp.blogspot.com/-Zj6fNiREi9A/XEMzF2j-zyI/AAAAAAAAF10/zDr7MjC87TspPkuCoT94z15eTNovJm3iACLcBGAs/s1600/14291059628_f48f47de56_z.jpg)
+![](/images/dhcpretico.jpg)
 
 知道是甚麼嗎？  
 
-[![](https://2.bp.blogspot.com/--WY272FeFF4/XEMzKLKPm-I/AAAAAAAAF14/ixS3q9VnLfIh0qAS4e8NrJufBJQcf0QjwCLcBGAs/s640/14291033340_42ef9b5bb7_z.jpg)](https://2.bp.blogspot.com/--WY272FeFF4/XEMzKLKPm-I/AAAAAAAAF14/ixS3q9VnLfIh0qAS4e8NrJufBJQcf0QjwCLcBGAs/s1600/14291033340_42ef9b5bb7_z.jpg)
+![](/images/dhcpretico1.jpg)
 
 是小小的美顏器  
 別小看它機仔細細  
@@ -26,7 +26,7 @@ ION離子導出加上音波
 配合skin clear lotion導出  
 可以把毛孔裡的髒污吸出來  
 但不會看到有黑頭暗瘡整粒飛出啦  
-不像[hitachi](http://www.hidie.net/2014/02/tools-hitachi-face-crie-nc-550.html)那部有棉花  
+不像[hitachi](https://hidie.net/hitachinc550/)那部有棉花  
 所以也看不到髒污物到底有多髒  
 卻可以在洗面後看起來清新  
 用手摸摸也很爽身  

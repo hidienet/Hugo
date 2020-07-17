@@ -8,10 +8,10 @@ tags : [glamorous - 蛋臉以外, glamorous - 面膜魂]
 
 極致的美白，豈能給黃黃的牙齒毀掉？  
 
-[![](https://4.bp.blogspot.com/-A0H7VoxOblI/XEMzojJ995I/AAAAAAAAF2Q/0SO2C2a8JkISAECNeYT0priiPOLxp_TpACLcBGAs/s640/12855838844_1634dabf43_z.jpg)](https://4.bp.blogspot.com/-A0H7VoxOblI/XEMzojJ995I/AAAAAAAAF2Q/0SO2C2a8JkISAECNeYT0priiPOLxp_TpACLcBGAs/s1600/12855838844_1634dabf43_z.jpg)
+![](/images/drwhite.jpg)
 
 美白牙齒用的LED光是藍色的  
-（之前[去暗瘡筆](http://www.hidie.net/2014/07/tools-sensation-blemish-thermal.html)的也是藍燈呢）  
+（之前[去暗瘡筆](https://hidie.net/sensation/)的也是藍燈呢）  
   
 第一次用就溫水用浸軟牙膠  
 咬好個mold後放入冷水定型  

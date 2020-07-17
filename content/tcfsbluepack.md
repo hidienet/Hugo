@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 哇！可以make me girly，不可以不試試的  
 
-[![](https://1.bp.blogspot.com/-yucQQFNImw4/XEM1JOnbcTI/AAAAAAAAF3A/nJZWLjHHPVwGGreKatJ8D0DNEeaCM4cNACLcBGAs/s640/11151123535_7855cd1233_z.jpg)](https://1.bp.blogspot.com/-yucQQFNImw4/XEM1JOnbcTI/AAAAAAAAF3A/nJZWLjHHPVwGGreKatJ8D0DNEeaCM4cNACLcBGAs/s1600/11151123535_7855cd1233_z.jpg)
+![](/images/tcfsbluepack.jpg)
 
 檸檬同白米都是很傳統式的美白材料  
 除了白色的米糊質地外  

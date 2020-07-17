@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 看到包裝有個疑問：  
 「邊個會妝都未落就敷eye mask？」  
 
-[![](https://2.bp.blogspot.com/-ZucXCyXHRyo/XEQhFAgD2vI/AAAAAAAAGL0/nF5PNDiRq_YXC2jiDbut4RZTeLo3ZYCQQCLcBGAs/s640/14599777578_6bd9808d61_z.jpg)](https://2.bp.blogspot.com/-ZucXCyXHRyo/XEQhFAgD2vI/AAAAAAAAGL0/nF5PNDiRq_YXC2jiDbut4RZTeLo3ZYCQQCLcBGAs/s1600/14599777578_6bd9808d61_z.jpg)
+![](/images/ylanggallery.jpg)
 
 不深究了，反正都是key上去的  
 大大蝴蝶形剪裁的eye mask  

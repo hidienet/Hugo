@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 落妝當然重要，重點地落妝也不能忽略  
 
-[![](https://4.bp.blogspot.com/-k_DIb53lyl8/XDCGyfomgrI/AAAAAAAAEPg/yXpy9_0JDo8x_087otflIcWgMDASppzAACLcBGAs/s640/62.jpg)](https://4.bp.blogspot.com/-k_DIb53lyl8/XDCGyfomgrI/AAAAAAAAEPg/yXpy9_0JDo8x_087otflIcWgMDASppzAACLcBGAs/s1600/62.jpg)
+![](/images/kosesoftymo.jpg)
 
 這枝專門卸眼唇妝的半透明液體  
 倒落棉花用敷幾秒後  

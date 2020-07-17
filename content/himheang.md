@@ -14,7 +14,7 @@ tags : [flavor - 螞蟻族]
 亦都不似馬蹄（water chestnut）  
 那究竟是甚麼馬蹄呢呢呢  
 
-[![](https://4.bp.blogspot.com/-z0u2K5Li_v0/XDC3bPRSZJI/AAAAAAAAEUc/QB9gMgcxBTsfbp5K6fw4vfAbl1SFbco7gCLcBGAs/s640/e.jpg)](https://4.bp.blogspot.com/-z0u2K5Li_v0/XDC3bPRSZJI/AAAAAAAAEUc/QB9gMgcxBTsfbp5K6fw4vfAbl1SFbco7gCLcBGAs/s1600/e.jpg)
+![](/images/himheang.jpg)
 
 酥皮一塊塊脆口脆口  
 油味不重所以不覺得太漏  

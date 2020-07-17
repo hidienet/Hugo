@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 tissue式抽取好方便  
 
-[![](https://4.bp.blogspot.com/-FXsS_CnE33A/XDC3_9KO1GI/AAAAAAAAEU4/o91LcAPAJ24nqszpaqNPOSgR9uuIQFHGwCLcBGAs/s640/u.jpg)](https://4.bp.blogspot.com/-FXsS_CnE33A/XDC3_9KO1GI/AAAAAAAAEU4/o91LcAPAJ24nqszpaqNPOSgR9uuIQFHGwCLcBGAs/s1600/u.jpg)
+![](/images/koseturn.jpg)
 
 薄裝不織布，精華不多  
 所以敷5-15分鐘就夠  

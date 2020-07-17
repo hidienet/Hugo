@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 大懶蛇敷蛇毒毒面膜？  
 
-[![](https://3.bp.blogspot.com/-iNae30Fh3lU/XDCFmfkr5tI/AAAAAAAAEOs/ZyLE8h3o1hMgYUe1dCQJFnHi5CXhrfI5gCLcBGAs/s640/55.jpg)](https://3.bp.blogspot.com/-iNae30Fh3lU/XDCFmfkr5tI/AAAAAAAAEOs/ZyLE8h3o1hMgYUe1dCQJFnHi5CXhrfI5gCLcBGAs/s1600/55.jpg)
+![](/images/tonymolysynakegel.jpg)
 
 是類蛇毒，不是真蛇毒  
 還沒有想死的念頭  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 夏天用沖洗式的mask覺得比paper mask爽身  
 
-[![](https://3.bp.blogspot.com/-z6SYjIvvuGc/XERRPM3B7wI/AAAAAAAAGO0/kP0PoB3J9IoZTBr7fgyjaan-1PYLYRaNwCLcBGAs/s640/14804020311_7dabc40ace_z.jpg)](https://3.bp.blogspot.com/-z6SYjIvvuGc/XERRPM3B7wI/AAAAAAAAGO0/kP0PoB3J9IoZTBr7fgyjaan-1PYLYRaNwCLcBGAs/s1600/14804020311_7dabc40ace_z.jpg)
+![](/images/etudehousewashb.jpg)
 
 軟管裝設計不需要用手在瓶裡拿取（較衛生）  
 而且開口夠大  

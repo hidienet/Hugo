@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, collections - 김수현, glamorous - 面膜
 
 金秀賢今晚又來了～（我沒有尖叫啦）  
 
-[![](https://2.bp.blogspot.com/-R8UBj0FPzpA/XEMo4btV7aI/AAAAAAAAFxQ/rtDV0TgwGi0bwE7qRYKXyZFoKYQcrDdiQCLcBGAs/s640/14417431495_69c110646f_z.jpg)](https://2.bp.blogspot.com/-R8UBj0FPzpA/XEMo4btV7aI/AAAAAAAAFxQ/rtDV0TgwGi0bwE7qRYKXyZFoKYQcrDdiQCLcBGAs/s1600/14417431495_69c110646f_z.jpg)
+![](/images/beyondsoothing.jpg)
 
 謝謝細e送我的2nd gift  
 舒緩肌膚的蘆薈mask  

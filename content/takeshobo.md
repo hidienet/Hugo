@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 瘦面其中一項神器：「face碌」！  
 
-[![](https://1.bp.blogspot.com/-yped2eymlIc/XEMu57W7q4I/AAAAAAAAFzk/nxS03dNAaoEfFvruXAE1I0eOtvewFOjdwCLcBGAs/s640/14425223654_65b4b50a1e_z.jpg)](https://1.bp.blogspot.com/-yped2eymlIc/XEMu57W7q4I/AAAAAAAAFzk/nxS03dNAaoEfFvruXAE1I0eOtvewFOjdwCLcBGAs/s1600/14425223654_65b4b50a1e_z.jpg)
+![](/images/takeshobo.jpg)
 
 雖然手柄位看似會顯示甚麼似的  
 但這東西是沒有以電推動  

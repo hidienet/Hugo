@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹]
 要吃得所謂健康，不如吃得美味  
 （心靈健康也是很重要的喔）  
 
-[![](https://4.bp.blogspot.com/-21j8MePaAZg/XERpNlfJdTI/AAAAAAAAGTI/W-190xQS4bkCuJTRYN0Koot0llIGevfLwCLcBGAs/s640/14681448099_bb0fb1c836_z.jpg)](https://4.bp.blogspot.com/-21j8MePaAZg/XERpNlfJdTI/AAAAAAAAGTI/W-190xQS4bkCuJTRYN0Koot0llIGevfLwCLcBGAs/s1600/14681448099_bb0fb1c836_z.jpg)
+![](/images/linheungkui.jpg)
 
 超幸運！不用訂也有的蓮香霸王鴨  
 帶有微微鴨羶味才是鮮鴨的味道  
@@ -17,7 +17,7 @@ tags : [flavor - 行膳積腹]
 還有鹹蛋黃、銀杏等材料好豐富  
 非常令人滿足的心思餸呢（讚）  
 
-[![](https://4.bp.blogspot.com/-Eg6uk9bFjOY/XERpSwSG83I/AAAAAAAAGTM/pzbeC-V01VIjUFxA73oBujL_p5uznaUoACLcBGAs/s640/14868069045_54c91e2677_z.jpg)](https://4.bp.blogspot.com/-Eg6uk9bFjOY/XERpSwSG83I/AAAAAAAAGTM/pzbeC-V01VIjUFxA73oBujL_p5uznaUoACLcBGAs/s1600/14868069045_54c91e2677_z.jpg)
+![](/images/linheungkui1.jpg)
 
 從小也愛吃的蝦子柚皮  
 簡單地全運用柚子  
@@ -26,7 +26,7 @@ tags : [flavor - 行膳積腹]
 比平日點心蒸籠的柚皮濃味得多  
 （雖然比小時候吃過的砂鍋柚皮還差一點）  
 
-[![](https://3.bp.blogspot.com/-FPsK39MRLWM/XERpYnF6JrI/AAAAAAAAGTQ/16mRhEnm-mM5FlGJdiDXaaqYQUhGSDnSQCLcBGAs/s640/14681554007_c634829d0a_z.jpg)](https://3.bp.blogspot.com/-FPsK39MRLWM/XERpYnF6JrI/AAAAAAAAGTQ/16mRhEnm-mM5FlGJdiDXaaqYQUhGSDnSQCLcBGAs/s1600/14681554007_c634829d0a_z.jpg)
+![](/images/linheungkui2.jpg)
 
 肉質鬆化的宮廷醬烤骨  
 這不是一條條小菜舖那種骨  
@@ -34,12 +34,12 @@ tags : [flavor - 行膳積腹]
 有軟骨的很喜歡呢  
 而且肉又入味又夠腍身不黏牙，good！  
 
-[![](https://4.bp.blogspot.com/-gcNGuWFy7Zs/XERphxEKj9I/AAAAAAAAGTY/NlerfMbZhs8-L0cW-yRiyUVz5HK2KFnHACLcBGAs/s640/14681399250_4570672737_z.jpg)](https://4.bp.blogspot.com/-gcNGuWFy7Zs/XERphxEKj9I/AAAAAAAAGTY/NlerfMbZhs8-L0cW-yRiyUVz5HK2KFnHACLcBGAs/s1600/14681399250_4570672737_z.jpg)
+![](/images/linheungkui3.jpg)
 
 懷舊式的古法鴨腳紮  
 又是種多工的麻煩菜色  
 
-[![](https://2.bp.blogspot.com/-QYtu63MR3UI/XERpnE7SLsI/AAAAAAAAGTc/4difwYFWZgQqt-QUajfbaqKaMqrLmtUoQCLcBGAs/s640/14868070605_412cfbe4de_z.jpg)](https://2.bp.blogspot.com/-QYtu63MR3UI/XERpnE7SLsI/AAAAAAAAGTc/4difwYFWZgQqt-QUajfbaqKaMqrLmtUoQCLcBGAs/s1600/14868070605_412cfbe4de_z.jpg)
+![](/images/linheungkui4.jpg)
 
 如果不是晚飯時間  
 這裡的點心也當然地超讚  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, collections - 김수현, glamorous - 面膜
 
 這套eye mask是不會不買的好了（喪笑）  
 
-[![](https://4.bp.blogspot.com/-u4KKKx38L9w/XDCzjVg5b0I/AAAAAAAAERg/AA_nvLSfc5wzr7EfopugnAw2aHU_wvDBwCLcBGAs/s640/79.jpg)](https://4.bp.blogspot.com/-u4KKKx38L9w/XDCzjVg5b0I/AAAAAAAAERg/AA_nvLSfc5wzr7EfopugnAw2aHU_wvDBwCLcBGAs/s1600/79.jpg)
+![](/images/beyondpanda1.jpg)
 
 以維他命C爲主要成分的眼膜  
 有內撐的hydrogel mask  
@@ -35,24 +35,24 @@ tags : [glamorous - 保養おたく, collections - 김수현, glamorous - 面膜
   
   
 
-[![](https://4.bp.blogspot.com/-GMs-LgfMWuE/XDCzqvBIYiI/AAAAAAAAERo/a8p6mNHS-y8JhSKuUQo9BZg5Rmy78zc2ACLcBGAs/s640/80.jpg)](https://4.bp.blogspot.com/-GMs-LgfMWuE/XDCzqvBIYiI/AAAAAAAAERo/a8p6mNHS-y8JhSKuUQo9BZg5Rmy78zc2ACLcBGAs/s1600/80.jpg)
+![](/images/beyondpanda.jpg)
 
 套裝是10塊裝連一枝70ml body shower  
 加70ml body emulsion  
 （打死都不說是因為膠盒上印有金秀賢）  
 好抵買就是  
 
-[![](https://2.bp.blogspot.com/-dHxYdttWMb4/XDCzwUogzFI/AAAAAAAAERs/Ju1N6f_XICwCJs6Oq-EwQSkFosQNltuyQCLcBGAs/s640/81.jpg)](https://2.bp.blogspot.com/-dHxYdttWMb4/XDCzwUogzFI/AAAAAAAAERs/Ju1N6f_XICwCJs6Oq-EwQSkFosQNltuyQCLcBGAs/s1600/81.jpg)
+![](/images/beyondpanda2.jpg)
 
 另外這盒mask set都好抵又多款式  
 七種口味不同功效一共12塊  
 （絕對唔關金秀賢事，OK？）  
 
-[![](https://1.bp.blogspot.com/-WL46VkL_6js/XDCz2naoWII/AAAAAAAAER0/R4Ou1IHcUmcJGr6wYx1Zxyyb0ZmLlre3wCLcBGAs/s640/82.jpg)](https://1.bp.blogspot.com/-WL46VkL_6js/XDCz2naoWII/AAAAAAAAER0/R4Ou1IHcUmcJGr6wYx1Zxyyb0ZmLlre3wCLcBGAs/s1600/82.jpg)
+![](/images/beyondpanda3.jpg)
 
 買滿一定價格送的A3 poster  
 
-[![](https://2.bp.blogspot.com/-olWx6WELS3M/XDCz81OV3DI/AAAAAAAAER8/N6hrQzqVEzs7VVxU6VT-zIpNEJl9Vy2xwCLcBGAs/s640/83.jpg)](https://2.bp.blogspot.com/-olWx6WELS3M/XDCz81OV3DI/AAAAAAAAER8/N6hrQzqVEzs7VVxU6VT-zIpNEJl9Vy2xwCLcBGAs/s1600/83.jpg)
+![](/images/beyondpanda4.jpg)
 
 仲有postcard一套四張  
 （買這些真的同金秀賢完全沒有關係，請相信我！）  

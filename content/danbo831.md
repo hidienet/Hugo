@@ -6,6 +6,6 @@ aliases: [ "/2014/03/danbo-mini-x-mtr_5164.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://4.bp.blogspot.com/-xi4wDMz3S6Q/XDCy2CVvvmI/AAAAAAAAERI/F23wcYgR0HkGqidNE3PqgkdxvYQaFMDTwCLcBGAs/s640/75.jpg)](https://4.bp.blogspot.com/-xi4wDMz3S6Q/XDCy2CVvvmI/AAAAAAAAERI/F23wcYgR0HkGqidNE3PqgkdxvYQaFMDTwCLcBGAs/s1600/75.jpg)
+![](/images/danbo831.jpg)
 
 太子參：益氣健脾，生津潤肺

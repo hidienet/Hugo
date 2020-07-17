@@ -8,16 +8,14 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 悶熱的天氣當然要玩既涼快又好玩的mask！  
 
-[![](https://1.bp.blogspot.com/-uVwKrxAPcuU/XDGoQlwLQ1I/AAAAAAAAEmI/vNHdhOjriWYle9JDABdJGgRjMKOSVS_LQCLcBGAs/s640/0.jpg)](https://1.bp.blogspot.com/-uVwKrxAPcuU/XDGoQlwLQ1I/AAAAAAAAEmI/vNHdhOjriWYle9JDABdJGgRjMKOSVS_LQCLcBGAs/s1600/0.jpg)
+![](/images/naturerepubliclemon1.jpg)
 
-shake shake杯
-
+shake shake杯  
 搖一份cocktail mask（興奮）
 
-[![](https://4.bp.blogspot.com/-WpsN7iUGm6E/XDGoVC5aR3I/AAAAAAAAEmM/FeoyhWJwmWIFXQkrmg2BBf8OfDQE2bYWACLcBGAs/s640/00.jpg)](https://4.bp.blogspot.com/-WpsN7iUGm6E/XDGoVC5aR3I/AAAAAAAAEmM/FeoyhWJwmWIFXQkrmg2BBf8OfDQE2bYWACLcBGAs/s1600/00.jpg)
+![](/images/naturerepubliclemon.jpg)
 
-內有面膜粉、攪攪棍同說明書
-
+內有面膜粉、攪攪棍同說明書  
 當然包裝的shaking cup也是一部份
 
   

@@ -7,12 +7,10 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
 沒有最懶，只有更懶！  
+嫌[3分鐘mask](https://hidie.net/regal3min/)要按摩太耐？  
+就算只用[1分鐘mask](https://hidie.net/menardherbmask/)也嫌要過水？
 
-嫌[3分鐘mask](http://www.hidie.net/2014/06/masque-regal-3-minutes-mask.html)要按摩太耐？
-
-就算只用[1分鐘mask](http://www.hidie.net/2014/03/masque-menard-herb-mask.html)也嫌要過水？
-
-[![](https://1.bp.blogspot.com/-slyxPb_mHGM/XEM5oqgGiQI/AAAAAAAAF6Q/jLUUQa3uaHIQ0sH5pbrPbTiSUJv4ithZgCLcBGAs/s640/14605545503_ff2a507ce3_z.jpg)](https://1.bp.blogspot.com/-slyxPb_mHGM/XEM5oqgGiQI/AAAAAAAAF6Q/jLUUQa3uaHIQ0sH5pbrPbTiSUJv4ithZgCLcBGAs/s1600/14605545503_ff2a507ce3_z.jpg)
+![](/images/pureskinmist.jpg)
 
 一按就敷上不用沖洗
 

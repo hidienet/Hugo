@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 好橙 好橙 美白抗老濟州橙（啦啦啦）  
 
-[![](https://4.bp.blogspot.com/--J1g3wMkYUI/XEMvRoPF4MI/AAAAAAAAFz0/kOpJ64YYOiA_J3KIr4YCxK_-MVs0zXNKQCLcBGAs/s640/14394314576_f3e6814a59_z.jpg)](https://4.bp.blogspot.com/--J1g3wMkYUI/XEMvRoPF4MI/AAAAAAAAFz0/kOpJ64YYOiA_J3KIr4YCxK_-MVs0zXNKQCLcBGAs/s1600/14394314576_f3e6814a59_z.jpg)
+![](/images/islebe.jpg)
 
 清香橙味的bio cellulose mask  
 分開2 part的半透明jelly片  
@@ -32,6 +32,6 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 氣味不錯加上有功效  
 貴少少也值得（點頭）  
-跟[pige:ll](http://www.hidie.net/2014/03/masque-pigell-plus-real-skin-mask.html)同一家公司  
+跟[pige:ll](https://hidie.net/pigell/)同一家公司  
 兩隻的效果都很好  
 這塊還要不像豬皮那麼臭呢呵呵～

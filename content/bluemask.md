@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 些些細e割愛讓出他的騰騰給我（笑）  
 
-[![](https://2.bp.blogspot.com/-T2l-a2vZpS8/XDGHyZCgrQI/AAAAAAAAEdk/y9BygFtu32wNF14-w2Xm0OVdPeNsiC_MQCLcBGAs/s640/37.jpg)](https://2.bp.blogspot.com/-T2l-a2vZpS8/XDGHyZCgrQI/AAAAAAAAEdk/y9BygFtu32wNF14-w2Xm0OVdPeNsiC_MQCLcBGAs/s1600/37.jpg)
+![](/images/bluemask.jpg)
 
 關於藍銅，全名藍銅胜肽是一種肽  
 化學名詞我不太懂  

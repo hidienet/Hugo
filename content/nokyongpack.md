@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 近期超超超超愛的mask（些些小不點）  
 
-[![](https://2.bp.blogspot.com/-dpJVagpReKY/XEQdor_pYFI/AAAAAAAAGLg/eTcKJTZWL9gRSuv9UdNVkgS2V2uBhngAwCLcBGAs/s640/14619277978_f475a43dc8_z.jpg)](https://2.bp.blogspot.com/-dpJVagpReKY/XEQdor_pYFI/AAAAAAAAGLg/eTcKJTZWL9gRSuv9UdNVkgS2V2uBhngAwCLcBGAs/s1600/14619277978_f475a43dc8_z.jpg)
+![](/images/nokyongpack.jpg)
 
 拱辰丹是韓國宮廷美顏配方  
 本身外敷內服都可以  
@@ -22,7 +22,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 不是洗面後直接敷上  
 是在使用toner同essence後才敷  
 沒有錢買「秘帖」  
-我用[潤燥](http://www.hidie.net/2013/12/essence.html)跟[滋陰水](http://www.hidie.net/2013/12/toner.html)  
+我用[潤燥](https://hidie.net/sulwhasooessence/)跟[滋陰水](https://hidie.net/sulwhasootoner/)  
 相信效果應該都差不多  
 然後分2-3次各擠出500₩ size分量  
 塗於整塊面上  

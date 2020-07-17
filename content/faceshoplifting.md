@@ -9,11 +9,11 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 個title這堆窗框文（韓文）  
 其實我一點都看不懂哈哈 XDDD  
 
-[![](https://3.bp.blogspot.com/-uwWkGFrtVBI/XDC5xHhWu3I/AAAAAAAAEWQ/TM9lnG9qo789d9lKcADjX8xy-9ZkPrnXQCLcBGAs/s640/2q.jpg)](https://3.bp.blogspot.com/-uwWkGFrtVBI/XDC5xHhWu3I/AAAAAAAAEWQ/TM9lnG9qo789d9lKcADjX8xy-9ZkPrnXQCLcBGAs/s1600/2q.jpg)
+![](/images/faceshoplifting.jpg)
 
 這是the face shop的名韓美人圖\[율\](汨)系列中的lifting mask sheet  
 之前用過超級有效果的  
-名韓美人圖\[雪\]的美白mask（[相關舊文](http://www.hidie.net/2014/01/masque-face-shop.html)）  
+名韓美人圖\[雪\]的[美白mask](https://hidie.net/faceshopsnow/)  
 所以都期望它會有美好的表現  
 面膜是有輕微延展性的厚身面布  
 分上下2 part，剪裁超～ 好～   

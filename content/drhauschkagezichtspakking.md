@@ -9,10 +9,10 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 牙膏狀的mask一滴也劑不出來  
 證明這東西有多好用  
 
-[![](https://1.bp.blogspot.com/-esjesoMJkIY/XDGo1IC8O2I/AAAAAAAAEmo/O_vtARUMo4Ei3h-JIxHhCTw7d89vKr5ygCLcBGAs/s640/898.jpg)](https://1.bp.blogspot.com/-esjesoMJkIY/XDGo1IC8O2I/AAAAAAAAEmo/O_vtARUMo4Ei3h-JIxHhCTw7d89vKr5ygCLcBGAs/s1600/898.jpg)
+![](/images/drhauschkagezichtspakking.jpg)
 
 除了看到「Dr.」知道是醫學品牌外  
-其天然有機的認證更令人放心使用  
+其天然有機的認證更令人認知愛護環境  
 加上基本上原材料是公平交易所得的  
 難得地價格不是天價，真好  
   

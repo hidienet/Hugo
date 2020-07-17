@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 關於山茶花，我想起的就是chanel  
 
-[![](https://3.bp.blogspot.com/-u5de0etxKpk/XDCxkX30YHI/AAAAAAAAEQM/4nHVgSWdQHomeKwrleRWSPI4QiCUxexSACLcBGAs/s640/67.jpg)](https://3.bp.blogspot.com/-u5de0etxKpk/XDCxkX30YHI/AAAAAAAAEQM/4nHVgSWdQHomeKwrleRWSPI4QiCUxexSACLcBGAs/s1600/67.jpg)
+![](/images/mamondebright.jpg)
 
 不過原來山茶花也可以用來美白肌膚  
 這塊hydrogel mask以礦物質  

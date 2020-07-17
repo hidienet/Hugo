@@ -6,9 +6,9 @@ aliases: [ "/2014/07/masque-franc-franc-steam-mask.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-不是說[daiso的facial tower](http://www.hidie.net/2014/01/masque-daiso-facial-towel.html)不好  
+不是說daiso的[facial tower](https://hidie.net/daisofacialtowel/)不好  
 
-[![](https://3.bp.blogspot.com/-sv66kWWPgfM/XEQPghEvRfI/AAAAAAAAGG0/A1cmHB4IxvEhtqoaYQL-hTT7v55hKoD2QCLcBGAs/s640/9692567656_03c4244c2b_z.jpg)](https://3.bp.blogspot.com/-sv66kWWPgfM/XEQPghEvRfI/AAAAAAAAGG0/A1cmHB4IxvEhtqoaYQL-hTT7v55hKoD2QCLcBGAs/s1600/9692567656_03c4244c2b_z.jpg)
+![](/images/francfrancsteam.jpg)
 
 但這個franc franc的finishing真的靚好多嘛  
 圍住深桃紅色邊超sharp  

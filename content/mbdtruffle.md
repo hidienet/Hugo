@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 估不到這次要拿來敷面  
 珍貴的菇菇真的可以美白？  
 
-[![](https://4.bp.blogspot.com/-ZURGFxDtCbE/XDC0gr-O1aI/AAAAAAAAESY/b7XkTdOw2B4UOSrDEDYKacImq1H1kmlVgCLcBGAs/s640/86.jpg)](https://4.bp.blogspot.com/-ZURGFxDtCbE/XDC0gr-O1aI/AAAAAAAAESY/b7XkTdOw2B4UOSrDEDYKacImq1H1kmlVgCLcBGAs/s1600/86.jpg)
+![](/images/mbdtruffle.jpg)
 
 不是半信半疑，而是完全不相信  
 看看還有甚麼成分就好  

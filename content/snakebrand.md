@@ -3,12 +3,12 @@ title: '[body] snake brand - prikly heat cooling powder (cool pink)'
 date: 2014-07-19T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/07/body-snake-brand-prikly-heat-cooling.html" ]
-tags : [glamorous - 蛋臉以外]
+tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy]
 ---
 
 夏天必備的小涼伴（呼～）  
 
-[![](https://1.bp.blogspot.com/-bUdM2jT0rsY/XEQC7shSOVI/AAAAAAAAF_4/iwh0LLNOpjg0R23-ZZlc8hrHdrSGw7kYwCLcBGAs/s640/14562397666_a718436351_z.jpg)](https://1.bp.blogspot.com/-bUdM2jT0rsY/XEQC7shSOVI/AAAAAAAAF_4/iwh0LLNOpjg0R23-ZZlc8hrHdrSGw7kYwCLcBGAs/s1600/14562397666_a718436351_z.jpg)
+![](/images/snakebrand.jpg)
 
 平時用爽身粉已經夠爽  
 這罐泰國好物除了爽之外  

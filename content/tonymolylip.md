@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 好大個嘴啊哈哈  
 
-[![](https://2.bp.blogspot.com/-wxmSGyY7P5k/XEMthXStDRI/AAAAAAAAFzI/Tnhooh6d68E96ypkebiQNSlNwLo67iRfwCLcBGAs/s640/14403514806_27a45a9f35_z.jpg)](https://2.bp.blogspot.com/-wxmSGyY7P5k/XEMthXStDRI/AAAAAAAAFzI/Tnhooh6d68E96ypkebiQNSlNwLo67iRfwCLcBGAs/s1600/14403514806_27a45a9f35_z.jpg)
+![](/images/tonymolylip.jpg)
 
 厚身jelly狀的lip patch  
 香甜莓果味（er... 有點似藥水）  

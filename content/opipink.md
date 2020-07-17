@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 留長少少指甲 x 實色粉紅  
 
-[![](https://4.bp.blogspot.com/-94G16-FcprY/XDCGW6ObohI/AAAAAAAAEPQ/tBizDT9NJxEwFApzzrp6d9Z0WX3xwz55gCLcBGAs/s640/60.jpg)](https://4.bp.blogspot.com/-94G16-FcprY/XDCGW6ObohI/AAAAAAAAEPQ/tBizDT9NJxEwFApzzrp6d9Z0WX3xwz55gCLcBGAs/s1600/60.jpg)
+![](/images/opipink.jpg)
 
 扮少女 XDDD  
 不過這樣手看起來有點黑（扁嘴）

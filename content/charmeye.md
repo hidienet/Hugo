@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 用「眼碌碌」碌到眼仔碌碌  
 
-[![](https://3.bp.blogspot.com/-D586tf_jX2A/XEMyhRaY01I/AAAAAAAAF1c/MsuVK_lK_ts3SMdqVKFNd8R6ZWA-ba4YACLcBGAs/s640/14291042748_a917789192_z.jpg)](https://3.bp.blogspot.com/-D586tf_jX2A/XEMyhRaY01I/AAAAAAAAF1c/MsuVK_lK_ts3SMdqVKFNd8R6ZWA-ba4YACLcBGAs/s1600/14291042748_a917789192_z.jpg)
+![](/images/charmeye.jpg)
 
 一點都不襯我的粉紅色（抓頭）  
 電流加震動，內附精華裝上後可自己流出  
@@ -38,7 +38,7 @@ tags : [glamorous - 保養おたく]
   
 一定keep住用，然後把黑眼圈震都九霄外哈哈哈  
 
-[![](https://1.bp.blogspot.com/-QywbwrtrsAc/XEMymhEteNI/AAAAAAAAF1g/EgpsKYV2aJEsKbI26-f4xYdA4Hts-zYNACLcBGAs/s640/14476533284_549ae056e9_z.jpg)](https://1.bp.blogspot.com/-QywbwrtrsAc/XEMymhEteNI/AAAAAAAAF1g/EgpsKYV2aJEsKbI26-f4xYdA4Hts-zYNACLcBGAs/s1600/14476533284_549ae056e9_z.jpg)
+![](/images/drbeye.jpg)
 
 而這枝dr. bauer eye wrinkle ironer  
 其實只是感覺較弱雞  

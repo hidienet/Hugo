@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 近期超喜歡敷的deep cleansing mask（大心）  
 
-[![](https://2.bp.blogspot.com/-hzFaMHfWUkk/XERo5z8kSgI/AAAAAAAAGS4/r_4IQfNvr0cTL3G0wWkWaBDbNKE7c7lNwCLcBGAs/s640/14840816591_d18c2ee656_z.jpg)](https://2.bp.blogspot.com/-hzFaMHfWUkk/XERo5z8kSgI/AAAAAAAAGS4/r_4IQfNvr0cTL3G0wWkWaBDbNKE7c7lNwCLcBGAs/s1600/14840816591_d18c2ee656_z.jpg)
+![](/images/banilacoclay.jpg)
 
 死海天然泥漿，當然有豐富的礦物鹽在中  
 配合微細的帶氧啫喱乳液  

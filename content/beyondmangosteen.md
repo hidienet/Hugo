@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 果后山竹清甜味美  
 用來敷面會有亮白效果？  
 
-[![](https://2.bp.blogspot.com/-SKqEyE6wPFE/XEMj5KDvUzI/AAAAAAAAFvI/OES7zlgvZ3YXXj_z7vo20uFsytSC9_nEwCLcBGAs/s640/14196608567_7969471ceb_z.jpg)](https://2.bp.blogspot.com/-SKqEyE6wPFE/XEMj5KDvUzI/AAAAAAAAFvI/OES7zlgvZ3YXXj_z7vo20uFsytSC9_nEwCLcBGAs/s1600/14196608567_7969471ceb_z.jpg)
+![](/images/beyondmangosteen.jpg)
 
 而且不是白色的果肉  
 這mask時用上山竹果皮  

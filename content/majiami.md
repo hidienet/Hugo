@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 生物纖維 x 活氧的保濕面膜  
 
-[![](https://1.bp.blogspot.com/-HwIlFcxjMOY/XDGmOk2WTHI/AAAAAAAAElA/8mOHTrlLLaMECAYpDmZo8kIJZFP_r24lACLcBGAs/s640/1.jpg)](https://1.bp.blogspot.com/-HwIlFcxjMOY/XDGmOk2WTHI/AAAAAAAAElA/8mOHTrlLLaMECAYpDmZo8kIJZFP_r24lACLcBGAs/s1600/1.jpg)
+![](/images/majiami.jpg)
 
 QQ的果凍般材質貼貼服服  
 加上爆多的精華水水感覺  

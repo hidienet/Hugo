@@ -8,10 +8,10 @@ tags : [glamorous - 保養おたく]
 
 一粒粒六角形的酵素洗顏粉  
 
-[![](https://4.bp.blogspot.com/-Hl7i9HBqqE0/XEQNfqHgxbI/AAAAAAAAGFg/zQHWkrXtq54fICPwRXhOED2mZkfjkyqngCLcBGAs/s640/12264274703_a26db21f41_z.jpg)](https://4.bp.blogspot.com/-Hl7i9HBqqE0/XEQNfqHgxbI/AAAAAAAAGFg/zQHWkrXtq54fICPwRXhOED2mZkfjkyqngCLcBGAs/s1600/12264274703_a26db21f41_z.jpg)
+![](/images/kanebosuisai.jpg)
 
 一粒一次，加水起豐盈的泡泡  
-用[洗面網](http://www.hidie.net/2014/03/tools.html)起好大好大舊  
+用[洗面網](https://hidie.net/mujinet/)起好大好大舊  
 雖然超大舊泡用一次好似有點浪費  
 可酵素遇空氣很快會揮發掉  
 所以還是一次用比較好  

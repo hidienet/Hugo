@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 皮膚沒有足夠的膠原就不夠緊緻同彈性  
 既然身體製造得不夠，就直接補上去  
 
-[![](https://1.bp.blogspot.com/-_5F6lpLrZi0/XERmrA88-cI/AAAAAAAAGRY/Su-ewLHgkRE9hbfZqnAv94iBf-ROX00dQCLcBGAs/s640/10504132114_4f87c5a7da_z.jpg)](https://1.bp.blogspot.com/-_5F6lpLrZi0/XERmrA88-cI/AAAAAAAAGRY/Su-ewLHgkRE9hbfZqnAv94iBf-ROX00dQCLcBGAs/s1600/10504132114_4f87c5a7da_z.jpg)
+![](/images/icharmingredgin.jpg)
 
 紅蔘味的膠原面膜  
 21g精華在中，但面膜沒有很濕  

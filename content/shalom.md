@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 「一次過滿足三個願望」  
 
-[![](https://3.bp.blogspot.com/-iaG_zArnuCQ/XDC5Rs_4ADI/AAAAAAAAEV8/X5pBPrp4fIACJbFRvdlZFPSqznM73-V4wCLcBGAs/s640/g.jpg)](https://3.bp.blogspot.com/-iaG_zArnuCQ/XDC5Rs_4ADI/AAAAAAAAEV8/X5pBPrp4fIACJbFRvdlZFPSqznM73-V4wCLcBGAs/s1600/g.jpg)
+![](/images/shalom.jpg)
 
 朱古力雪糕 x 咖啡jelly x 朱古力脆脆波  
 這組合就是有淋有滑又有脆  

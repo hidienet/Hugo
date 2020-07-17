@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 不黏膩的蝸牛黏液mask  
 
-[![](https://2.bp.blogspot.com/-tJTVzUo9fZI/XEQToFaxuYI/AAAAAAAAGJQ/tbe1-pG6_sEuW6Cla9Gwb93YUf9Cysn7gCLcBGAs/s640/11151129575_5ba21e3d1a_z.jpg)](https://2.bp.blogspot.com/-tJTVzUo9fZI/XEQToFaxuYI/AAAAAAAAGJQ/tbe1-pG6_sEuW6Cla9Gwb93YUf9Cysn7gCLcBGAs/s1600/11151129575_5ba21e3d1a_z.jpg)
+![](/images/apieusnail3d.jpg)
 
 雖然精華並沒有滿滿的在mask上  
 卻因為中間有條車痕的3D面膜  

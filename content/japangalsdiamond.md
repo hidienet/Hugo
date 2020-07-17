@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 化學性是指一般以酸性物質溶出  
 物理性通常都是粒子磨走這樣  
 
-[![](https://1.bp.blogspot.com/-Tm2mnh0l5qs/XEMvgYNX4KI/AAAAAAAAFz8/PoNuXwSZ5TQu-tl8U7NGzm4JePHWHTMgQCLcBGAs/s640/14403284426_96aa06eab0_z.jpg)](https://1.bp.blogspot.com/-Tm2mnh0l5qs/XEMvgYNX4KI/AAAAAAAAFz8/PoNuXwSZ5TQu-tl8U7NGzm4JePHWHTMgQCLcBGAs/s1600/14403284426_96aa06eab0_z.jpg)
+![](/images/japangalsdiamond.jpg)
 
 鑽石磨皮，應該是比較極端的武力吧  
 因為鑽石可是世上最堅硬的物質  
@@ -20,7 +20,7 @@ tags : [glamorous - 保養おたく]
 磨走了的死皮粉就吸吸吸進去不會弄到一地粉  
 （磨去的死皮們都是粉狀的）  
 
-[![](https://2.bp.blogspot.com/-pJBQMF8OZGc/XEMvlbxRyWI/AAAAAAAAF0A/zMY2c1_dDgQpRFGLQE3Kl0E2HYHD5QvzACLcBGAs/s640/14425110922_5ccb35f18a_z.jpg)](https://2.bp.blogspot.com/-pJBQMF8OZGc/XEMvlbxRyWI/AAAAAAAAF0A/zMY2c1_dDgQpRFGLQE3Kl0E2HYHD5QvzACLcBGAs/s1600/14425110922_5ccb35f18a_z.jpg)
+![](/images/japangalsdiamond1.jpg)
 
 除了鑽石頭外（這次對到focus了）  
 還有一大一小的頭用來吸黑頭  

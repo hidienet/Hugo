@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 要說美白mask怎能沒有了這一隻？  
 
-[![](https://2.bp.blogspot.com/-7i78mtKgQRg/XDC1v7mttII/AAAAAAAAETQ/55jiKlicDIMbJkUU5Tg0iT2Mb3_PH38kwCLcBGAs/s640/93.jpg)](https://2.bp.blogspot.com/-7i78mtKgQRg/XDC1v7mttII/AAAAAAAAETQ/55jiKlicDIMbJkUU5Tg0iT2Mb3_PH38kwCLcBGAs/s1600/93.jpg)
+![](/images/fbomelasleep.jpg)
 
 雖然都是敷上後不易掉落的材質  
 但不是平日韓式hydrogel  

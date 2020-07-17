@@ -8,10 +8,9 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 好用得直頭想即刻上網訂同系列精華的mask（！）  
 
-[![](https://1.bp.blogspot.com/-V5QoFFZHvFw/XERnSWXp-4I/AAAAAAAAGRw/Z_5x8Z0LPAUdcjnDRqYppIUDtxKiIjKfACLcBGAs/s640/14657023767_77d0216ee3_z.jpg)](https://1.bp.blogspot.com/-V5QoFFZHvFw/XERnSWXp-4I/AAAAAAAAGRw/Z_5x8Z0LPAUdcjnDRqYppIUDtxKiIjKfACLcBGAs/s1600/14657023767_77d0216ee3_z.jpg)
+![](/images/naturerepublicfirst1.jpg)
 
-新包裝的the first essence的濃縮精華面膜  
-（舊款請參閱 \[[相關舊文](http://www.hidie.net/2014/01/masque-nature-republic-first-sheet-mask.html)\]）  
+新包裝的the first essence的濃縮精華面膜（[舊款here](https://hidie.net/naturerepublicfirst/)）  
 打開包裝並沒有酸酸的酵母味\*  
 反而是一陣芳香舒爽的氣味  
 面膜剪裁有點不適合我  

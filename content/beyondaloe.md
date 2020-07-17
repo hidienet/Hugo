@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 韓國出好多大大罐的蘆薈gel  
 除了gel，也都會浸在面膜紙裡  
 
-[![](https://3.bp.blogspot.com/-Vxrz9xbATzU/XEMhylECZrI/AAAAAAAAFt4/BJOVDEOww2EqUSuJFClprjsVjVgh_lUhQCLcBGAs/s640/14379706631_9db7e3f55c_z.jpg)](https://3.bp.blogspot.com/-Vxrz9xbATzU/XEMhylECZrI/AAAAAAAAFt4/BJOVDEOww2EqUSuJFClprjsVjVgh_lUhQCLcBGAs/s1600/14379706631_9db7e3f55c_z.jpg)
+![](/images/beyondaloe.jpg)
 
 蘆薈mask的氣味很清香  
 size較大精華滿滿但不厚重  
@@ -25,4 +25,4 @@ size較大精華滿滿但不厚重
   
 雖然效果真的不錯  
 但蘆薈成分面膜實在太普通了  
-（因為[set裝](http://www.hidie.net/2014/03/masque-beyond-bye-bye-panda-eyes-eye.html)才買嘛，嘻嘻）
+（因為[set裝](https://hidie.net/beyondpanda/)才買嘛，嘻嘻）

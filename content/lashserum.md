@@ -8,12 +8,12 @@ tags : [glamorous - 保養おたく]
 
 護理雙眼之餘豈能留掉了睫毛  
 濃密的長睫毛使眼睛看起來更大而且眼形更突出  
-除了之前覺得不錯用的[DHC eyelash tonic](http://www.hidie.net/2013/10/lash-dhc-eyelash-tonic.html)之外  
+除了之前覺得不錯用的[DHC eyelash tonic](https://hidie.net/dhceyelash/)之外  
 其實還有一～ 大～ 堆～  
 有好用的也有同雷品  
 襯星期六有時間一次過寫啦  
 
-[![](https://2.bp.blogspot.com/-I77VD8uO0k8/XEQVzR9WU3I/AAAAAAAAGKw/1HZiKUnt9dIr8q7hyc0DigfN21HNCmZwgCLcBGAs/s640/9869993064_7663e5c8fa_z.jpg)](https://2.bp.blogspot.com/-I77VD8uO0k8/XEQVzR9WU3I/AAAAAAAAGKw/1HZiKUnt9dIr8q7hyc0DigfN21HNCmZwgCLcBGAs/s1600/9869993064_7663e5c8fa_z.jpg)
+![](/images/lashserum.jpg)
 
 **avancé - lash serum ex**  
 開賣多年的王樣睫毛精華  
@@ -23,14 +23,14 @@ tags : [glamorous - 保養おたく]
 有時候不再用mascara就出門口了  
 絕對是大愛品（心）  
 
-[![](https://3.bp.blogspot.com/-bHQx0TJRGUg/XEQV7ZVoY1I/AAAAAAAAGK4/a3HtN9jQxtwloZ84BdN1URNf1mkWOEYmgCLcBGAs/s640/12264706216_fb1118088a_z.jpg)](https://3.bp.blogspot.com/-bHQx0TJRGUg/XEQV7ZVoY1I/AAAAAAAAGK4/a3HtN9jQxtwloZ84BdN1URNf1mkWOEYmgCLcBGAs/s1600/12264706216_fb1118088a_z.jpg)
+![](/images/lashserum1.jpg)
 
 **canmake - lash care essence**  
 另一隻日雜同網站常見品  
 海綿掃頭不會篤到眼簾  
 持續濃密但就沒有令睫毛增長這樣  
 
-[![](https://4.bp.blogspot.com/-1zhOHsDBFhQ/XEQWAJFNkaI/AAAAAAAAGK8/w5jreCTYUUQj9hSrBAQgf_HzGT0YZCmbgCLcBGAs/s640/14806099173_718d81dce1_z.jpg)](https://4.bp.blogspot.com/-1zhOHsDBFhQ/XEQWAJFNkaI/AAAAAAAAGK8/w5jreCTYUUQj9hSrBAQgf_HzGT0YZCmbgCLcBGAs/s1600/14806099173_718d81dce1_z.jpg)
+![](/images/lashserum2.jpg)
 
 **déjàvu - lash serum**  
 我超喜歡這家的mascara  
@@ -40,7 +40,7 @@ tags : [glamorous - 保養おたく]
 一沾就會有太多精華  
 不好上不好上（扁嘴）  
 
-[![](https://2.bp.blogspot.com/-D3jC2MIxkBI/XEQWEJgua0I/AAAAAAAAGLE/weB7ChctUnkkpF5uaWF9u875pENCkweJACLcBGAs/s640/14783898734_53ec8e0d7b_z.jpg)](https://2.bp.blogspot.com/-D3jC2MIxkBI/XEQWEJgua0I/AAAAAAAAGLE/weB7ChctUnkkpF5uaWF9u875pENCkweJACLcBGAs/s1600/14783898734_53ec8e0d7b_z.jpg)
+![](/images/lashserum3.jpg)
 
 **L'Oréal - serum re-activant cils**  
 （終於不是日系）  
@@ -48,7 +48,7 @@ tags : [glamorous - 保養おたく]
 沒有覺得增長了的效果  
 唯有說是海綿頭分量較易控制  
 
-[![](https://2.bp.blogspot.com/-4GHTewxd06E/XEQWJsKi6zI/AAAAAAAAGLI/jGFyyRdCvAkDptmzESBAdZCwLieHEYZJgCLcBGAs/s640/14599735547_a116af7817_z.jpg)](https://2.bp.blogspot.com/-4GHTewxd06E/XEQWJsKi6zI/AAAAAAAAGLI/jGFyyRdCvAkDptmzESBAdZCwLieHEYZJgCLcBGAs/s1600/14599735547_a116af7817_z.jpg)
+![](/images/lashserum4.jpg)
 
 **B&C - lash treatment**  
 雷品出沒注意！  
@@ -66,7 +66,7 @@ tags : [glamorous - 保養おたく]
 使一字排那邊不能一次過好好掃勻睫毛  
 超討厭！幸好都已經捱過用完了  
 
-[![](https://3.bp.blogspot.com/-gQFWQgt_B_k/XEQWTBPd_FI/AAAAAAAAGLQ/RFPcBj6etYMMlNnxG6r9DMajHucJi9KQQCLcBGAs/s640/14785893592_96d65db517_z.jpg)](https://3.bp.blogspot.com/-gQFWQgt_B_k/XEQWTBPd_FI/AAAAAAAAGLQ/RFPcBj6etYMMlNnxG6r9DMajHucJi9KQQCLcBGAs/s1600/14785893592_96d65db517_z.jpg)
+![](/images/lashserum5.jpg)
 
 **ettusais - eyelash essence**  
 近期使用中，些些HIMHIM在日本買給我  

@@ -6,6 +6,6 @@ aliases: [ "/2014/04/danbo-mini-x-mtr_17.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://3.bp.blogspot.com/-1Q5KAMx2ut4/XDGE3yxfmvI/AAAAAAAAEco/xegZh4XevZYynYiDobdoSE54WxpVTyLOACLcBGAs/s640/29.jpg)](https://3.bp.blogspot.com/-1Q5KAMx2ut4/XDGE3yxfmvI/AAAAAAAAEco/xegZh4XevZYynYiDobdoSE54WxpVTyLOACLcBGAs/s1600/29.jpg)
+![](/images/danboshamshuipo.jpg)
 
-水浸眼眉（bububu）
+水浸眼眉（blublublu）

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 去斑比美白真的要更「深層次」  
 所以，這叫做重點去斑也不為過  
 
-[![](https://4.bp.blogspot.com/-BOjJygKMUFk/XDC1h_37QkI/AAAAAAAAETI/Q--rZFnBsF0C_LzD1j1es-p1J5XFMXdQQCLcBGAs/s640/92.jpg)](https://4.bp.blogspot.com/-BOjJygKMUFk/XDC1h_37QkI/AAAAAAAAETI/Q--rZFnBsF0C_LzD1j1es-p1J5XFMXdQQCLcBGAs/s1600/92.jpg)
+![](/images/sofinastick.jpg)
 
 於全面用完美白精華後  
 再用這筆形精華碌在斑點上  

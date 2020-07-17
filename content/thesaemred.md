@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 對於不知道何時能抽時間敷eye mask的  
 gel狀的就能夠容易地解決  
 
-[![](https://4.bp.blogspot.com/-mcn2Rbh6XIs/XEQD6fmyu7I/AAAAAAAAGAc/yqIeMoe_W3AGDhd4OiB_nht2eJPd8GEhQCLcBGAs/s640/14610093556_425ae4a6be_z.jpg)](https://4.bp.blogspot.com/-mcn2Rbh6XIs/XEQD6fmyu7I/AAAAAAAAGAc/yqIeMoe_W3AGDhd4OiB_nht2eJPd8GEhQCLcBGAs/s1600/14610093556_425ae4a6be_z.jpg)
+![](/images/thesaemred.jpg)
 
 因為就在睡前貼上就可以  
 比塗eye cream還要方便  

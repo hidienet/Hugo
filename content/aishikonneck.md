@@ -7,34 +7,21 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
 會中魔女たちの22時的毒肯肯定不止我一個吧  
-
-那個因為弄傷後用紫雲丹（我也有[韓律](http://www.hidie.net/2014/07/blog-post_12.html)的）
-
-從而發現紫根這好物（紙巾？）
-
-再去漢藥店買紫根自制toner
-
-所以沒有皺紋blablablablabla
-
-一句：有紫根無皺紋！
-
-我就有一條經過歲月努力下
-
-越來越淺但褪不掉的頸紋
-
-平時塗了bb cream
-
-不是靠很近的距離其實不太覺眼
-
-但有就是有，也難保有天突然像十多年前般
-
-忽然看到自己有條紋哎呀呀
-
-不過要自己去買紫根再DIY太麻煩
-
+那個因為弄傷後用紫雲丹（我也有[韓律](https://hidie.net/hanyuljawoondan/)的）  
+從而發現紫根這好物（紙巾？）  
+再去漢藥店買紫根自制toner  
+所以沒有皺紋blablablablabla  
+一句：有紫根無皺紋！  
+我就有一條經過歲月努力下  
+越來越淺但褪不掉的頸紋  
+平時塗了bb cream  
+不是靠很近的距離其實不太覺眼  
+但有就是有，也難保有天突然像十多年前般  
+忽然看到自己有條紋哎呀呀  
+不過要自己去買紫根再DIY太麻煩  
 有些錢是要付出的（攤手）
 
-[![](https://3.bp.blogspot.com/-VtYeEynPups/XEM7fpdvGoI/AAAAAAAAF7w/Tuyk_ADVt4kP9fAnUiNRzuNmt0ohfFgWwCLcBGAs/s640/14585444485_651fb4c084_z.jpg)](https://3.bp.blogspot.com/-VtYeEynPups/XEM7fpdvGoI/AAAAAAAAF7w/Tuyk_ADVt4kP9fAnUiNRzuNmt0ohfFgWwCLcBGAs/s1600/14585444485_651fb4c084_z.jpg)
+![](/images/aishikonneck.jpg)
 
 乖乖的買這期爆紅的頸mask  
 稍稍帶黏的質地  

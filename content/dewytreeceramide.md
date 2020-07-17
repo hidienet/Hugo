@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 保濕成分，還是最愛分子酊  
 
-[![](https://1.bp.blogspot.com/-5QSE2GhlCho/XEMx-qWrrzI/AAAAAAAAF1U/1Yf82Qeg2KEOoExMgMVd6QhtLc9KoTTDgCLcBGAs/s640/10154980165_4ee95f79ba_z.jpg)](https://1.bp.blogspot.com/-5QSE2GhlCho/XEMx-qWrrzI/AAAAAAAAF1U/1Yf82Qeg2KEOoExMgMVd6QhtLc9KoTTDgCLcBGAs/s1600/10154980165_4ee95f79ba_z.jpg)
+![](/images/dewytreeceramide.jpg)
 
 全濕的精華滲透進薄薄的面膜紙中  
 剪裁不算最好（面形是很個人的事）  

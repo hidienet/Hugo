@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 黑心人敷的黑參mask？  
 
-[![](https://1.bp.blogspot.com/-Y-ARsxh0MEA/XDGC4IYncTI/AAAAAAAAEbA/3TYMpJFPpak59cn6R1fMFX35B2Xpp_6jgCLcBGAs/s640/15.jpg)](https://1.bp.blogspot.com/-Y-ARsxh0MEA/XDGC4IYncTI/AAAAAAAAEbA/3TYMpJFPpak59cn6R1fMFX35B2Xpp_6jgCLcBGAs/s1600/15.jpg)
+![](/images/dewytreeginseng.jpg)
 
 這系列的面膜紙都是黑色的  
 此mask以人參做主題  

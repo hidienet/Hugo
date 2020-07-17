@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 egg mousse pack，所以瓶身都是黃x白色的蛋樣  
 
-[![](https://4.bp.blogspot.com/-ugfmgtbqhYk/XDCGfkMsIMI/AAAAAAAAEPY/S5e1q1SxDpIOjcjpmcgALiAFH_OF9q4YQCLcBGAs/s640/61.jpg)](https://4.bp.blogspot.com/-ugfmgtbqhYk/XDCGfkMsIMI/AAAAAAAAEPY/S5e1q1SxDpIOjcjpmcgALiAFH_OF9q4YQCLcBGAs/s1600/61.jpg)
+![](/images/tcfsmousse.jpg)
 
 搖搖瓶身後擠出一個乒乓波份量的mask  
 mousse狀的mask泡泡細密細密  

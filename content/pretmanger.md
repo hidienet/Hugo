@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 雖然是假期，也不是餐餐都要好heavy  
 
-[![](https://4.bp.blogspot.com/--sV_hZIBXv4/XERor9fmM_I/AAAAAAAAGS0/Osxo-qLWtMcJxyn1yEbqrhmj3SpnJ1V1gCLcBGAs/s640/14657888429_934e2cb5a2_z.jpg)](https://4.bp.blogspot.com/--sV_hZIBXv4/XERor9fmM_I/AAAAAAAAGS0/Osxo-qLWtMcJxyn1yEbqrhmj3SpnJ1V1gCLcBGAs/s1600/14657888429_934e2cb5a2_z.jpg)
+![](/images/pretmanger.jpg)
 
 但也不可以亂吃垃圾浪費吃東西的quota喔  
 所以就選了這家用料新鮮  

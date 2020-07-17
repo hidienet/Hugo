@@ -6,11 +6,11 @@ aliases: [ "/2014/05/time_9.html" ]
 tags : [flavor - 螞蟻族]
 ---
 
-大房是李製餅家、二房的李鵠餅店、三房的[李儀餅店](http://www.hidie.net/2014/05/time_8.html)  
+大房是李製餅家、二房的李鵠餅店、三房的[李儀餅店](https://hidie.net/li3pineapple/)  
 其實李鵠才是李源祥在1882年清光緒時期創立  
 當然，沒有多少有名的家族是不分家的  
 
-[![](https://2.bp.blogspot.com/-_vcvhbkDDhw/XDGpPzWJBLI/AAAAAAAAEm8/grLBrzuVrFgATiA31PwRxl8PDYW_hIJQwCLcBGAs/s640/666.jpg)](https://2.bp.blogspot.com/-_vcvhbkDDhw/XDGpPzWJBLI/AAAAAAAAEm8/grLBrzuVrFgATiA31PwRxl8PDYW_hIJQwCLcBGAs/s1600/666.jpg)
+![](/images/li1pinepaale.jpg)
 
 古老古老的包裝～  
   

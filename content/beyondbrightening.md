@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, collections - 김수현, glamorous - 面膜
 金秀賢的3-gift mask，顧名思義全部一共3種  
 （就連續三晚對住他吧哈哈）  
 
-[![](https://4.bp.blogspot.com/-25xBO1IY-Cc/XEMoPdaDTAI/AAAAAAAAFw8/IAZoWe-5RrgNQBAu9EFORDW-IcRZcYvnQCLcBGAs/s640/14437618383_b576b5caa2_z.jpg)](https://4.bp.blogspot.com/-25xBO1IY-Cc/XEMoPdaDTAI/AAAAAAAAFw8/IAZoWe-5RrgNQBAu9EFORDW-IcRZcYvnQCLcBGAs/s1600/14437618383_b576b5caa2_z.jpg)
+![](/images/beyondbrightening.jpg)
 
 1st gift mask是米糠亮白mask  
 超薄身不織布，水水的精華  

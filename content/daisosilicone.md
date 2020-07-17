@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 重用重用再重用無限loop的mask  
 
-[![](https://3.bp.blogspot.com/-esVQGpty1vw/XEMy63npFDI/AAAAAAAAF1w/JL0ZlIjeGq0kQPbdkX8yThpWjnGdXcthACLcBGAs/s640/14422875491_163f33f9fc_z.jpg)](https://3.bp.blogspot.com/-esVQGpty1vw/XEMy63npFDI/AAAAAAAAF1w/JL0ZlIjeGq0kQPbdkX8yThpWjnGdXcthACLcBGAs/s1600/14422875491_163f33f9fc_z.jpg)
+![](/images/daisosilicone.jpg)
 
 將平時的爽膚水mask敷上  
 或者一些易拉甩的不織布棉mask等放上  

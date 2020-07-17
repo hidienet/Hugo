@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 洗白白～ 洗白白～  
 
-[![](https://4.bp.blogspot.com/-cwWznROIdKg/XERqtkaOiBI/AAAAAAAAGUU/P-hWBEhqca89T_M0JPeIxUC9aVFEj2gLQCLcBGAs/s640/14682261720_5294d3c701_z.jpg)](https://4.bp.blogspot.com/-cwWznROIdKg/XERqtkaOiBI/AAAAAAAAGUU/P-hWBEhqca89T_M0JPeIxUC9aVFEj2gLQCLcBGAs/s1600/14682261720_5294d3c701_z.jpg)
+![](/images/tokyolovesoap.jpg)
 
 100% 純植物成分的美白soap  
 比平日用的稍微麻煩  

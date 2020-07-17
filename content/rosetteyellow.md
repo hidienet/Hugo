@@ -13,9 +13,9 @@ tags : [glamorous - 保養おたく]
 不過洗面洗出白淨的臉這概念我是buy的  
 因為面部乾乾淨淨看起來就是白了  
 
-[![](https://3.bp.blogspot.com/-5tqS8p1CQJE/XDC3Gl7zmVI/AAAAAAAAEUM/jA9IafKz3NAp-4xP9iYkiDCqh1rEH66lwCLcBGAs/s640/q.jpg)](https://3.bp.blogspot.com/-5tqS8p1CQJE/XDC3Gl7zmVI/AAAAAAAAEUM/jA9IafKz3NAp-4xP9iYkiDCqh1rEH66lwCLcBGAs/s1600/q.jpg)
+![](/images/rosetteyellow.jpg)
 
-這枝含ghassoul clay的洗面膏  
+這枝含[ghassoul clay](https://hidie.net/ghassoul/)的洗面膏  
 以起泡網就能輕易地起了豐盈的泡泡  
 味道是草本香料味都幾香  
   

@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 雖然一直覺得用來敷黑眼圈是沒有用  
 但敷面，不能美白至少可以保濕吧  
 
-[![](https://1.bp.blogspot.com/-DUYcrCS8y6Q/XEMgiFPo1vI/AAAAAAAAFs8/L2iioOCfmG8Sx6KOT8yDY4Bj6O8AkvbngCLcBGAs/s640/14383040165_266213633c_z.jpg)](https://1.bp.blogspot.com/-DUYcrCS8y6Q/XEMgiFPo1vI/AAAAAAAAFs8/L2iioOCfmG8Sx6KOT8yDY4Bj6O8AkvbngCLcBGAs/s1600/14383040165_266213633c_z.jpg)
+![](/images/beyondcucumber.jpg)
 
 而這塊青瓜mask是有舒緩功效的  
 100% cotton，比超薄不織布厚身一點  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 深層清潔的礦物泥  
 
-[![](https://3.bp.blogspot.com/-ne5eAr1Ovgw/XDBkdKIOjrI/AAAAAAAAEH4/vlmadMEWziIfqQjFo83BdmW9sdIq_j-BQCLcBGAs/s640/87.jpg)](https://3.bp.blogspot.com/-ne5eAr1Ovgw/XDBkdKIOjrI/AAAAAAAAEH4/vlmadMEWziIfqQjFo83BdmW9sdIq_j-BQCLcBGAs/s1600/87.jpg)
+![](/images/dhcclay.jpg)
 
 這枝泥好易推開  
 敷5分鐘就OK很方便快捷  

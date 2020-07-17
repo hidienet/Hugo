@@ -1,5 +1,5 @@
 ---
-title: '[masque] secret key - snow white milky pack'
+title: '[corrector] secret key - snow white milky pack'
 date: 2014-08-13T22:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/masque-secret-key-snow-white-milky-pack.html" ]

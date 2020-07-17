@@ -11,7 +11,7 @@ tags : [glamorous - 蛋臉以外]
 因為很喜歡佐伯チズ  
 所以就試了她「推薦」的這個品牌  
 
-[![](https://1.bp.blogspot.com/-XIWxlmPUmEs/XDC3pOGK2iI/AAAAAAAAEUk/1IgiyJS5BQEJnAPFddPw9j-1b20fu6h2wCLcBGAs/s640/r.jpg)](https://1.bp.blogspot.com/-XIWxlmPUmEs/XDC3pOGK2iI/AAAAAAAAEUk/1IgiyJS5BQEJnAPFddPw9j-1b20fu6h2wCLcBGAs/s1600/r.jpg)
+![](/images/sunstarora2.jpg)
 
 平常用的牙膏就融入了生活  
 最左的white spot clear  
@@ -20,14 +20,14 @@ tags : [glamorous - 蛋臉以外]
 以上都是用來分解去除咖啡、紅茶等  
 會在牙齒表面產生的色斑（東西）  
 
-[![](https://4.bp.blogspot.com/-H3urORvlhL8/XDC3up7cJ_I/AAAAAAAAEUs/j133F7SgjywwrCGWME8QFZjIjTUpGZZZACLcBGAs/s640/t.jpg)](https://4.bp.blogspot.com/-H3urORvlhL8/XDC3up7cJ_I/AAAAAAAAEUs/j133F7SgjywwrCGWME8QFZjIjTUpGZZZACLcBGAs/s1600/t.jpg)
+![](/images/sunstarora2a.jpg)
 
 要強烈點去漬之餘  
 又令牙齒有閃亮的亮白效果  
 可以用這枝premium版本  
 不過其實都沒有甚麼大分別就是  
 
-[![](https://3.bp.blogspot.com/-1b71dctXZHw/XDC30gQKKdI/AAAAAAAAEUw/43Mh6IR6GkgDkYv1CXbsx4Rfs7AAOoWvQCLcBGAs/s640/y.jpg)](https://3.bp.blogspot.com/-1b71dctXZHw/XDC30gQKKdI/AAAAAAAAEUw/43Mh6IR6GkgDkYv1CXbsx4Rfs7AAOoWvQCLcBGAs/s1600/y.jpg)
+![](/images/sunstarora2b.jpg)
 
 一星期用一次的polish  
 這枝美白程度不錯  

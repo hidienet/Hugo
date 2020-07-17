@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 原來用來敷面可以平滑肌膚  
 （但當然買新鮮桃子都是會拿來吃不會敷啦）  
 
-[![](https://1.bp.blogspot.com/-_hnbvW5srdw/XEMhUFD2HtI/AAAAAAAAFtc/n1ZB6Gf_3yQarAZqII3Pazphxdc9rc8CwCLcBGAs/s640/14381621892_dbcc8ff7c4_z.jpg)](https://1.bp.blogspot.com/-_hnbvW5srdw/XEMhUFD2HtI/AAAAAAAAFtc/n1ZB6Gf_3yQarAZqII3Pazphxdc9rc8CwCLcBGAs/s1600/14381621892_dbcc8ff7c4_z.jpg)
+![](/images/beyondpeach.jpg)
 
 未敷已經被香甜的蜜桃氣味  
 熏香得開心起來（微笑）  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 要真正做到美白，就不能缺少了一枝有用的精華素！  
 
-[![](https://3.bp.blogspot.com/-by-YWPo_qQM/XDC2J-I-JQI/AAAAAAAAETg/EAjXJ31zGU0cnko3cWzTPyuwbSqA62pkACLcBGAs/s640/95.jpg)](https://3.bp.blogspot.com/-by-YWPo_qQM/XDC2J-I-JQI/AAAAAAAAETg/EAjXJ31zGU0cnko3cWzTPyuwbSqA62pkACLcBGAs/s1600/95.jpg)
+![](/images/shiseidohakuex.jpg)
 
 這枝產品，已經出了很多「代」  
 簡直比轉手機的速度還要快  
@@ -22,7 +22,7 @@ tags : [glamorous - 保養おたく]
 但當然不會抽乾本身皮膚水分  
 然而美白功效方面  
 用了兩三個月之後發現肌膚顏色均勻了  
-斑點跟住淡了點（喔，其實還有加上[祛斑精華](http://www.hidie.net/2014/03/essence-sofina-memory-white-medicated.html)）  
+斑點跟住淡了點（喔，其實還有加上[祛斑精華](https://hidie.net/sofinastick/)）  
   
 價格不算便宜卻看的出成果  
 令人開心得產品呢  

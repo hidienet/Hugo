@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 笑騎騎，敷毒蛇～  
 （＊敷面時敬請勿笑）  
 
-[![](https://4.bp.blogspot.com/-7mTiSoieiwE/XEQjagP4poI/AAAAAAAAGNw/Jc1LMHkZ52Q7VPTDdyDQ0Iia7C1EPnbeACLcBGAs/s640/10154961485_6c76edfc80_z.jpg)](https://4.bp.blogspot.com/-7mTiSoieiwE/XEQjagP4poI/AAAAAAAAGNw/Jc1LMHkZ52Q7VPTDdyDQ0Iia7C1EPnbeACLcBGAs/s1600/10154961485_6c76edfc80_z.jpg)
+![](/images/dewytreesynake.jpg)
 
 黑黑的炭造面膜紙  
 剪裁跟size很適合我所以好貼面  

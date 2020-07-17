@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 雖然是乾性皮膚，但偶爾也會有出粒粒的時候  
 （那時候會大叫「我毀容了 T-T」這樣）  
 
-[![](https://4.bp.blogspot.com/-jXrlVbMLVYM/XEMxPZ5AKgI/AAAAAAAAF1E/04ecpj6cuA4Omn2R_DYjOmjaKR6HhZNcACLcBGAs/s640/14476324984_cbabd98fac_z.jpg)](https://4.bp.blogspot.com/-jXrlVbMLVYM/XEMxPZ5AKgI/AAAAAAAAF1E/04ecpj6cuA4Omn2R_DYjOmjaKR6HhZNcACLcBGAs/s1600/14476324984_cbabd98fac_z.jpg)
+![](/images/sensation.jpg)
 
 這枝藍光燈棒棒就會出動  
 按製預熱，夠熱會有響機提示  

@@ -12,7 +12,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 絕對會嚇親人（請顧及其他人的感受）  
 所以敷無顏色又能抗氧保濕的就最OK  
 
-[![](https://1.bp.blogspot.com/-vGv49szT9wk/XDCE2r92A1I/AAAAAAAAEOQ/YFu5nZX996sEDUhNw6dIxRVL6zP9UorIwCLcBGAs/s640/52.jpg)](https://1.bp.blogspot.com/-vGv49szT9wk/XDCE2r92A1I/AAAAAAAAEOQ/YFu5nZX996sEDUhNw6dIxRVL6zP9UorIwCLcBGAs/s1600/52.jpg)
+![](/images/innisfreesleep.jpg)
 
 這款是包包sample裝  
 敷完即棄就可以，又不佔空間  

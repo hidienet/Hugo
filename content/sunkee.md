@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 強烈不健康的東西是有偶爾吃的必要！  
 
-[![](https://4.bp.blogspot.com/-fHBYh732-ac/XDCGLeecLkI/AAAAAAAAEPI/f0wnWwIbm4wcUsW6GYsRs6VlGaQqgn36gCLcBGAs/s640/59.jpg)](https://4.bp.blogspot.com/-fHBYh732-ac/XDCGLeecLkI/AAAAAAAAEPI/f0wnWwIbm4wcUsW6GYsRs6VlGaQqgn36gCLcBGAs/s1600/59.jpg)
+![](/images/sunkee.jpg)
 
 爆漿芝心丸一咬下去  
 芝士跟油一齊流了出來  

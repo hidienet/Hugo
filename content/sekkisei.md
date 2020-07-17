@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 要說美白toner要怎能沒有雪肌精呢？  
 
-[![](https://3.bp.blogspot.com/-mwLkNpUYfog/XDC2nOlVFgI/AAAAAAAAET4/JNJAQpVLCZEyVZvIuoaRKCsXp-Njs1xLgCLcBGAs/s640/98.jpg)](https://3.bp.blogspot.com/-mwLkNpUYfog/XDC2nOlVFgI/AAAAAAAAET4/JNJAQpVLCZEyVZvIuoaRKCsXp-Njs1xLgCLcBGAs/s1600/98.jpg)
+![](/images/sekkisei.jpg)
 
 （360ml 好大枝，哈哈～）  
 主要美白成分爲薏仁當歸白蘝  

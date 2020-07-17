@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 拿隻蝸牛上面爬爬（形容得好噁心耶...）  
 
-[![](https://4.bp.blogspot.com/-2qgYZSiHq6k/XDCxIka1WfI/AAAAAAAAEP4/TSDjy0I7w-s0mGJ3LWUVbjEbcT3-6kkbACLcBGAs/s640/64.jpg)](https://4.bp.blogspot.com/-2qgYZSiHq6k/XDCxIka1WfI/AAAAAAAAEP4/TSDjy0I7w-s0mGJ3LWUVbjEbcT3-6kkbACLcBGAs/s1600/64.jpg)
+![](/images/foodaholicsnail.jpg)
 
 3D剪裁的不織布mask  
 左右上下都好貼  

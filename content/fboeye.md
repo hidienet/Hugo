@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 跪求快快貼走我的“under eye smoky shadow”！  
 
-[![](https://2.bp.blogspot.com/-7y8SJMik_Vk/XDGlZGdzZpI/AAAAAAAAEkg/y3aqJXj_lVgJZbdVbh_OyKMvSd-0w7gawCLcBGAs/s640/95.jpg)](https://2.bp.blogspot.com/-7y8SJMik_Vk/XDGlZGdzZpI/AAAAAAAAEkg/y3aqJXj_lVgJZbdVbh_OyKMvSd-0w7gawCLcBGAs/s1600/95.jpg)
+![](/images/fboeye.jpg)
 
 醫學用的生物纖維  
 超～ 貼～ 服～  

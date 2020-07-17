@@ -13,7 +13,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 （環保分子別打我）  
 所以又涼涼的又乾爽  
 
-[![](https://4.bp.blogspot.com/-8G0zoQpfhBA/XDGk12dbE2I/AAAAAAAAEkA/4GOgOR-NY3wJuznAu3gYXropAK9pLKHhACLcBGAs/s640/91.jpg)](https://4.bp.blogspot.com/-8G0zoQpfhBA/XDGk12dbE2I/AAAAAAAAEkA/4GOgOR-NY3wJuznAu3gYXropAK9pLKHhACLcBGAs/s1600/91.jpg)
+![](/images/mbdwinter.jpg)
 
 一分二的mask，感覺上有點麻煩的樣子  
 又如果part 1已經很潤  

@@ -8,14 +8,14 @@ tags : [glamorous - 蛋臉以外]
 
 要簡單又要怕單調  
 
-[![](https://4.bp.blogspot.com/-_yiB93aqSYM/XEMzVhq7nvI/AAAAAAAAF2A/VmLteFEY0_06vYlHRNBl9lSgH1JsAERNQCLcBGAs/s640/9728822585_efde2b88f8_z.jpg)](https://4.bp.blogspot.com/-_yiB93aqSYM/XEMzVhq7nvI/AAAAAAAAF2A/VmLteFEY0_06vYlHRNBl9lSgH1JsAERNQCLcBGAs/s1600/9728822585_efde2b88f8_z.jpg)
+![](/images/frenchnailsparkling.jpg)
 
 以有閃粉底的粉紅色  
 加平常的純白做稍微有玩味的french nail  
 再畫多條閃閃銀粉做分界線  
   
 平常用又得  
-襯elephantelegant的亦得  
+襯elephant (elegant!)的亦得  
 得咗～  
   
-\* 加了條線，就算條白邊油得不夠smooth都被遮住不顯眼了呵呵
+（加了條線，就算條白邊油得不夠smooth都被遮住不顯眼了呵呵）

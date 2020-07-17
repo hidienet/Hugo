@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 指甲短短就不要太花巧了  
 
-[![](https://1.bp.blogspot.com/-lnj3g6zPk1w/XEQDgs05MnI/AAAAAAAAGAM/h4HewMQ7JmsCUFsYOHsMqxZjqxhYWvvfACLcBGAs/s640/9728787191_5c57175cf4_z.jpg)](https://1.bp.blogspot.com/-lnj3g6zPk1w/XEQDgs05MnI/AAAAAAAAGAM/h4HewMQ7JmsCUFsYOHsMqxZjqxhYWvvfACLcBGAs/s1600/9728787191_5c57175cf4_z.jpg)
+![](/images/lavshucapk2.jpg)
 
 粉紅色珠光底  
 只塗一層很容易一坑坑  

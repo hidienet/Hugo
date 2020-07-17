@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 陪了我幾個年頭，來自泰國的好物  
 就是這超好用帶有防曬的爽身粉（抱緊）  
 
-[![](https://3.bp.blogspot.com/-yqO-Kj6R8yA/XEQEOvZxoUI/AAAAAAAAGAo/20JesyKL5Eklvpe5pF2cUktBIWbAdoGYQCLcBGAs/s640/14399026857_d79bb2716a_z.jpg)](https://3.bp.blogspot.com/-yqO-Kj6R8yA/XEQEOvZxoUI/AAAAAAAAGAo/20JesyKL5Eklvpe5pF2cUktBIWbAdoGYQCLcBGAs/s1600/14399026857_d79bb2716a_z.jpg)
+![](/images/johnsonsuvpowder.jpg)
 
 150g是幾年前朋友R送的  
 因為他買了幾個不同「口味」的  

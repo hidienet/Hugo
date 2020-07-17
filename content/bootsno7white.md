@@ -6,10 +6,10 @@ aliases: [ "/2014/03/masque-boots-no7-whitening-hydrating.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-之前對同系列的eye mask評價很高（[相關舊文](http://www.hidie.net/2013/10/masque-boots-no7-whitening-hydrating.html)）  
+之前對同系列的[eye mask](https://hidie.net/bootsno7eye/)評價很高  
 所以這面膜我豈有不試的理由？  
 
-[![](https://3.bp.blogspot.com/-pQRHT7NIBo8/XDC2T1T6VbI/AAAAAAAAETo/lfj0xwKRn2k6myClzEHwdn8ksSi626dHgCLcBGAs/s640/96.jpg)](https://3.bp.blogspot.com/-pQRHT7NIBo8/XDC2T1T6VbI/AAAAAAAAETo/lfj0xwKRn2k6myClzEHwdn8ksSi626dHgCLcBGAs/s1600/96.jpg)
+![](/images/bootsno7white.jpg)
 
 面膜的精華很足  
 菱格紋路的綿質面膜  

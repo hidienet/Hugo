@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 夏日炎炎，油脂分泌會較旺盛  
 不想髒兮兮的話，清潔就一定要做足  
 
-[![](https://4.bp.blogspot.com/-YYtYjiCigi4/XEMutXnitcI/AAAAAAAAFzc/8HGNJwdFOZUgDxnxL5wSnOiK1TFVfYEEQCLcBGAs/s640/14422831581_f1bda5129c_z.jpg)](https://4.bp.blogspot.com/-YYtYjiCigi4/XEMutXnitcI/AAAAAAAAFzc/8HGNJwdFOZUgDxnxL5wSnOiK1TFVfYEEQCLcBGAs/s1600/14422831581_f1bda5129c_z.jpg)
+![](/images/loveaclay.jpg)
 
 99%天然成分在內的綠泥  
 具有強勁清潔吸油功效  

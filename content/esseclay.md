@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 有機的深層清潔mask  
 
-[![](https://1.bp.blogspot.com/-6z8U4-0iDxc/XDCyiqWbfuI/AAAAAAAAEQ4/lk42I2c1ET467ArBM92Y2AXpDGhgqaphgCLcBGAs/s640/73.jpg)](https://1.bp.blogspot.com/-6z8U4-0iDxc/XDCyiqWbfuI/AAAAAAAAEQ4/lk42I2c1ET467ArBM92Y2AXpDGhgqaphgCLcBGAs/s1600/73.jpg)
+![](/images/esseclay.jpg)
 
 火山泥加上高嶺土  
 聽起來就是清潔度很足夠  

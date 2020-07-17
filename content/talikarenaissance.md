@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 夏天想留一身古銅色？  
 你自己去曬餐飽，我要美白！  
 
-[![](https://2.bp.blogspot.com/-rV9QyeExmeY/XEQUqNkxiiI/AAAAAAAAGJ8/vhii8sIatjI-KjmSZF7FNKPg_NzgJFkKgCLcBGAs/s640/10155010726_a8f286a2e4_z.jpg)](https://2.bp.blogspot.com/-rV9QyeExmeY/XEQUqNkxiiI/AAAAAAAAGJ8/vhii8sIatjI-KjmSZF7FNKPg_NzgJFkKgCLcBGAs/s1600/10155010726_a8f286a2e4_z.jpg)
+![](/images/talikarenaissance.jpg)
 
 蘊含bearberry同西柚的酵素mask  
 second skin的材質，非常貼面  

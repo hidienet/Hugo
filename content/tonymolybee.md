@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 但也不可以就此鬆懈  
 今次又要派派歐陽修出馬（掉出精靈球）  
 
-[![](https://1.bp.blogspot.com/-fOEAUUMELpQ/XEQVj0MzGWI/AAAAAAAAGKo/uAaxrMtzC_8E_sLkb2QDwHkuPC5B7_-RgCLcBGAs/s640/10504134495_677e9749fd_z.jpg)](https://1.bp.blogspot.com/-fOEAUUMELpQ/XEQVj0MzGWI/AAAAAAAAGKo/uAaxrMtzC_8E_sLkb2QDwHkuPC5B7_-RgCLcBGAs/s1600/10504134495_677e9749fd_z.jpg)
+![](/images/tonymolybee.jpg)
 
 寫上可愛的honey bee字眼  
 卻不知字裡行間還蘊藏著蜂毒在中  

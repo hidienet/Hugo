@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 berries好食，拿來敷都可以啊～  
 
-[![](https://4.bp.blogspot.com/-FN-ML9Jfk3Q/XEMxCkgZ5YI/AAAAAAAAF1A/ZPeqruWGrG8ikW8HrC-oTUkcFLOKHBvuQCLcBGAs/s640/9999790586_079266f8d4_z.jpg)](https://4.bp.blogspot.com/-FN-ML9Jfk3Q/XEMxCkgZ5YI/AAAAAAAAF1A/ZPeqruWGrG8ikW8HrC-oTUkcFLOKHBvuQCLcBGAs/s1600/9999790586_079266f8d4_z.jpg)
+![](/images/mbdmixberry.jpg)
 
 布膜材質些微厚重  
 加上精華液都不算少  

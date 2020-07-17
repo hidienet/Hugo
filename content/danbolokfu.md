@@ -6,6 +6,6 @@ aliases: [ "/2014/03/danbo-mini-x-mtr_7863.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://3.bp.blogspot.com/-Q4Ib9iJkgLk/XDC4SahiOuI/AAAAAAAAEVI/vJ3xX0WCwAEF5nLaAsy53liCHXGDnaJPQCLcBGAs/s640/o.jpg)](https://3.bp.blogspot.com/-Q4Ib9iJkgLk/XDC4SahiOuI/AAAAAAAAEVI/vJ3xX0WCwAEF5nLaAsy53liCHXGDnaJPQCLcBGAs/s1600/o.jpg)
+![](/images/danbolokfu.jpg)
 
 落褲（羞）

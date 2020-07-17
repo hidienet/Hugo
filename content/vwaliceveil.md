@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 Oops! 忘記了噴香水出門  
 
-[![](https://2.bp.blogspot.com/-AIYgJDOjEis/XERm1EGIwYI/AAAAAAAAGRg/eYX2Q9TY1tI0bDN0-2TJBI2E_YPe7hpJwCLcBGAs/s640/14641342628_cb5561ee0a_z.jpg)](https://2.bp.blogspot.com/-AIYgJDOjEis/XERm1EGIwYI/AAAAAAAAGRg/eYX2Q9TY1tI0bDN0-2TJBI2E_YPe7hpJwCLcBGAs/s1600/14641342628_cb5561ee0a_z.jpg)
+![](/images/vwaliceveil.jpg)
 
 幸好會放這種香水週邊商品在office  
 濃郁甜味的Cheeky Alice  

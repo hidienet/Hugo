@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 濃濃的朱古力口味（呵）  
 
-[![](https://4.bp.blogspot.com/-ktLwwNSt_iQ/XDGDf6mmt_I/AAAAAAAAEbk/bKW9Z4tkJoMBqV_if1AEvRmbU6W0nqbCwCLcBGAs/s640/20.jpg)](https://4.bp.blogspot.com/-ktLwwNSt_iQ/XDGDf6mmt_I/AAAAAAAAEbk/bKW9Z4tkJoMBqV_if1AEvRmbU6W0nqbCwCLcBGAs/s1600/20.jpg)
+![](/images/lovelabochoco.jpg)
 
 辻口さん是個朱古力職人  
 所以這塊crossover mask就散發出  

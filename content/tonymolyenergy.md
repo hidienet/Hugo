@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 （小不點按：最右邊那個叫朴有天！）  
 （好啦好啦終於知道了他們是JYJ）  
 
-[![](https://2.bp.blogspot.com/-O1pjRS-JE3Y/XDCzAeOfpPI/AAAAAAAAERQ/Sir9Tk4WGNoEf6Qp2ocFZIkTjWV0Jy4MQCLcBGAs/s640/76.jpg)](https://2.bp.blogspot.com/-O1pjRS-JE3Y/XDCzAeOfpPI/AAAAAAAAERQ/Sir9Tk4WGNoEf6Qp2ocFZIkTjWV0Jy4MQCLcBGAs/s1600/76.jpg)
+![](/images/tonymolyenergy.jpg)
 
 這塊營養全補的面膜  
 是中間那男的手上的精華所製成  

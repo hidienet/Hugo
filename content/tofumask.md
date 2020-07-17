@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 近期最愛的豆腐mask（抱住不放手）  
 
-[![](https://3.bp.blogspot.com/-UunpCowzBhE/XDBlEVyTxUI/AAAAAAAAEIM/9e-YQjNe2Po4Yn1zVAk4TGegb-7LVwzCgCLcBGAs/s640/90.jpg)](https://3.bp.blogspot.com/-UunpCowzBhE/XDBlEVyTxUI/AAAAAAAAEIM/9e-YQjNe2Po4Yn1zVAk4TGegb-7LVwzCgCLcBGAs/s1600/90.jpg)
+![](/images/tofumask.jpg)
 
 柔滑cream cheese質地  
 成分有大豆乳乳酪蜂王漿蜂蜜等  

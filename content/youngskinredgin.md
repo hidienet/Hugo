@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 又是平敷不心疼時間  
 這次是紅蔘的口味  
 
-[![](https://3.bp.blogspot.com/-KqnQ1Tmln0c/XEQADeKqBjI/AAAAAAAAF9c/nbtldoO3Bo8EucwI0YTQvGFra27GFfJQgCLcBGAs/s640/10504125204_b3eb440aea_z.jpg)](https://3.bp.blogspot.com/-KqnQ1Tmln0c/XEQADeKqBjI/AAAAAAAAF9c/nbtldoO3Bo8EucwI0YTQvGFra27GFfJQgCLcBGAs/s1600/10504125204_b3eb440aea_z.jpg)
+![](/images/youngskinredgin.jpg)
 
 人參的氣味好濃  
 當然知道是香精的  

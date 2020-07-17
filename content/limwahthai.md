@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 小小而飽滿的豆沙酥  
 一次過能吃多少粒？  
 
-[![](https://1.bp.blogspot.com/-u9eA75wCsXs/XDBk1mi7ovI/AAAAAAAAEIE/1hVTqcTFtHApYlsbyQdgqOm6M2nXkLfGQCLcBGAs/s640/89.jpg)](https://1.bp.blogspot.com/-u9eA75wCsXs/XDBk1mi7ovI/AAAAAAAAEIE/1hVTqcTFtHApYlsbyQdgqOm6M2nXkLfGQCLcBGAs/s1600/89.jpg)
+![](/images/limwahthai.jpg)
 
 層層的酥皮  
 包住爆多的綠豆蓉餡料  

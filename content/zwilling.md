@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 指甲鉗這簡單的槓桿原理東西  
 就是無可取代  
 
-[![](https://2.bp.blogspot.com/-imDyyLyl_EM/XEM7PCmi_qI/AAAAAAAAF7g/MUGG_NiScRIFuNh0sx9mm1K-r4fSp3f3QCLcBGAs/s640/14609207856_fa26855ef2_z.jpg)](https://2.bp.blogspot.com/-imDyyLyl_EM/XEM7PCmi_qI/AAAAAAAAF7g/MUGG_NiScRIFuNh0sx9mm1K-r4fSp3f3QCLcBGAs/s1600/14609207856_fa26855ef2_z.jpg)
+![](/images/zwilling.jpg)
 
 用的是孖人牌（Zwilling J.A. Henckels）  
 是個德國做鋼刀那個品牌  

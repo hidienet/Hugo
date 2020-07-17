@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 美白、保濕、緊緻卻不黏膩  
 就集中於這一瓶內  
 
-[![](https://1.bp.blogspot.com/-4IWb-Wqv1Ts/XDC03frF67I/AAAAAAAAESo/QW2gQFs4HCsjWsnh2tjrkyUWBTsaSrT4ACLcBGAs/s640/88.jpg)](https://1.bp.blogspot.com/-4IWb-Wqv1Ts/XDC03frF67I/AAAAAAAAESo/QW2gQFs4HCsjWsnh2tjrkyUWBTsaSrT4ACLcBGAs/s1600/88.jpg)
+![](/images/ipsawhiteex2.jpg)
 
 平日已塗抹了toner serum那些  
 所以絕對不想用moisturizer後  

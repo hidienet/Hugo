@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 一盒30片的紙eye mask（附小膠鉗很衛生）  
 
-[![](https://2.bp.blogspot.com/--Va5eBU_4kU/XEQQJEPis1I/AAAAAAAAGHM/z9OFbc1U8CEGIqLxwrjfgh_uNDqdTGKLgCLcBGAs/s640/14724105106_d84f386e0a_z.jpg)](https://2.bp.blogspot.com/--Va5eBU_4kU/XEQQJEPis1I/AAAAAAAAGHM/z9OFbc1U8CEGIqLxwrjfgh_uNDqdTGKLgCLcBGAs/s1600/14724105106_d84f386e0a_z.jpg)
+![](/images/naturerepublicsnow.jpg)
 
 有淡淡漢藥香味  
 腰果形的眼膜紙大大塊  

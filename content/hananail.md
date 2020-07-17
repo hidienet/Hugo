@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 塗上那些有透明亮色的都是護甲油  
 不過還是要「素甲」令指甲好好reset  
 
-[![](https://2.bp.blogspot.com/-KMSqu5YkaXg/XERpFI2JqeI/AAAAAAAAGTA/j7lR1JUQ2QIMjr_T9PZ7m18v0wymPEtPgCLcBGAs/s640/14670487737_81f282ca81_z.jpg)](https://2.bp.blogspot.com/-KMSqu5YkaXg/XERpFI2JqeI/AAAAAAAAGTA/j7lR1JUQ2QIMjr_T9PZ7m18v0wymPEtPgCLcBGAs/s1600/14670487737_81f282ca81_z.jpg)
+![](/images/hananail.jpg)
 
 別看只是小小的一枝  
 用量超～ 少～  

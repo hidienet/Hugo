@@ -11,7 +11,7 @@ tags : [flavor - 螞蟻族]
 其實不放在一齊  
 就不會太有明顯的差別  
 
-[![](https://2.bp.blogspot.com/-GSPUUGXm6Cw/XDC586kVclI/AAAAAAAAEWY/2Dw5V_fi3N0QjeP4ifG8J13uOb--a6dCgCLcBGAs/s640/q12.jpg)](https://2.bp.blogspot.com/-GSPUUGXm6Cw/XDC586kVclI/AAAAAAAAEWY/2Dw5V_fi3N0QjeP4ifG8J13uOb--a6dCgCLcBGAs/s1600/q12.jpg)
+![](/images/almondchoco.jpg)
 
 但事情就是有那麼的剛剛好  
 由朱古力本身的可可味道  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 一用這個program就用了25天  
 想天天敷不同mask的我覺得非常悶吶  
 
-[![](https://3.bp.blogspot.com/-fNcnF2VR-mo/XEM6_XwjzxI/AAAAAAAAF7c/TmQa8FcJpvkAPGseYVFXhH98LbGwAHMPwCLcBGAs/s640/14398785080_acf5f063ba_z.jpg)](https://3.bp.blogspot.com/-fNcnF2VR-mo/XEM6_XwjzxI/AAAAAAAAF7c/TmQa8FcJpvkAPGseYVFXhH98LbGwAHMPwCLcBGAs/s1600/14398785080_acf5f063ba_z.jpg)
+![](/images/neogencode9.jpg)
 
 投訴完畢，然而這「曲拉」是值得花這些時間  
 那瓶深黃色帶點點金粒的  
@@ -58,8 +58,8 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 （用beyond angel snow melting cream，又爽又夠保濕）  
   
 然而，開始不安分地直接用  
-除了會以[小顏按摩](http://www.hidie.net/2014/01/massage-suqqu-musculate-massage-cream.html)手法去按摩外  
-就每隔一兩天加了[導入機](http://www.hidie.net/2014/07/tools-dhc-pretico.html)去加強吸收  
+除了會以[小顏按摩](https://hidie.net/suqqu/)手法去按摩外  
+就每隔一兩天加了[導入機](https://hidie.net/dhcpretico/)去加強吸收  
 果然黏膩感也能隨之然減少  
   
 一整個program乖乖地後  

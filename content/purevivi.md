@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 試過就會愛上的卸妝水（大大心）  
 
-[![](https://2.bp.blogspot.com/-oSeJJwt88CU/XDGHorTqbaI/AAAAAAAAEdg/9uL5CJCXPlw4nYVAJQt94uIRQJ9FgJrTgCLcBGAs/s640/36.jpg)](https://2.bp.blogspot.com/-oSeJJwt88CU/XDGHorTqbaI/AAAAAAAAEdg/9uL5CJCXPlw4nYVAJQt94uIRQJ9FgJrTgCLcBGAs/s1600/36.jpg)
+![](/images/purevivi.jpg)
 
 清潔度很好很乾淨  
 不會令皮膚乾燥  

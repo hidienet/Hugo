@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 但上過i VoCE的hair care第一位  
 不妨試一下吧～  
 
-[![](https://1.bp.blogspot.com/-CsiwkepGBIM/XEMjNKXaWCI/AAAAAAAAFu4/UAknqLV041YEpa6nnO3JnyroPERX2PU9QCLcBGAs/s640/14433290823_9a9e0a6dd6_z.jpg)](https://1.bp.blogspot.com/-CsiwkepGBIM/XEMjNKXaWCI/AAAAAAAAFu4/UAknqLV041YEpa6nnO3JnyroPERX2PU9QCLcBGAs/s1600/14433290823_9a9e0a6dd6_z.jpg)
+![](/images/utenaoil.jpg)
 
 用了三分一還留住個包裝盒？  
 是啊～ 因為包裝盒是說明書  

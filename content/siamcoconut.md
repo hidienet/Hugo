@@ -9,10 +9,10 @@ tags : [glamorous - 蛋臉以外]
 椰子樣椰子香的泰國手造沐浴皂  
 （立體切半的椰子樣好可愛）  
 
-[![](https://3.bp.blogspot.com/-uKEX2TzsVo0/XDC6KgiG0kI/AAAAAAAAEWc/mVbATkjhz5oVSD2xA0DeNL8hiq6tio5xwCLcBGAs/s640/3q.jpg)](https://3.bp.blogspot.com/-uKEX2TzsVo0/XDC6KgiG0kI/AAAAAAAAEWc/mVbATkjhz5oVSD2xA0DeNL8hiq6tio5xwCLcBGAs/s1600/3q.jpg)
+![](/images/siamcoconut.jpg)
 
 也是用起泡網加水起泡  
-（對，[那個起泡網](http://www.hidie.net/2014/03/tools.html)真的很忙）  
+（對，[那個起泡網](https://hidie.net/mujinet/)真的很忙）  
 泡泡綿密綿密的又帶輕輕的椰子味  
 白色那邊泡泡會白色  
 但黑色那邊起的就是灰色泡泡  

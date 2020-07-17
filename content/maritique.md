@@ -20,7 +20,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 自己的皮膚又是乾底  
 加上年紀又blablabla...  
 
-[![](https://4.bp.blogspot.com/-ttiP5yFEX5g/XEM810zVGCI/AAAAAAAAF8Q/UtrL_olpWb4mZyMvclDg5at2s_B9C8TUQCLcBGAs/s640/14632224892_67b95ef4de_z.jpg)](https://4.bp.blogspot.com/-ttiP5yFEX5g/XEM810zVGCI/AAAAAAAAF8Q/UtrL_olpWb4mZyMvclDg5at2s_B9C8TUQCLcBGAs/s1600/14632224892_67b95ef4de_z.jpg)
+![](/images/maritique.jpg)
 
 入正題（終於）  
 如其標籤上寫的sticky  

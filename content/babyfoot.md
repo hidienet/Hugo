@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外, glamorous - 面膜魂]
 
 腳部死皮種族大清洗（吼）  
 
-[![](https://4.bp.blogspot.com/-1pM0UJN9Mic/XEQdyrIo0MI/AAAAAAAAGLk/x2PvCfiovIoMEK9gaTX10GyEbH0ZTPQHwCLcBGAs/s640/9686851576_7bb5176d42_z.jpg)](https://4.bp.blogspot.com/-1pM0UJN9Mic/XEQdyrIo0MI/AAAAAAAAGLk/x2PvCfiovIoMEK9gaTX10GyEbH0ZTPQHwCLcBGAs/s1600/9686851576_7bb5176d42_z.jpg)
+![](/images/babyfoot.jpg)
 
 不損傷腳部的化學性去死皮  
 洗乾淨腳後套上酸味超濃的膠腳套  

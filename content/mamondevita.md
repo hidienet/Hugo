@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 紫色、vitalizing...  
 想起了樽裝水同一位朋友  
 
-[![](https://4.bp.blogspot.com/-0CP-Ky5M57Y/XEQNS9W-GmI/AAAAAAAAGFc/g4a47a27zOQ-1-oaqZeEosr4EHFW0zAtgCLcBGAs/s640/10504180455_f5c1fa0c8e_z.jpg)](https://4.bp.blogspot.com/-0CP-Ky5M57Y/XEQNS9W-GmI/AAAAAAAAGFc/g4a47a27zOQ-1-oaqZeEosr4EHFW0zAtgCLcBGAs/s1600/10504180455_f5c1fa0c8e_z.jpg)
+![](/images/mamondevita.jpg)
 
 漂亮的三色堇  
 能活化皮膚同補充水分及營養  

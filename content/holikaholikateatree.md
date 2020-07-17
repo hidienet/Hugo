@@ -6,13 +6,11 @@ aliases: [ "/2014/07/masque-holika-holika-juicy-mask-sheet.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-這陣兒對自己身體很差嗎？
-
-鼻右則剛生瘡，平復還沒退印
-
+這陣兒對自己身體很差嗎？  
+鼻右則剛生瘡，平復還沒退印  
 左則又開始有一粒想冒起來（哭）
 
-[![](https://3.bp.blogspot.com/-NoWMdXCffU4/XEQHKPS4yrI/AAAAAAAAGDI/xTyjraaTTA4aCMujftCx4yC5QXYDqE22QCLcBGAs/s640/14638784316_921ea61ace_z.jpg)](https://3.bp.blogspot.com/-NoWMdXCffU4/XEQHKPS4yrI/AAAAAAAAGDI/xTyjraaTTA4aCMujftCx4yC5QXYDqE22QCLcBGAs/s1600/14638784316_921ea61ace_z.jpg)
+![](/images/holikaholikateatree.jpg)
 
 與其叫救命不如好好地K掉  
 薄薄一塊的mask  

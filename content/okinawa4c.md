@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day4：ナゴパイナップルパーク'
 date: 2013-11-18T21:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day4_985.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
 ---
 
 我join的bus tour行程只有兩個地方  

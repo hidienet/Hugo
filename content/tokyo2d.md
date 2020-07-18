@@ -19,7 +19,7 @@ tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京
   
   
 
-[![](/images/tokyo2d.jpg)
+![](/images/tokyo2d.jpg)
 
 logo的那隻兔仔好可愛  
 （包裝袋上還是招牌會比較清楚？）  

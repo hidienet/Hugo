@@ -91,10 +91,10 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 
 [小町通り](https://hidie.net/kanagawa3g/)  
 
-![](https://af0nuq.ch.files.1drv.com/y4mzs_jguPXHyZ-EfU2vn1B-71wehkY2ecwLi6oIL7Lji1HtIywgatYoirX6w-qvPX-s8_WHvYJmxlSsUKYL6ZBad67-zNb8m75GXxOyxyji4HdseCuDSxbVg3ZR5N03GjNAlDPJ8b3F5sKqZz0LWQVA5C6-R4DyvWQ1oLKaXHqTjGR4MhFRdHw06JqWG-ykE1Sd8ttSRHm4ssPYi1PX-r-xw?width=660&height=371&cropmode=none)
+![](/images/kanagawa3h1.jpg)
 
 **鎌倉 大佛麦酒 ～縁～ | IPAシリーズ**  
-@**UNDER THE PALMO（アンダーザパルモ）**  
+@[UNDER THE PALMO（アンダーザパルモ）](https://hidie.net/kanagawa3h/)  
 今日鎌倉好多人，行街又冇咩想買  
 唯～ 有～ 坐低飲返杯鎌倉 & 湘南嘅手工啤  
 

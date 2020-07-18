@@ -16,7 +16,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
 （一天票就是連一個那走的站都要坐車）  
 沒啥看上眼，因為都不算便宜  
 
-[![](/images/okinawa3k.jpg)
+![](/images/okinawa3k.jpg)
 
 只覺得豆腐的包裝很可愛（有型？）  
   

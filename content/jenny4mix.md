@@ -66,5 +66,5 @@ tags : [flavor - 螞蟻族]
 
   
 
-申延閱讀：[jenny bakery - pineapple rolls](https://hidie.net/jennysrolls/)  
+延伸閱讀：[jenny bakery - pineapple rolls](https://hidie.net/jennysrolls/)  
 （為甚麼每次的jenny都是人家送的呢？哈）

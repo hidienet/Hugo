@@ -20,7 +20,7 @@ tags : [glamorous - 保養おたく]
   
 晚上以薄化妝棉濕膚效果最好  
 （亦是因大用量而超肉赤的原因，幸好我已並非早晚使用）  
-而敷棉是鍾愛的「佐伯チズ face lotion pack cotton」  
+而敷棉是鍾愛的[佐伯チズ face lotion pack cotton](https://hidie.net/facialcotton/)  
 每天敷著，不知不覺地樣膚慢慢地更好了  
 勤有功 勤有功 是真的喔！  
   

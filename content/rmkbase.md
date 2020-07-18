@@ -9,7 +9,7 @@ tags : [glamorous - 畫皮？]
 不是產品沒有顏色啦，只是完全地用光了！  
 （國王的makeup base？哈）  
 
-![](/images.rmkbase.jpg)
+![](/images/rmkbase.jpg)
 
   
 這款水狀淡肉色的make up base，塗抹在面上便沒有顏色  

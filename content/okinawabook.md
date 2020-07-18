@@ -15,7 +15,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
 日文英文中文繁體跟簡體和韓文等俱全  
 裡面還有優惠劵呢！  
 
-![](/images/okinawaboo1k.jpg)
+![](/images/okinawabook1.jpg)
 
 住了這幾天的**国際通**  
 馬路上，真的有很多車  

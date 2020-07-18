@@ -15,7 +15,7 @@ tags : [travel - 日本（沖縄琉球）・沖縄]
 想吃首里そば但還未到開店時間  
 行走時同行人有三急，便走到公民館借洗手間
 
-[![](/images/okinawa3c.jpg)
+![](/images/okinawa3c.jpg)
 
 自助的訂房機跟看板  
 如果公司可以依每個project去訂房的話  

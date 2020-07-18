@@ -8,7 +8,7 @@ tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
 
 沖縄ビール，除了ORION還有HELIOS！  
 
-[![](/images/okinawa6e.jpg)
+![](/images/okinawa6e.jpg)
 
 **青い空と海のビール**（左）  
 沖縄白啤，一點都不會苦  

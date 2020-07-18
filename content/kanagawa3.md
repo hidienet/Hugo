@@ -116,15 +116,15 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 上埋**大石段**就到達**本宮**  
 太多人喇實在，行上行落唔參拜就走喇  
 
-![](https://p1wruq.ch.files.1drv.com/y4mikK_WXvo3-C40gBw5vU6NwEFAdJopgvl9QNKNF4IBdyysoQAvSebAkxX31GBdAUQXuGTCsZg6or3sllXyfooQ4GjzPDzjrHNZ9a5Y1Llf_3qi8EBx7NL7MCiFw19zbo8ogOYMFjib32H2nHxfW_lMD4R3gjMldPrGRgUvbLxbE_SUUQZaIeIaEjT803ao5k-InadU0mIm4uk_nAaj0FN7A?width=660&height=371&cropmode=none)
+![](/images/kanagawa3j1.jpg)
 
 落雨，去**豊島屋 本店**避雨  
 
-![](https://p1wtuq.ch.files.1drv.com/y4mx9q4Xzh5LvllT2TYNvWvaL3mobbqtESWqE1Vo-jQd9F9k2_d8U-l3c3WcGtXVc0p8pviu02w56d0mbDKusAPvZWApZ6Ojz1CcF5SLB4IB7SvEfmKDPTdQxuepd66azTL_j_Hu4HbKercxBNWV9-_cBoAGvPeysoEJ3pLsVMpr1EVMXRH8YyxVnmr33FkD0nGD_Xc55c2gQWWyOa6yy98fA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3j.jpg)
 
-順便買**鳩サブレー**食  
+順便買[鳩サブレー](https://hidie.net/kanagawa3j/)食  
 
-![](https://av3czw.ch.files.1drv.com/y4mfDJalZ1fXKJk4NDnzTvYjVqpHa5v0GmfJ5g1BH8y1ZkPDSvSyr6HZJtFZwEXRR6KfMqQDN8l3aV65yh1gcMIsVV3d9qU1fxVACP0iZyF3eh26-OVphgg9IIeQolMog3zv_9tgv_2ltgjH-xYcSoixqyUxOOEI-8b5xOEGlWVGBmBzjFFbD_T6fVi5z3kl71AwOO75fJqHZgyBRjAYAqtOw?width=660&height=371&cropmode=none)
+![](/images/kanagawa3j2.jpg)
 
 總店限定版紙盒裝  
 隻餅有手掌咁大，而且又香又甜好好味（正！）  

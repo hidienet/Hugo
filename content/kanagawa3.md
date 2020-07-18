@@ -98,20 +98,20 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 今日鎌倉好多人，行街又冇咩想買  
 唯～ 有～ 坐低飲返杯鎌倉 & 湘南嘅手工啤  
 
-![](https://av0muq.ch.files.1drv.com/y4m6t14dSC1ivJ_-b8mNmu713kRGyGploOJ_SWMU-D23IyhHktOF-yE3q1i51FcZdgPp4i2PVh-FbHPKl6BjyzsDVBBey8j8Ru6zy1cCd_sFm4hUQ_HNeUGr-QQw5cb-_ugKV6D9DFXp-fChUZnsMRAFI8Z368qbbQNTZIqVHjGKGP7H1aB60WdHClq2weqMQCoJqZCivYKlIHcrL-_kl7VXA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3i1.jpg)
 
-飲完唞夠繼續行就到**鶴岡八幡宮**  
+飲完唞夠繼續行就到[鶴岡八幡宮](https://hidie.net/kanagawa3i/)  
 左右橋行，中間呢條**太鼓橋**立入禁止嘅  
 
-![](https://al0nuq.ch.files.1drv.com/y4mk9lR6G65OYIaMe6WLobIWsYcmx_S7ErpJ4CyUgdyYxR3mvlLAITm0HfNUcmQGfKgU6kWrahxhcPPgiw1HsuJGySMjHs0MCR2TYdCJwKiyLM7dy64M-gPTHoSRe9FMojtOjlBo8p6sm0H_WjWryypYZNMZJZlGRqk7qk3r22ydcTyMRs_XCJUDfLZHz3LeUCGvhKFXeAUqfp-kmvbEc0M6Q?width=660&height=371&cropmode=none)
+![](/images/kanagawa3i7.jpg)
 
 經過**舞殿**  
 
-![](https://al0quq.ch.files.1drv.com/y4mwI__XI0DL552weBH9QRyXF3BhWuil50nZP5-Dth2djlmwek97FD-LIF5TozFKeh5cP2b37vjY1i9dDK7bODebRRAj_VAtzbSM6k471ZRnoVmx7AhJrEZhVrAs5wP4bAh69lUNRYIIByolUbnym_f9sfGty-bbulCUedsB3xy1t6cBL6EcP_3h9hsYcDniTGpe4kYO8yeNht8PY6j7BLSwQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa3i8.jpg)
 
 嘆息之牆（大誤！）  
 
-![](https://bl1yra.ch.files.1drv.com/y4mzC1CChgkOxebYjdV9kez1cVUHF7ptc1ThJACKvBIafJprb1su-05eBcUlhy-0Cllpdc-Gyo21BBe-DfOlCwOS9cDP_Jibsljie0LbRNwY3tofR66-D3SpMvHTJdvdx5XC3nkysqRqPQQZvIOTf0OpRxO2Ka1Orr6T-KFVgAfNvbwJDUFpoF98Dwa4hvebH8vdeX_00GxKxTJ_bddfc5X2g?width=660&height=371&cropmode=none)
+![](/images/kanagawa3i9.jpg)
 
 上埋**大石段**就到達**本宮**  
 太多人喇實在，行上行落唔參拜就走喇  

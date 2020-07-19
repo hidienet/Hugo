@@ -207,17 +207,17 @@ skip咗江ノ島直接上[湘南モノレール](https://hidie.net/kanagawa3q/)�
 
 佢係單軌吊車啊！  
 
-![](https://bf3czw.ch.files.1drv.com/y4mLvcwnk_BCux_h75etmkkDbHODTme91tWxZabgcc5GbdKf7eoSufQnj9L3yy1M4rMEYc24URcQ3-NmfR0igWIcl_1bKVpYmCIZVuLn638uO9V61a-deXmq3dAb7vnkMeWGQ4QREdylvlLELV83uafQlPO-X5jhcNcCwAunpWwfktZ0eR7DCQ-jxJ3_9KmDcb5bgDI2brUkCjR30RDg0ohgg?width=371&height=660&cropmode=none)
+![](/images/kanagawa3r1.jpg)
 
 站頭到站尾嚟到**大船駅**  
-仲係落緊大雨就搵食先啦 @[横浜天下鳥](https://hidie.net/kanagawa3/)  
+仲係落緊大雨就搵食先啦 @[横浜天下鳥](https://hidie.net/kanagawa3r/)  
 氣氛好好㗎，飲第一杯係會全部staff一齊陪乾杯好嗨呀～  
 
-![](https://bf3dzw.ch.files.1drv.com/y4mTyQbxfY9g2Kn6KOkEYG6twm4rmCpFpprvtEjLBVuXbOvazY27FNC-X0RJcbf3ImT8MWNjJu3dn2plQItsGMb-sPsep94faf88dJUaWSHCaWVbEU8IKNIIjqzw66usmQf0KFnVEi1w-D7O7yqh4wtf0owsO80TBYz27vZ2xFcMRsb_6ZoZHbLXJcTRRF-hVrhzLcZtqxhVyVkkWkP7zGBBg?width=660&height=371&cropmode=none)
+![](/images/kanagawa3r.jpg)
 
 叫得呢個名梗係有雞食  
 
-![](https://bv3zzw.ch.files.1drv.com/y4mlHy0_DcqTUqLmHtUt5qp6eBdguHbf_zte2HK7IPXIYRS-NquuS1cXcmC-NnNNTxmdjzA7idiAHIxv4I7XmL8zx2FZzrWwULbbfPyqORlTn6gPZKro8HkE8Ihsb4zuaj4awj3QsZwSaZWipqP2OGhv44K_XEOWLacvla0YipveqO04XUgHqXlqoAapDH1b0LJP3WHynxUcrumdp5I4umekA?width=371&height=660&cropmode=none)
+![](/images/kanagawa3r7.jpg)
 
 啲串燒非常非常好食！  
 

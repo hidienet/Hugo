@@ -38,10 +38,6 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 ![](/images/kanagawa3m6.jpg)
 
 再行出去**相模湾**  
-
-
-![](/images/kanagawa3m7.jpg)
-  
 but唔係嚟吹海風啦～  
 
 

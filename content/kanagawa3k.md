@@ -1,5 +1,5 @@
 ---
-title: '[神奈川衝撞旅] Day3：'
+title: '[神奈川衝撞旅] Day3：五所神社 - 乱材祭'
 date: 2020-07-21T07:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3k.jpg"]

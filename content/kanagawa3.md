@@ -221,9 +221,9 @@ skip咗江ノ島直接上[湘南モノレール](https://hidie.net/kanagawa3q/)�
 
 啲串燒非常非常好食！  
 
-![](https://af1wra.ch.files.1drv.com/y4mvy8a08RYP0Q2vLPTNh-cWYcvJ6qomfPafpQCyO9orS590nfrHQmVh9_n2R8vRxSyLqucoN_gHs5-G23n3trUxAFjqPZjSZl0HJqb14WXuctn7BG4yx6fu8UuQi9bXh-sefQzVxHaZkzA9Atpf7pccD9RsaEpCP9W4DJp61lYQq-PCSzOc0wuNMWlME4OKBHAT804V2vUTGauwMJPeURaMA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3s.jpg)
 
-**森永 ビスケットサンド ミルクキャラメル**  
+[森永 ビスケットサンド ミルクキャラメル](https://hidie.net/kanagawa3s/)  
 食咗幾串又飲咗少少落肚仲有甜品送  
 不過搭返JR嗰陣都係忍唔住要食佢  
 無計啦焦糖牛奶糖實在太吸引  

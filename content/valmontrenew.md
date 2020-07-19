@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 如果這一輩子只能有一隻mask可以敷  
 我絕對會選這一瓶無誤
 
-![](/images/valmontrenew1.jpg)
+![](/images/valmontrenew.jpg)
 
 又是一隻價格令人咋舌的面膜  
 但敷完以後真的無法不愛上

@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 「樂天熊仔餅，好食到唔捨得請～」  
 
-![](/images/lottekoalarare1.jpg)
+![](/images/lottekoalarare.jpg)
 
 rare cheesecake的口味  
 啖啖cream cheese再加上淡檸檬味  

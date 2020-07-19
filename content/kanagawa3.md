@@ -129,88 +129,88 @@ tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎�
 總店限定版紙盒裝  
 隻餅有手掌咁大，而且又香又甜好好味（正！）  
 
-![](https://qfwtuq.ch.files.1drv.com/y4mxFy_fIzmQSNJtI2telNGMlJSTvOlGVHVSwLCk3-wd6q7ySGwBKzisTmh8uOA24hFp0JGhDVoWz0zMWfuBlteSFvsuB45Sx30laBpagzefgO6wzTY3B5rA26PBB14BJ2_fn45luwnuPhGm1g4-PtgxlmtYBVzmk-JmXvsZ5Qykkfr4B0VByPBH8uoM5fYyKgKjVUnKSRilP17epuAjt2RRA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3k2.jpg)
 
 然後一直行到去**材木座海水浴場**  
 
-![](https://a12slq.ch.files.1drv.com/y4m-YTdb5Ye2ldwHMQo2aNO26QhfeeXWefNbb3zlTMNjPkovBpS2aKQy9UwrgbvlK2336h33156B941r0tUWxl9H35Mv8qpXX6upv6UmN6hxg3Wm1TEWIm0HEtm7Fy2DuUhkEzQpgd7Tx8v_lHZNwkZRT8BXFwskLd8MCW_JqP2g7U2zeoygrLP_eVx-vzOoCDv4HzHfiSxeFOqJFPzQAe54A?width=660&height=371&cropmode=none)
+![](/images/kanagawa3k5.jpg)
 
 唔係游水係嚟睇今！日！限！定！  
 
-![](https://bf2olq.ch.files.1drv.com/y4mIc-kcQwKXpykhcE6mcAevGYtHARkln6p4r4hoEdv2zGHLYUgGbodzzYhwbaiXPxE3cl-q7DJNZ3hWe9pHbnF_4E-3Eg7DtwZcGvLOTcoHTVVR5bV3wX8WCrjB7LRZbig7TgfVGmoCXYBJ--UwKU6Tlr9CKEIn7j0WXdsRwAqePh8b7nwiFIXekNO4uh1xK4hvbJLYCb8m4tF6XpJf7HG8A?width=660&height=371&cropmode=none)
+![](/images/kanagawa3k6.jpg)
 
-係**五所神社**嘅例大祭：**乱材祭**  
+係**五所神社**嘅例大祭：[乱材祭](https://hidie.net/kanagawa3k/)  
 
-![](https://bl14ra.ch.files.1drv.com/y4mB3K7TvrVVkjxVlZEGG8y0GUtoLC1pOnFEOi0vNlwUO4oAPMMaHdmfIYmoaN9bE7VQveFygVlWqj1DilBGzO8BQOuyO2XKYku6v-_NiBNpzRG7s1Wxa6xzUx0rIHPcnEmU7RTmse35Fzz4HVkJfCc0kkxP-cl4JqRr5cRTHnooXJ8Kd7J65ZUB-854CZSy0ZemNboKxPP8L3jj7hPkKOqFQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa3k7.jpg)
 
 啲**神輿渡御**唔止擺响度...  
 
-![](https://q1yvlq.ch.files.1drv.com/y4mMdI1Zg5p_LUZPGnQrrQVBqa9pBE0OKNJEHla-RuoH-VFLsi0mqZy5czelOieKH4fjwuppkqp7Gs3FwLcXiAmOZZz7co4Em-CdH1xG1qLbJi73WdfSsesIoL8CCscW4yGNxkoXxxsFcxR_9jKimZOh70AbnTZ1IyVGqR5Rvrzn28lk_lNND11QwAq3lmRzGUxPOhkq-20kvk-HzRFeIQwXA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3k10.jpg)
 
 剝好晒衫就掉將佢哋落水！（哈哈哈好過癮）  
 
-![](https://af2ulq.ch.files.1drv.com/y4mxfuxMWHcHrlC0KgPxH8Y43fUJx4eFuJKP9DU-uq2KJtG5yM6deutv0Lf7AdwAtWiMzHN5ZyqfLxg9WVxA0HGgKAODaOuENA8jCIw7xXZFDQQ8lhbNtz5IVCOdgmLZoUZ8okwKsSVzMF2Rn6Yj0shalXw0ccS1FTi9OEmxDx1PSiV0G_FHyU5t92-xidXM-a-73IgUX4c4hAANFCCw7MHJg?width=660&height=371&cropmode=none)
+![](/images/kanagawa3k11.jpg)
 
 一年得一次，所以今年只係今日先有咋～  
 
-![](https://av2qlq.ch.files.1drv.com/y4mdc-Gs_zR1wLSN4ELvmVpIAU0-xL-uAkrG8zPGWqlQw1DStwZY7CRX21RTOHtNXYtpeyfpdNXhWiV9xflUIQfafFtA1vOXOzQHxUr1dQjWOlPlLBLuQtd8732jk2xlRqAyuB8IbUWCTz4FWi47HffoVg-whXr-RMxcJNZ_dNqWdCaAKYm2wUuk0cR7_1ONSu_KVC9vrQMzR3QIyljYecf2Q?width=660&height=371&cropmode=none)
+![](/images/kanagawa3k13.jpg)
 
 唔留太耐冇睇晒就行喇  
 
-![](https://al2qlq.ch.files.1drv.com/y4mxQs1VbR21oA4nCSOePO2q_40xnry440Hbt6IuIY9X4ZfNFh3ZJrGXix1w-juzQkSW1XcV2CSNLx0hZODeNwZ0Y5hPXLu5R8ltV8Xc2BedmHg9Mp-hk5y8pa7uii90Kt3Th1Rv9M6_nsMUpAgA7ucwMTFkLIY_Sp_iOyPcesUrRYaWHZlTXdF_iK_TQ0dnZhF7k12D0jJXCTFkBdBAp_Clg?width=371&height=660&cropmode=none)
+![](/images/kanagawa3l1.jpg)
 
-臨離開前食**グリコ アイスの実**  
-今次係期間限定嘅**メロン**蜜瓜味  
-（[みかん](https://www.hidie.net/2017/02/happy-days-day-4_10.html) | [白いカフェオレ](https://www.hidie.net/2017/03/happy-days-day-5_9.html) | [マンごー](https://www.hidie.net/2017/09/day3.html) | [ぶどう&もも](https://www.hidie.net/2017/10/day5.html) 隻隻都好食）  
+臨離開前食[雪糕 & ice](https://hidie.net/kanagawa3l/)  
+**グリコ アイスの実**  
+今次係期間限定嘅**メロン**蜜瓜味    
 
-![](https://al2tlq.ch.files.1drv.com/y4moSV6-NmktU9W_OZkIFG5enSmzDbtAZKYNzPg73futs9Lj4GOmENyT0YEbDL8n2uIFgdWW4QMAOeVKgr1C2ywgA_hzmKcZx6PWfMN96cxr5lw9w9j1eiAvU6Dj1Iik4DfeVweiQCD2BoXM-GEDlXZ02QcFcy9OdwDaQtRd4JSE1Kt8TxwiluVcboH-JILf1Sk3ftbXtSTyK-LOlLvRjt1rQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa3l.jpg)
 
-仲有**飯田牧場嘅ice milk premium**朱古力碎粒粒牛奶雪糕  
+仲有**飯田牧場 ice milk premium**朱古力碎粒粒牛奶雪糕  
 係當地牧場，呢間籮神限定發售㗎！  
 
-![](https://p1yqlq.ch.files.1drv.com/y4m6Zi8aCW3iYtGAwmhC1P4pDKwzyXdvJaSUGO9uVTpGMWD07zASyeDDlWO_XFM3GafzTW8WjXyuwO0pUN5cUNy2vpyR3h7AYFT0mmhlWuDe5BSfMf1VwK9-aVXYpSCfXtjr58czmez15TrTJr44WiE5bcIF1U9T9znUfweCdHsMX0CNpm7XMOK7cguankPV4-Ns3yw7cGXzrol1X7XJwXIlA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3m.jpg)
 
-再搭**江ノ島電鉄**去**稲村ヶ崎**  
+再搭[江ノ島電鉄](https://hidie.net/kanagawa3m/)去**稲村ヶ崎**  
 
-![](https://p1ytlq.ch.files.1drv.com/y4mZmLA5cmmd-L3pmkEEjM92a3IIZrx_q6nWZHmkSQPLw8Pl2_188ZwlOstq1WobsNxFP9PgBv2dJGsAgL8357__KUeM_NQxZ0m-ft8h1-ZGCr9tLG-Fz65mkMGvgR1L6s25kWveQxdvR7Q7HKOR4dQ6RtVQOwrzmw7OG3vunwy9LKx5yCs9wuSuffTRkZxmdmbKe93WOHEMPujLKeWXaoI5w?width=660&height=371&cropmode=none)
+![](/images/kanagawa3m7.jpg)
 
 再行出去**相模湾**but 唔係嚟吹海風  
 
-![](https://q1x3ra.ch.files.1drv.com/y4mMoT7uVzRLFm3itiHPGTFt8AAl7lJxErE7dlMRwtQM-R-rtCiABPF5lAk3ieKV-Sqw6eXw9L1Grwh4hVSVwB4m9xc8Eg7bOngtY-l8Iy01ma4RfsvdqqFc8e9zCiJPVFO9_bZ3fO-ZDYBA7J4wmA0UxqC9ANiTtEtRpzuIjJfiNhiAj8mv3pvlfEaDgqPWC2E2WPjnshmtcuSUYvPhk0cTQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa3n.jpg)
 
 係嚟呢到睇住個海浸溫泉（暖）  
 
-![](https://p1yslq.ch.files.1drv.com/y4mKwaVaA5d8P2DP4YgSMC8-BhaIsFyiXTUKa01-KqET6IJLXHs85zerJY0B9ebAqd9RjIi_2yOKRl_14jAmwzdqAXCWKbO3PhNzvPwyjO4JeoeNvIMU80H_PAVQZ9XtqU4H3-yJ2BKpGrwStaJuW0JlNLA8qxj9xhvGpqovCJfR87rBMI5ir0ytTXZVG1v2rxknJOQ8WI-WxisNgj8ObXg-g?width=660&height=371&cropmode=none)
+![](/images/kanagawa3n1.jpg)
 
-**稲村ヶ崎温泉**  
+[稲村ヶ崎温泉](https://hidie.net/kanagawa3n/)  
 如果天氣好運氣好，就可以見到富士山同江ノ島  
 但係今日嘛... 叫做見到灰天灰海同江ノ島黑影咁囉  
 個泉水叫**黄金の湯**，啡中帶微金（？）咁  
 
-![](https://p1yulq.ch.files.1drv.com/y4mbyn7P-eSEi_ZKOJTtaIeUqlOBeedSmfzWH0ugr035eps4C_yx-GG36hUONznFzOglOO3H91FGBXu1VNNXFjHXA81lKC84KKHjWTRUNz0cDANLs2UGVgXp5AQl8-cvdNYrRFIyqAcaZ4_PnK8iv1ECVX2HggMM8xxjzCCis_0DaQnRBETXozdBWU8JAbn1xCvkeLeHNRhlg6E3mBWRNy3Kg?width=371&height=660&cropmode=none)
+![](/images/kanagawa3o1.jpg)
 
-**タカナシ 酪農牛乳**  
+[タカナシ 酪農牛乳](https://hidie.net/kanagawa3o/)  
 浸完溫泉梗係要飲牛奶（爽）  
 
-![](https://a13yzw.ch.files.1drv.com/y4mooymaOnIU5zP0fWdgPWE6vEmeKQKOf0GLkdo0SB3lglCBb_7_8VLc6xvMDkGl3drtgw8SY0Zhimd_ACviNjPy8Ei5kURFigmXH718ajoEJ2EeW6F2NhjvswQLLqxhPJpD3f-i9AvMLWb6sz3BH5LVoUnTIuvE3-dO-JZZdxBRcFPt4bzfMcH5A8sweTjU3V_JkX4tmPArHB-DtcgdyMTmg?width=660&height=371&cropmode=none)
+![](/images/kanagawa3p.jpg)
 
 越落越大雨，又搭返**江ノ島電鉄**繼續去  
 反正冇得企响站影  
-個**鎌倉高校前Slam Dunk平交道**就係咁求其影咗 XDDD  
+個[鎌倉高校前Slam Dunk平交道](https://hidie.net/kanagawa3p/)就係咁求其影咗 XDDD  
 
-![](https://a13zzw.ch.files.1drv.com/y4mJR-9UccjFtG65l83jgK9M37jUBVh7o4az83i7S2ym52ciJWrkg_-oxJJyBNlBVG85DwqoV0FRJiDQjfdXaybqK0f5R1H_R0JC56l4OUda06hEecwk_3hern6o3sEajrAK1JoAfEHuXRZAKLXGYoTtaoBGUFn8LkuOvMleeXoIEv-lgD4S43p7R1ETn7quJlVWm6EWu-b_3U5VNYTQBOjog?width=660&height=371&cropmode=none)
+![](/images/kanagawa3q.jpg)
 
 實在太大雨反正又睇唔到咩景  
-skip咗江ノ島直接上**湘南モノレール**走  
+skip咗江ノ島直接上[湘南モノレール](https://hidie.net/kanagawa3q/)走  
 
-![](https://bf3vzw.ch.files.1drv.com/y4mCfVT5byzB_ZqUjjWhKqt1I4pdG7-6skhsUcHSNABzupvAekQlVSgjHyLQt1Ag2ToThzJE_QpLW4wgFJsFJC0P5x_czzbb5rbLaKdaQDxyBqkSl0Q3yH5xx9hCtWKmzUPJHK8p7LEnlW_ARqshPRgpOcZQldMfIbqH_QpzOQD2l7FI2aJWvsAx5URzJ2cABuiydPJqBBXPnMMCWtr5IoNCA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3q4.jpg)
 
 佢係單軌吊車啊！  
 
 ![](https://bf3czw.ch.files.1drv.com/y4mLvcwnk_BCux_h75etmkkDbHODTme91tWxZabgcc5GbdKf7eoSufQnj9L3yy1M4rMEYc24URcQ3-NmfR0igWIcl_1bKVpYmCIZVuLn638uO9V61a-deXmq3dAb7vnkMeWGQ4QREdylvlLELV83uafQlPO-X5jhcNcCwAunpWwfktZ0eR7DCQ-jxJ3_9KmDcb5bgDI2brUkCjR30RDg0ohgg?width=371&height=660&cropmode=none)
 
 站頭到站尾嚟到**大船駅**  
-仲係落緊大雨就搵食先啦 @**横浜天下鳥**  
+仲係落緊大雨就搵食先啦 @[横浜天下鳥](https://hidie.net/kanagawa3/)  
 氣氛好好㗎，飲第一杯係會全部staff一齊陪乾杯好嗨呀～  
 
 ![](https://bf3dzw.ch.files.1drv.com/y4mTyQbxfY9g2Kn6KOkEYG6twm4rmCpFpprvtEjLBVuXbOvazY27FNC-X0RJcbf3ImT8MWNjJu3dn2plQItsGMb-sPsep94faf88dJUaWSHCaWVbEU8IKNIIjqzw66usmQf0KFnVEi1w-D7O7yqh4wtf0owsO80TBYz27vZ2xFcMRsb_6ZoZHbLXJcTRRF-hVrhzLcZtqxhVyVkkWkP7zGBBg?width=660&height=371&cropmode=none)

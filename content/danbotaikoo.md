@@ -6,6 +6,6 @@ aliases: [ "/2014/10/danbo-mini-x-mtr.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://4.bp.blogspot.com/-JNw8Itsr6SU/XE1MtgcoPoI/AAAAAAAAHCo/EGM0J6v2EokDU6wei2qSHgt-WSMmF8M_ACLcBGAs/s640/2.jpg)](https://4.bp.blogspot.com/-JNw8Itsr6SU/XE1MtgcoPoI/AAAAAAAAHCo/EGM0J6v2EokDU6wei2qSHgt-WSMmF8M_ACLcBGAs/s1600/2.jpg)
+![](/images/danbotaikoo.jpg)
 
 屁股の達人？

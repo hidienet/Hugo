@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 3D蛇面膜，不是長條形的啦～  
 
-[![](https://4.bp.blogspot.com/-nNgS5V2m2Yc/XE23WuqbkxI/AAAAAAAAHuU/27IxTpxmnCkO8ZEMptroYokPB-c2rQCSQCLcBGAs/s640/11151109486_c45351dbbe_z.jpg)](https://4.bp.blogspot.com/-nNgS5V2m2Yc/XE23WuqbkxI/AAAAAAAAHuU/27IxTpxmnCkO8ZEMptroYokPB-c2rQCSQCLcBGAs/s1600/11151109486_c45351dbbe_z.jpg)
+![](/images/apieusynake.jpg)
 
 主要為類蛇毒精華的三胜肽  
 加上原蛋白、玻尿酸、薰衣草、洋甘菊等  

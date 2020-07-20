@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://4.bp.blogspot.com/-0Pz0TBdOPRQ/XE1AQ4xYxbI/AAAAAAAAG-g/X2VGF0pbmKokN1oX1tau3sEBRcJnOrDiwCLcBGAs/s640/14719930487_05074b4c53_z.jpg)](https://4.bp.blogspot.com/-0Pz0TBdOPRQ/XE1AQ4xYxbI/AAAAAAAAG-g/X2VGF0pbmKokN1oX1tau3sEBRcJnOrDiwCLcBGAs/s1600/14719930487_05074b4c53_z.jpg)
+![](/images/etudehouser.jpg)
 
 R for royal jelly, smooth hydrating  
 濃濃的蜜糖香味耶～  

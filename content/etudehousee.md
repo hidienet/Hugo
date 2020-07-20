@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～ XD  
 
-[![](https://3.bp.blogspot.com/-NS9JtLZDUTk/XExTStzzMGI/AAAAAAAAG40/ANuAcCvIXpcqOL0mydI-ACvVt3pSNMcXgCLcBGAs/s640/14710499978_3262dd65e9_z.jpg)](https://3.bp.blogspot.com/-NS9JtLZDUTk/XExTStzzMGI/AAAAAAAAG40/ANuAcCvIXpcqOL0mydI-ACvVt3pSNMcXgCLcBGAs/s1600/14710499978_3262dd65e9_z.jpg)
+![](/images/etudehousee.jpg)
 
 E for elder flower, soothing & moisturizing  
 之前在ikea飲過盒裝接骨木花飲料  

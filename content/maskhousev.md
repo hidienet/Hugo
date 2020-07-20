@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 向極致的V字面推進！  
 
-[![](https://1.bp.blogspot.com/-GN8ZinOjRSE/XE1PJBRm_nI/AAAAAAAAHD8/SBCtN9DUjcY9oWdGRc7JQpgG6actz0R4wCLcBGAs/s640/15215616849_0591ee2141_z.jpg)](https://1.bp.blogspot.com/-GN8ZinOjRSE/XE1PJBRm_nI/AAAAAAAAHD8/SBCtN9DUjcY9oWdGRc7JQpgG6actz0R4wCLcBGAs/s1600/15215616849_0591ee2141_z.jpg)
+![](/images/maskhousev.jpg)
 
 面膜有燃燒脂肪、提升輪廓同保濕功效  
 一塊過飽覆整個下巴位置  

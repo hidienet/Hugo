@@ -6,11 +6,11 @@ aliases: [ "/2014/10/body-kracie-epilat.html" ]
 tags : [glamorous - 蛋臉以外]
 ---
 
-除毛，不一定要[動刀](http://www.hidie.net/2014/07/tools-kai-bi-hada-ompa.html)  
+除毛，不一定要[動刀](https://hidie.net/kaibihadaompa/)  
 
-[![](https://4.bp.blogspot.com/-95UGueCh0R4/XE1cpK3QcDI/AAAAAAAAHG8/WN76AgHbdNQi14lCyDb-MIDrywe460oHACLcBGAs/s640/15407556331_e83a81336a_z.jpg)](https://4.bp.blogspot.com/-95UGueCh0R4/XE1cpK3QcDI/AAAAAAAAHG8/WN76AgHbdNQi14lCyDb-MIDrywe460oHACLcBGAs/s1600/15407556331_e83a81336a_z.jpg)
+![](/images/kracieepilat.jpg)
 
-但也不是要[連根拔](http://www.hidie.net/2013/10/twezeezer-tweezerman-slant-tweezer.html)那麼痛苦  
+但也不是要[連根拔](https://hidie.net/twezeeman/)那麼痛苦  
 尤其長在身體的  
 拔到2046都未令身體光滑  
   

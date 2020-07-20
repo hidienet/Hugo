@@ -14,7 +14,7 @@ tags : [glamorous - 保養おたく]
 好啦好啦，甚麼都不刺激了  
 乖乖地用蘆薈舒緩啦  
 
-[![](https://1.bp.blogspot.com/-RSEkSgmYHfo/XExTa_QtxWI/AAAAAAAAG44/jAZfsaokSwA3U4l-FepPe4B8sVvUPB20gCLcBGAs/s640/14976555160_b4d91b5305_z.jpg)](https://1.bp.blogspot.com/-RSEkSgmYHfo/XExTa_QtxWI/AAAAAAAAG44/jAZfsaokSwA3U4l-FepPe4B8sVvUPB20gCLcBGAs/s1600/14976555160_b4d91b5305_z.jpg)
+![](/images/aloepack.jpg)
 
 nature republic - aloe vera 92% soothing gel  
 大多數認識韓國品牌蘆薈的  
@@ -25,7 +25,7 @@ nature republic - aloe vera 92% soothing gel
 大大一罐用來塗面塗手腳身體頭髮都可以  
 平日閒來無事都可以用，百搭product  
 
-[![](https://4.bp.blogspot.com/-4KAcC5GB-fE/XExTgfjrQ2I/AAAAAAAAG48/KJP8wrnmZWUU_dkD4hA62S3r66Bgl9gHgCLcBGAs/s640/14976484279_fce152254f_z.jpg)](https://4.bp.blogspot.com/-4KAcC5GB-fE/XExTgfjrQ2I/AAAAAAAAG48/KJP8wrnmZWUU_dkD4hA62S3r66Bgl9gHgCLcBGAs/s1600/14976484279_fce152254f_z.jpg)
+![](/images/aloepack1.jpg)
 
 the saem - big brother aloe 95% soothing gel  
 也是採用加州蘆薈  
@@ -42,7 +42,7 @@ the saem - big brother aloe 95% soothing gel
 不要抱太大能改善肌膚的效果  
 只是拿來舒緩保濕就好  
 
-[![](https://3.bp.blogspot.com/-ZFrNNEGKxoA/XExTkxH9WfI/AAAAAAAAG5A/Sw16_OyQ2AEhjnogU-0r1xv5J4qkJIuZACLcBGAs/s640/14976542950_34696fbc0c_z.jpg)](https://3.bp.blogspot.com/-ZFrNNEGKxoA/XExTkxH9WfI/AAAAAAAAG5A/Sw16_OyQ2AEhjnogU-0r1xv5J4qkJIuZACLcBGAs/s1600/14976542950_34696fbc0c_z.jpg)
+![](/images/aloepack2.jpg)
 
 fruit of the earth - aloe vera 100% gel  
 美國品牌，無添加的純蘆薈  
@@ -58,6 +58,6 @@ fruit of the earth - aloe vera 100% gel
   
 至於開首所說的敏感紅粒粒  
 我花了一個星期甚麼美白抗皺修護等都停用  
-只是用蘆薈同以[防曬爽身粉](http://www.hidie.net/2014/07/body-johnsons-uv-white-powder.html)拍面去擋太陽  
+只是用蘆薈同以[防曬爽身粉](https://hidie.net/johnsonsuvpowder/)拍面去擋太陽  
 之後就平復了也沒有痘印呀疤呀這樣  
 這算是有效啦，對吧（笑）

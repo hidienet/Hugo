@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～ XD  
 
-[![](https://4.bp.blogspot.com/-XoPQrqh56Wk/XExSqmvKsaI/AAAAAAAAG4I/0E2Cok9_XS0mDnJIt0zLEvE3qNhxUppUwCLcBGAs/s640/14710500198_4a742acb08_z.jpg)](https://4.bp.blogspot.com/-XoPQrqh56Wk/XExSqmvKsaI/AAAAAAAAG4I/0E2Cok9_XS0mDnJIt0zLEvE3qNhxUppUwCLcBGAs/s1600/14710500198_4a742acb08_z.jpg)
+![](/images/etudehoused.jpg)
 
 D for dandelion, revitalizing  
 清新甜美的蒲公英氣味  

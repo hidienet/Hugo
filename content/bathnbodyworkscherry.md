@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 這大大枝的hand soap是從加拿大運回來的手信  
 不覺得很重嗎？  
 
-[![](https://farm4.staticflickr.com/3930/15387699086_9cf70aeb81_z.jpg)](https://farm4.staticflickr.com/3930/15387699086_9cf70aeb81_z.jpg)
+![](/images/bathnbodyworkscherry.jpg)
 
 gel狀的洗手液，裡面含很多小小粒的粒子  
 新鮮的櫻花味是清香的  

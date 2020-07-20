@@ -45,7 +45,7 @@ menu見到有就一定會嗌啦
 
 ![](/images/kanagawa3r6.jpg)
 
-GF sour
+**生グレープフルーツサワー**
 以為好似[lemon sour](https://hidie.net/kanagawa2p/)咁會有粒粒結冰提子  
 不過都好好飲啦無藥水味㗎
 
@@ -70,7 +70,7 @@ GF sour
 
 ![](/images/kanagawa3r10.jpg)
 
-京生麩  
+**京生麩**  
 微韌嘅燒生麩，本身無咩未道  
 但係幾得意咪叫碟食吓囉
 

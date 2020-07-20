@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 不同味道的蜂蜜mask  
 
-[![](https://farm6.staticflickr.com/5479/11151170535_8ac29e8f3b_z.jpg)](https://farm6.staticflickr.com/5479/11151170535_8ac29e8f3b_z.jpg)
+![](/images/etudehousehoney.jpg)
 
 紅蔘與人參的氣味都頗濃  
 內有粒子可以按摩至爆裂好好玩  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 香甜的下午茶～  
 
-[![](https://4.bp.blogspot.com/-b8YoAFUXegI/XE1L4uzdrvI/AAAAAAAAHB8/ItuddBRuDtEKSR9xtkW-vBufE3o_2MMEgCLcBGAs/s640/15378872092_a1345ff6ec_z.jpg)](https://4.bp.blogspot.com/-b8YoAFUXegI/XE1L4uzdrvI/AAAAAAAAHB8/ItuddBRuDtEKSR9xtkW-vBufE3o_2MMEgCLcBGAs/s1600/15378872092_a1345ff6ec_z.jpg)
+![](/images/sweettooth.jpg)
 
 未能挑戰11層的waffle  
 但聞到這牛油跟麵粉的香甜  
@@ -20,9 +20,9 @@ waffle外層脆身裡面帶軟
 代替heavy cream的角色  
 紅豆蓉較甜，跟雪糕同吃也算可以  
 
-[![](https://1.bp.blogspot.com/-YFqLp6CiBdw/XE1L8y-bNYI/AAAAAAAAHCE/Ue_M_53B3y0EG6ee_DQXXojKqpkfILt2QCLcBGAs/s640/15378870192_e33c7e7773_z.jpg)](https://1.bp.blogspot.com/-YFqLp6CiBdw/XE1L8y-bNYI/AAAAAAAAHCE/Ue_M_53B3y0EG6ee_DQXXojKqpkfILt2QCLcBGAs/s1600/15378870192_e33c7e7773_z.jpg)
+![](/images/sweettooth.jpg)
 
-小不點的燒菠蘿雪糕pancake三文治  
+燒菠蘿雪糕pancake三文治  
 難得有厚身的pancake  
 裡面鬆軟鬆軟的很飽肚  
 不過燒菠蘿就不夠焦  

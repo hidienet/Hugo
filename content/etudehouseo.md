@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://4.bp.blogspot.com/-j1RXholTF6I/XExzLqkW6KI/AAAAAAAAG9U/2l2A6J4h_wkJ8tmgS45zZznNJ0CyNPD5ACLcBGAs/s640/14719517540_f0fb46e9c9_z.jpg)](https://4.bp.blogspot.com/-j1RXholTF6I/XExzLqkW6KI/AAAAAAAAG9U/2l2A6J4h_wkJ8tmgS45zZznNJ0CyNPD5ACLcBGAs/s1600/14719517540_f0fb46e9c9_z.jpg)
+![](/images/etudehouseo.jpg)
 
 O for olive, deep moisture  
 不論一粒粒的橄欖  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 肌膚也要像白米般明亮有光澤  
 
-[![](https://farm8.staticflickr.com/7573/15345378824_7860cea0d5_z.jpg)](https://farm8.staticflickr.com/7573/15345378824_7860cea0d5_z.jpg)
+![](/images/innisfreerice.jpg)
 
 要美白，就用阿嬤級都知道的洗米水吧  
 超薄的面膜卻是壓著三層界面  

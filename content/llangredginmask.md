@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 肌膚沒有生氣？補給人參吧！  
 
-[![](https://farm8.staticflickr.com/7521/15370765723_66d3a4def3_z.jpg)](https://farm8.staticflickr.com/7521/15370765723_66d3a4def3_z.jpg)
+![](/images/llangredginmask.jpg)
 
 萃取濃縮6年根紅蔘蒸氣再液化  
 以保濕同營養締造透明水潤的肌膚  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 面部的「一元復始，萬象更新」  
 
-[![](https://farm8.staticflickr.com/7523/15977107230_136e60fbc2_z.jpg)](https://farm8.staticflickr.com/7523/15977107230_136e60fbc2_z.jpg)
+![](/images/beucleb12pack.jpg)
 
 主要成分為高嶺土、珍珠粉、玫瑰粉、大米粉等等  
 還有ecocert有機認證的大馬士革玫瑰水代替純淨水  

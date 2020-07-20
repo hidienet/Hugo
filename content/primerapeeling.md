@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 我自己就不會先去做保濕工作  
 而是第一時間拿東西去死皮  
 
-[![](https://4.bp.blogspot.com/-OGEvG80m8H4/XFbQtmwfMLI/AAAAAAAAH34/z2cfmBO1O6YP-pnnraDejUTbFqFG4qAxgCLcBGAs/s640/15199327673_401af95be8_z.jpg)](https://4.bp.blogspot.com/-OGEvG80m8H4/XFbQtmwfMLI/AAAAAAAAH34/z2cfmBO1O6YP-pnnraDejUTbFqFG4qAxgCLcBGAs/s1600/15199327673_401af95be8_z.jpg)
+![](/images/primerapeeling.jpg)
 
 不過又因為皮膚乾  
 所以不可以用強力剝落劑（咦？）  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 hello丹參；byebye黑頭粉刺～（揮手）  
 
-[![](https://4.bp.blogspot.com/-T8LZ83k9Wj0/XFbFd7ZfjUI/AAAAAAAAH2c/aYtbQ68OCnwPIQ1_EdvwguSybseEWHyXgCLcBGAs/s640/15614843130_7218776b4b_z.jpg)](https://4.bp.blogspot.com/-T8LZ83k9Wj0/XFbFd7ZfjUI/AAAAAAAAH2c/aYtbQ68OCnwPIQ1_EdvwguSybseEWHyXgCLcBGAs/s1600/15614843130_7218776b4b_z.jpg)
+![](/images/biocziwi.jpg)
 
 顏色同氣味都跟中藥一樣  
 用超薄身的化妝棉浸浸  

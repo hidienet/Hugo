@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 如果只是素顏出街（只塗護膚品沒有化妝那種）  
 就不會用強力（？）卸妝品  
 
-[![](https://farm8.staticflickr.com/7560/15310782063_32c2424960_z.jpg)](https://farm8.staticflickr.com/7560/15310782063_32c2424960_z.jpg)
+![](/images/thesaemhealingtea.jpg)
 
 用後清爽的cleanser water就最好  
 很爽身卻不會乾燥  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 給肌膚喝一杯充滿活力的藍莓果汁  
 
-[![](https://farm9.staticflickr.com/8570/15773837019_6cff39ef15_z.jpg)](https://farm9.staticflickr.com/8570/15773837019_6cff39ef15_z.jpg)
+![](/images/holikabluelerry.jpg)
 
 提供營養同水分，令肌膚充滿活力的mask  
 薄身的面膜賦有滿滿的精華  

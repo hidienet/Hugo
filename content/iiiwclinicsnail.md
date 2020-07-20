@@ -7,9 +7,9 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
 一直都是聽人家說三叔的東西怎樣不好用  
-這次終於親身試驗：**真的TMD不好用！**  
+這次終於親身試驗：**真的超極級不好用！**  
 
-[![](https://2.bp.blogspot.com/-bcyGLtb9AvE/XE1OeKtyZnI/AAAAAAAAHDk/GtsMzi3Fsxkbf0KeXKwCBV1glGT7LOK-wCLcBGAs/s640/15204631917_9c5ab321b3_z.jpg)](https://2.bp.blogspot.com/-bcyGLtb9AvE/XE1OeKtyZnI/AAAAAAAAHDk/GtsMzi3Fsxkbf0KeXKwCBV1glGT7LOK-wCLcBGAs/s1600/15204631917_9c5ab321b3_z.jpg)
+![](/images/iiiwclinicsnail.jpg)
 
 3W clinic是三叔旗下的skincare品牌  
 看到面膜的左上角也有三叔的logo  

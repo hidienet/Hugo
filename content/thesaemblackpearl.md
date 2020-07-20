@@ -6,10 +6,10 @@ aliases: [ "/2014/12/masque-saem-gem-miracle-black-pearl-o.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-mask sheet裝比較奢華 \[[相關舊文](http://www.hidie.net/2014/11/masque-saem-gem-miracle-black-pearl-o2.html)\]  
+[mask sheet裝](https://hidie.net/thesaemblackpearlo2/)比較奢華  
 如果日常使用，還有這款...  
 
-[![](https://farm8.staticflickr.com/7514/16011482552_401e4ee05c_z.jpg)](https://farm8.staticflickr.com/7514/16011482552_401e4ee05c_z.jpg)
+![](/images/thesaemblackpearl.jpg)
 
 （這包是sample，貨裝是黑色一樽的）  
 一次過亮白排毒去除角質及老化物  

@@ -15,16 +15,16 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾), collections - 
 換幾張postcard poster同年曆  
   
 但吃小小東西的話，就無妨  
-（也有買過[petitzel](http://www.hidie.net/2014/08/jelly-cj-petitzel-fruity-yogurt-jelly.html)、[oksusu](http://www.hidie.net/2014/08/tea-oksusu-v-line-v.html)，當然還有[lemona](http://www.hidie.net/2014/08/c-lemona-s-powder.html)就是）  
-（其實beyond的skincare也有入手，但並非為event而買）  
+（也有買過[petitzel](https://hidie.net/cjyogurtjelly/)、[oksusu](https://hidie.net/oksusuvline/)，當然還有[lemona](https://hidie.net/clemona/)就是）  
+（其實[beyond](https://hidie.net/beyondpanda/)也有入手，但並非為event而買）  
 
-[![](https://3.bp.blogspot.com/-XOB4Du5Cwr4/XE1nt4Ku4SI/AAAAAAAAHK0/bwLXzHCiAW48luLOykwt_UpcgnF9ij83ACLcBGAs/s640/15561922421_b14ca00fbb_z.jpg)](https://3.bp.blogspot.com/-XOB4Du5Cwr4/XE1nt4Ku4SI/AAAAAAAAHK0/bwLXzHCiAW48luLOykwt_UpcgnF9ij83ACLcBGAs/s1600/15561922421_b14ca00fbb_z.jpg)
+![](/images/seoulkshtouslesjours.jpg)
 
 平日不好麵包  
 可是看到這吸引的看板嘛...  
 立即食！慾！大！增！（吼）  
 
-[![](https://3.bp.blogspot.com/-Or06__xuGs0/XE1n3aUUyjI/AAAAAAAAHK4/F2-DBc4KshsEViQc9J4MWrV5TjI6GhWIwCLcBGAs/s640/15565440242_437be021c7_z.jpg)](https://3.bp.blogspot.com/-Or06__xuGs0/XE1n3aUUyjI/AAAAAAAAHK4/F2-DBc4KshsEViQc9J4MWrV5TjI6GhWIwCLcBGAs/s1600/15565440242_437be021c7_z.jpg)
+![](/images/seoulkshtouslesjours1.jpg)
 
 而包包們本身也是美味的貨色  
 左上的紅豆包是冷掉了都好吃那種  
@@ -44,22 +44,22 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾), collections - 
 比上面說的包包為更純粹的蜂蜜味道  
 這也太太太好吃了吧～（心）  
 
-[![](https://2.bp.blogspot.com/-KOVmddflX1I/XE1n8jfGsDI/AAAAAAAAHK8/7yRVcrAVef8zXKoeaNPk7aCR-NTl55VxQCLcBGAs/s640/15378589477_9e5c17d114_z.jpg)](https://2.bp.blogspot.com/-KOVmddflX1I/XE1n8jfGsDI/AAAAAAAAHK8/7yRVcrAVef8zXKoeaNPk7aCR-NTl55VxQCLcBGAs/s1600/15378589477_9e5c17d114_z.jpg)
+![](/images/seoulkshtouslesjours2.jpg)
 
 他拿住的就是牛奶包包（咬～）  
 樣子像平滑版的 光酥餅  
 不過是軟軟重牛奶味這樣  
 
-[![](https://4.bp.blogspot.com/-EYwAPbwE6-8/XE1oA1Co0II/AAAAAAAAHLE/vERMAH3ki4snyLVh9W1v3bl3askS3W7GgCLcBGAs/s640/14943843244_706b67c860_z.jpg)](https://4.bp.blogspot.com/-EYwAPbwE6-8/XE1oA1Co0II/AAAAAAAAHLE/vERMAH3ki4snyLVh9W1v3bl3askS3W7GgCLcBGAs/s1600/14943843244_706b67c860_z.jpg)
+![](/images/seoulkshtouslesjours3.jpg)
 
 牛奶包系列 廣告看板  
 
-[![](https://1.bp.blogspot.com/-sbcH_b8s9qs/XE1oGsSLB4I/AAAAAAAAHLI/dk0ct5V_nP4lUJAAuAaMfoEyZBhpRmopwCLcBGAs/s640/15565431802_61516b94cd_z.jpg)](https://1.bp.blogspot.com/-sbcH_b8s9qs/XE1oGsSLB4I/AAAAAAAAHLI/dk0ct5V_nP4lUJAAuAaMfoEyZBhpRmopwCLcBGAs/s1600/15565431802_61516b94cd_z.jpg)
+![](/images/seoulkshtouslesjours4.jpg)
 
 齋吃包包有點寡  
 來杯熱飲  
 
-[![](https://4.bp.blogspot.com/-M8YbQZGRCQE/XE1oM_7y21I/AAAAAAAAHLQ/bOPeJgzKm0AfoCnnkEP5HJ7YFCEF-6MOwCLcBGAs/s640/15378965810_68607d0615_z.jpg)](https://4.bp.blogspot.com/-M8YbQZGRCQE/XE1oM_7y21I/AAAAAAAAHLQ/bOPeJgzKm0AfoCnnkEP5HJ7YFCEF-6MOwCLcBGAs/s1600/15378965810_68607d0615_z.jpg)
+![](/images/seoulkshtouslesjours5.jpg)
 
 中・伏・了！  
 這杯是蜂蜜系列的飲品  
@@ -72,32 +72,32 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾), collections - 
 可那是新鮮的還是熱的  
 很地獄的一杯東西（翻白眼）  
 
-[![](https://2.bp.blogspot.com/-fEAZIpZxhPg/XE1oTyhRx9I/AAAAAAAAHLY/JMlPacvAjHILdl9t-TQ_KMka_nef8gkjgCLcBGAs/s640/15378455608_44fe110b1e_z.jpg)](https://2.bp.blogspot.com/-fEAZIpZxhPg/XE1oTyhRx9I/AAAAAAAAHLY/JMlPacvAjHILdl9t-TQ_KMka_nef8gkjgCLcBGAs/s1600/15378455608_44fe110b1e_z.jpg)
+![](/images/seoulkshtouslesjours6.jpg)
 
 看養顏的東西平衡一下  
 居然有超～ 舊～ 版～ 的poster  
 
-[![](https://4.bp.blogspot.com/-pHh2b4AIFMg/XE1oa3_kniI/AAAAAAAAHLg/eERSjObLjk8VCdM1jEdkLTr6zTgTOvBQwCLcBGAs/s640/14944428573_d3eb382a07_z.jpg)](https://4.bp.blogspot.com/-pHh2b4AIFMg/XE1oa3_kniI/AAAAAAAAHLg/eERSjObLjk8VCdM1jEdkLTr6zTgTOvBQwCLcBGAs/s1600/14944428573_d3eb382a07_z.jpg)
+![](/images/seoulkshtouslesjours7.jpg)
 
 有20% off的，還以為這個T是指T-money（吐舌）  
 
-[![](https://3.bp.blogspot.com/-fXb2DhyOk1Q/XE1ogXTs8yI/AAAAAAAAHLk/adJwXNOxC8IIYhupuSGdYJQswUazUYTowCLcBGAs/s640/14944422073_aab2fe3058_z.jpg)](https://3.bp.blogspot.com/-fXb2DhyOk1Q/XE1ogXTs8yI/AAAAAAAAHLk/adJwXNOxC8IIYhupuSGdYJQswUazUYTowCLcBGAs/s1600/14944422073_aab2fe3058_z.jpg)
+![](/images/seoulkshtouslesjours8.jpg)
 
 拍出來得顏色不好...  
 
-[![](https://2.bp.blogspot.com/-QFhmGGFaqBM/XE1omasPbHI/AAAAAAAAHLs/08NkG1VXzqUIWbMF1X0lkTn7YP69vTtIwCLcBGAs/s640/15378461468_57115b3566_z.jpg)](https://2.bp.blogspot.com/-QFhmGGFaqBM/XE1omasPbHI/AAAAAAAAHLs/08NkG1VXzqUIWbMF1X0lkTn7YP69vTtIwCLcBGAs/s1600/15378461468_57115b3566_z.jpg)
+![](/images/seoulkshtouslesjours9.jpg)
 
 雖然清晰卻歪了歪了...  
 
-[![](https://2.bp.blogspot.com/-iZI64zaogLY/XE1otGnAdDI/AAAAAAAAHL0/I8yi7D_lVlgfT3zMrpuRA048hQ80uf_AwCLcBGAs/s640/14943842274_0b5f77a7ce_z.jpg)](https://2.bp.blogspot.com/-iZI64zaogLY/XE1otGnAdDI/AAAAAAAAHL0/I8yi7D_lVlgfT3zMrpuRA048hQ80uf_AwCLcBGAs/s1600/14943842274_0b5f77a7ce_z.jpg)
+![](/images/seoulkshtouslesjours10.jpg)
 
 有整個人的可惜玻璃反光 T-T  
 
-[![](https://1.bp.blogspot.com/-zICrm39IK7U/XE1ozmQYXnI/AAAAAAAAHL8/zca9pyxgY9Mq8iu3JYBbjOHGhYBGXrlYACLcBGAs/s640/15564602035_d4d5b63e64_z.jpg)](https://1.bp.blogspot.com/-zICrm39IK7U/XE1ozmQYXnI/AAAAAAAAHL8/zca9pyxgY9Mq8iu3JYBbjOHGhYBGXrlYACLcBGAs/s1600/15564602035_d4d5b63e64_z.jpg)
+![](/images/seoulkshtouslesjours11.jpg)
 
 唯有拍地圖裡面的介紹版（唉）  
 
-[![](https://3.bp.blogspot.com/-Ds8o7QBvGUY/XE1o5DoNOZI/AAAAAAAAHMA/lzDlaPpXUroUJuQp4bNsuEF63v_gizJiACLcBGAs/s640/14943838274_06c2f1674f_z.jpg)](https://3.bp.blogspot.com/-Ds8o7QBvGUY/XE1o5DoNOZI/AAAAAAAAHMA/lzDlaPpXUroUJuQp4bNsuEF63v_gizJiACLcBGAs/s1600/14943838274_06c2f1674f_z.jpg)
+![](/images/seoulkshtouslesjours12.jpg)
 
 包包好吃得買走做飛機餐  
 上面那幾張怎麼拍也拍不好的圖  
@@ -109,7 +109,7 @@ tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾), collections - 
 也可能是較為新鮮的關係  
 這比market O的好吃多了  
 
-[![](https://4.bp.blogspot.com/-n9BWFlHHhWU/XE1pAZc4FmI/AAAAAAAAHMI/I76qwhtZAckn9pqAsaMgtEEThfrYk3Z5gCLcBGAs/s640/15564597395_89b11349fe_z.jpg)](https://4.bp.blogspot.com/-n9BWFlHHhWU/XE1pAZc4FmI/AAAAAAAAHMI/I76qwhtZAckn9pqAsaMgtEEThfrYk3Z5gCLcBGAs/s1600/15564597395_89b11349fe_z.jpg)
+![](/images/seoulkshtouslesjours13.jpg)
 
 除了因為包包好吃外  
 要外賣回去的原因當然是...（掩面笑）

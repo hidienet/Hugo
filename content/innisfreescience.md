@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 不會有腥味的海帶眼膜（笑）  
 
-[![](https://4.bp.blogspot.com/-R3KJBjZM0Kk/XFbTS-qH9DI/AAAAAAAAH50/0l65rz0101su1C-Lp5Yel8lqmpzkJgHVwCLcBGAs/s640/15849764022_1ace325b34_z.jpg)](https://4.bp.blogspot.com/-R3KJBjZM0Kk/XFbTS-qH9DI/AAAAAAAAH50/0l65rz0101su1C-Lp5Yel8lqmpzkJgHVwCLcBGAs/s1600/15849764022_1ace325b34_z.jpg)
+![](/images/innisfreescience.jpg)
 
 以濟州島附近的無污染海域植物萃取精華  
 那些海帶含有大量retinol成分  

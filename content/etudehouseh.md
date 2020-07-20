@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://4.bp.blogspot.com/-FH7BxGBZWds/XExs5DsvepI/AAAAAAAAG6c/cvpSiWrJ8WsH5LJC0nsLr_314gq28J33QCLcBGAs/s640/14874111296_3f40a80896_z.jpg)](https://4.bp.blogspot.com/-FH7BxGBZWds/XExs5DsvepI/AAAAAAAAG6c/cvpSiWrJ8WsH5LJC0nsLr_314gq28J33QCLcBGAs/s1600/14874111296_3f40a80896_z.jpg)
+![](/images/etudehouseh.jpg)
 
 H for hyaluronic acid, richly moisturizing  
 透明質酸就是保濕保濕保濕  

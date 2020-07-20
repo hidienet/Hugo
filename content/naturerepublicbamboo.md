@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 濕度低，要用竹水去補足水～  
 
-[![](https://farm9.staticflickr.com/8625/15829669136_f6ef26c167_z.jpg)](https://farm9.staticflickr.com/8625/15829669136_f6ef26c167_z.jpg)
+![](/images/naturerepublicbamboo.jpg)
 
 含1000ppm的潭陽竹子提取物  
 有鎮靜疲態肌膚同長時間保濕作用   

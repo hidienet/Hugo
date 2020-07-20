@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 而且含有kojic acid（麴酸）  
 但這美白皂是菲律賓品牌～  
 
-[![](https://3.bp.blogspot.com/-Dgc7kr0mZIA/XE1Nk7NWwaI/AAAAAAAAHDA/KfvvbgQd-Is0UYxbyCt5GwT30f7mOycSACLcBGAs/s640/15205262998_9bc84623ec_z.jpg)](https://3.bp.blogspot.com/-Dgc7kr0mZIA/XE1Nk7NWwaI/AAAAAAAAHDA/KfvvbgQd-Is0UYxbyCt5GwT30f7mOycSACLcBGAs/s1600/15205262998_9bc84623ec_z.jpg)
+![](/images/kojiesan.jpg)
 
 添加了vanilla味  
 皂底是椰子油與橄欖油  

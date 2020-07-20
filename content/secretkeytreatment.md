@@ -6,10 +6,10 @@ aliases: [ "/2014/09/essence-secret-key-starting-treatment.html" ]
 tags : [glamorous - 保養おたく]
 ---
 
-包裝同原料都跟[SK-II](http://www.hidie.net/2013/10/essence-sk-ii-facial-treatment-essence.html)差不多  
+包裝同原料都跟[SK-II](https://hidie.net/skiiessence/)差不多  
 但價格就差很大了～  
 
-[![](https://3.bp.blogspot.com/-CEWMzIpQ8fw/XExz_falnpI/AAAAAAAAG94/Mfy902Pgm6M9_tYD3K0Ca47szYrE9moLgCLcBGAs/s640/15306030485_9464b159c9_z.jpg)](https://3.bp.blogspot.com/-CEWMzIpQ8fw/XExz_falnpI/AAAAAAAAG94/Mfy902Pgm6M9_tYD3K0Ca47szYrE9moLgCLcBGAs/s1600/15306030485_9464b159c9_z.jpg)
+![](/images/secretkeytreatment.jpg)
 
 最重要還是效果  
   
@@ -50,7 +50,7 @@ starting essence與一般的essence不同
 肯以時間耐心地使用  
 這枝會是枝在多方面都稍微有改善的精華  
 
-[![](https://4.bp.blogspot.com/-pjHTgxcviqw/XEx0HI_HmSI/AAAAAAAAG98/Yx-NLbsD7EseTIOr65i5U5y1LrYt25asACLcBGAs/s640/15302885401_d1139e7252_z.jpg)](https://4.bp.blogspot.com/-pjHTgxcviqw/XEx0HI_HmSI/AAAAAAAAG98/Yx-NLbsD7EseTIOr65i5U5y1LrYt25asACLcBGAs/s1600/15302885401_d1139e7252_z.jpg)
+![](/images/secretkeytreatment1.jpg)
 
 塗抹塗抹敷敷面  
 三個月就KO了～  

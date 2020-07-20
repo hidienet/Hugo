@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～ XD  
 
-[![](https://3.bp.blogspot.com/-2NJFz8yTPLU/XExSO2QG1-I/AAAAAAAAG3w/c3oj5q3RzOcbPbakE29jU6iH1AkEukg9wCLcBGAs/s640/14897089215_ce7eca9e32_z.jpg)](https://3.bp.blogspot.com/-2NJFz8yTPLU/XExSO2QG1-I/AAAAAAAAG3w/c3oj5q3RzOcbPbakE29jU6iH1AkEukg9wCLcBGAs/s1600/14897089215_ce7eca9e32_z.jpg)
+![](/images/etudehousec.jpg)
 
 C for collagen, firming  
 這是hydrolyzed collagen  
@@ -21,7 +21,7 @@ C for collagen, firming
 分量爆多面膜紙其實吸不完  
 就浸了tissue再拿來敷頸  
 面膜不厚，剪裁非常適合我的面型  
-所以超貼面（但敷paper mask還是習慣加上[膠膜](http://www.hidie.net/2014/07/masque-daiso.html)on top）  
+所以超貼面（但敷paper mask還是習慣加上[膠膜](https://hidie.net/daisosilicone/)on top）  
   
 敷15-20分鐘，按摩按摩留在面上的精華  
 不過不算容易因為精華敷過後都幾潤  

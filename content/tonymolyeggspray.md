@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 轉角位置有毛囊角化的問題  
 令那微小小肌膚不夠平滑，有點苦惱...  
 
-[![](https://4.bp.blogspot.com/-7E2l4aGn9IY/XE256yeq9lI/AAAAAAAAHvM/elplkT1HXEAzD3Gf0Bfa15PWYBSGMtxPgCLcBGAs/s640/15714884246_3058769a53_z.jpg)](https://4.bp.blogspot.com/-7E2l4aGn9IY/XE256yeq9lI/AAAAAAAAHvM/elplkT1HXEAzD3Gf0Bfa15PWYBSGMtxPgCLcBGAs/s1600/15714884246_3058769a53_z.jpg)
+![](/images/tonymolyeggspray.jpg)
 
 就出動雞樣子的噴槍（bang bang）  
 （樣子好可愛，不是嗎？）  

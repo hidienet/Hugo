@@ -54,8 +54,7 @@ yeah！炸物時間來個**椒鹽鮮魷**
 
 ![](/images/chankunkee5.jpg)
 
-沒有啤酒怎行？
-
+沒有啤酒怎行？  
 今天是非「佬啤」的[asahi](https://hidie.net/asahibeer/) （嘻）
 
   

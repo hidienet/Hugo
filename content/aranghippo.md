@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 乾燥的天氣，摸摸鼻頭平滑也看不到黑點點  
 卻估不到原來毛孔裡還藏了很多黑頭（噁）  
 
-[![](https://farm8.staticflickr.com/7491/15873704200_76c5448c42_z.jpg)](https://farm8.staticflickr.com/7491/15873704200_76c5448c42_z.jpg)
+![](/images/aranghippo.jpg)
 
 河馬三部曲鼻鼻貼  
   
@@ -21,7 +21,7 @@ step 1：潔面後，敷15-20分鐘後沖洗
 step 2：打濕鼻周後，貼10-15分鐘乾燥後拔苗  
 吸附排出黑頭、老廢物質及角質等污垢  
 － 粉紅色鼻貼能收割萬千黑頭粉刺，爽爆！  
-（再以[biore](http://www.hidie.net/2013/12/masque-biore.html)上下倒轉貼下巴一樣滿滿清出）  
+（再以[biore](https://hidie.net/biorerosenose/)上下倒轉貼下巴一樣滿滿清出）  
   
 step 3：敷5-10分鐘，再把剩低的精華按摩吸收  
 舒緩鎮靜排出黑頭與皮脂後的毛孔，收斂緊致毛孔  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 好好玩的黑變白面膜（嘻）  
 
-[![](https://4.bp.blogspot.com/-Gmrf_OMOP7w/XFbRBm7crUI/AAAAAAAAH4I/AAJlpfSaaoUaFuuArMNDU27NIr2Y0-9nACLcBGAs/s640/15642214147_7dd39758cf_z.jpg)](https://4.bp.blogspot.com/-Gmrf_OMOP7w/XFbRBm7crUI/AAAAAAAAH4I/AAJlpfSaaoUaFuuArMNDU27NIr2Y0-9nACLcBGAs/s1600/15642214147_7dd39758cf_z.jpg)
+![](/images/thesaemblackpearlo2.jpg)
 
 佈滿透明精華濕濕的黑色面膜紙  
 放上面，精華遇到空氣就變成白色泡泡  

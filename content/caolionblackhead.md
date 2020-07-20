@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 對付黑頭，除了撕撕撕溶溶溶之外  
 近期還喜歡上這個蒸蒸蒸 x 磨磨磨的  
 
-[![](https://2.bp.blogspot.com/-amxhWzmPQ88/XE1NV8csr7I/AAAAAAAAHC8/ZQHLEk1XhOc8OVf6sC_ib2hzy0vSGQVUACLcBGAs/s640/15378873582_2039680a8c_z.jpg)](https://2.bp.blogspot.com/-amxhWzmPQ88/XE1NV8csr7I/AAAAAAAAHC8/ZQHLEk1XhOc8OVf6sC_ib2hzy0vSGQVUACLcBGAs/s1600/15378873582_2039680a8c_z.jpg)
+![](/images/caolionblackhead.jpg)
 
 黑色有粒粒在中的膏狀面膜  
 一敷上去已經會慢慢感到發熱  

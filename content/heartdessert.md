@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 一次過感受爽、軟、滑、濃～  
 
-[![](https://1.bp.blogspot.com/-Rzg6yBhd7Zo/XE2-pZ_Yc3I/AAAAAAAAHxo/TJKm37LnHMo-dUjI6tn21kbVniUGhf0ygCLcBGAs/s640/15172021533_b52077b073_z.jpg)](https://1.bp.blogspot.com/-Rzg6yBhd7Zo/XE2-pZ_Yc3I/AAAAAAAAHxo/TJKm37LnHMo-dUjI6tn21kbVniUGhf0ygCLcBGAs/s1600/15172021533_b52077b073_z.jpg)
+![](/images/heartdessert.jpg)
 
 焦糖布甸，蛋味濃郁布甸滑滑  
 布甸下層有清爽的椰水味大菜糕  

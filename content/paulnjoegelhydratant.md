@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 室內室外都很乾很乾  
 重點保濕位置就交給它！  
 
-[![](https://farm8.staticflickr.com/7538/15830111867_a779e24167_z.jpg)](https://farm8.staticflickr.com/7538/15830111867_a779e24167_z.jpg)
+![](/images/paulnjoegelhydratant.jpg)
 
 滲透速度極快，輕易夠保濕  
 乾紋擊退，而表面維持清爽不黏膩  

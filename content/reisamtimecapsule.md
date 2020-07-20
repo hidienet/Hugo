@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 時光倒流20年？（奏樂）  
 
-[![](https://4.bp.blogspot.com/-Y43CGB7J_a8/XE1MImjGL7I/AAAAAAAAHCM/1y38WtV1BxU1shnZPNJ5diq1Dc5kyR1TQCLcBGAs/s640/15378870542_54ca94cddb_z.jpg)](https://4.bp.blogspot.com/-Y43CGB7J_a8/XE1MImjGL7I/AAAAAAAAHCM/1y38WtV1BxU1shnZPNJ5diq1Dc5kyR1TQCLcBGAs/s1600/15378870542_54ca94cddb_z.jpg)
+![](/images/reisamtimecapsule.jpg)
 
 一次一粒的sleeping pack  
 6g一粒已蘊含相等於30ml的精華  

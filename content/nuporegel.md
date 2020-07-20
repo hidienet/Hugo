@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 適合懶人用的眼貼紙...  
 
-[![](https://farm9.staticflickr.com/8596/15855203547_4350a62959_z.jpg)](https://farm9.staticflickr.com/8596/15855203547_4350a62959_z.jpg)
+![](/images/nuporegel.jpg)
 
 保濕眼膜，材質是軟身貼紙般的單面眼貼  
 比hydrogel mask更緊貼眼底  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 給肌膚喝到水分滿滿的竹茶  
 
-[![](https://farm8.staticflickr.com/7463/15499450263_5dd1a89d9f_z.jpg)](https://farm8.staticflickr.com/7463/15499450263_5dd1a89d9f_z.jpg)
+![](/images/ecopurebamboo.jpg)
 
 100%純棉面膜，親膚性高又柔軟  
 面膜精華量甚多，整塊濕透的夠貼面  

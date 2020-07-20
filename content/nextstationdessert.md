@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 after dinner, next station...   
 dessert!!!  
 
-[![](https://farm8.staticflickr.com/7564/15823151157_160fd93a99_z.jpg)](https://farm8.staticflickr.com/7564/15823151157_160fd93a99_z.jpg)
+![](/images/nextstationdessert.jpg)
 
 **test tube**  
 友人不太喜歡吃甜品  
@@ -40,7 +40,7 @@ panna cotta濃滑，這個較甜卻不失茶味
 被一層jelly 碎粒一層硬身的jelly夾住  
 這種帶酸的甜味很好吃呢～  
 
-[![](https://farm8.staticflickr.com/7488/16008209682_904293c70d_z.jpg)](https://farm8.staticflickr.com/7488/16008209682_904293c70d_z.jpg)
+![](/images/nextstationdessert1.jpg)
 
 輪到我的甜品**warm toffee foam**  
 也是多層次的甜品  

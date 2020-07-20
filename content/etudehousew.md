@@ -6,9 +6,9 @@ aliases: [ "/2014/09/masque-etude-house-i-need-you-white.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-對！我就是要連敷26個字母～XD  
+I need you to 連敷26個字母～XD  
 
-[![](https://3.bp.blogspot.com/-ldWiTv7uxOY/XE1E4JtLqGI/AAAAAAAAHAc/2juxtiCVseAsMz5IOI0dW2evfbHwI8NpQCLcBGAs/s640/14906491705_c333e56b84_z.jpg)](https://3.bp.blogspot.com/-ldWiTv7uxOY/XE1E4JtLqGI/AAAAAAAAHAc/2juxtiCVseAsMz5IOI0dW2evfbHwI8NpQCLcBGAs/s1600/14906491705_c333e56b84_z.jpg)
+![](/images/etudehousew.jpg)
 
 W for white pearl, bright complexion  
 完整的珍珠就拿來戴（mikimoto mikimoto）  

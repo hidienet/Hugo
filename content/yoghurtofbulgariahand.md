@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 怕用hand cream之後手會油膩膩的話  
 這枝乳酪加玫瑰油的就最適合  
 
-[![](https://2.bp.blogspot.com/-D3RkgY0maTw/XE1bKhk4qCI/AAAAAAAAHGU/0ddwKSeG3oYngBK3WBgdWVRKGGCwwaJEQCLcBGAs/s640/15223981639_60fce73ced_z.jpg)](https://2.bp.blogspot.com/-D3RkgY0maTw/XE1bKhk4qCI/AAAAAAAAHGU/0ddwKSeG3oYngBK3WBgdWVRKGGCwwaJEQCLcBGAs/s1600/15223981639_60fce73ced_z.jpg)
+![](/images/yoghurtofbulgariahand.jpg)
 
 敏感肌膚也可使用  
 輕柔的質地，帶點微微玫瑰香氣  

@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 可濕度越來越低，證明已經入秋了  
 （中秋也過了一段時間我知道）  
 
-[![](https://4.bp.blogspot.com/-eyAvdObuABM/XE1D1PakHVI/AAAAAAAAG_0/_o_8qICcaYU6y1yNKGYOF5iPJggWCs2IACLcBGAs/s640/15184852147_785a52e3d5_z.jpg)](https://4.bp.blogspot.com/-eyAvdObuABM/XE1D1PakHVI/AAAAAAAAG_0/_o_8qICcaYU6y1yNKGYOF5iPJggWCs2IACLcBGAs/s1600/15184852147_785a52e3d5_z.jpg)
+![](/images/illumemoist.jpg)
 
 連toner也轉為保濕為重的  
 比一般水狀的濃稠  

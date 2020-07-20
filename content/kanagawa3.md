@@ -228,38 +228,38 @@ skip咗江ノ島直接上[湘南モノレール](https://hidie.net/kanagawa3q/)�
 不過搭返JR嗰陣都係忍唔住要食佢  
 無計啦焦糖牛奶糖實在太吸引  
 
-![](https://q1zwzw.ch.files.1drv.com/y4mSpOE-A4MiUijqLCpDzW8KBZIwU0jIIxT2VDxytpzCuakCxh0X1zqD86vECtxgFRAvoYLIEbpaFYvVoo3cMPNELqskKkyywCcSuNtKqynALirurIZ0ry7kh4Ile_eIVXvYwAP3qQ6oQGsPmbRgQvf_YmcoFz28wmICae4Z4W4vlFtherU7VwmUb0F3uAlR-QAMTSc9bqFKEJyo_Co3A0UqA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3t1.jpg)
 
-返到**川崎**又飲過 @**白金魚**  
+返到**川崎**又飲過 @[白金魚](https://hidie.net/kanagawa3t/)  
 （白金魚 プラチナフィッシュ クラフトビアバル アトレ川崎店）  
 鬼佬涼茶裝响涼茶杯咁  
 
-![](https://q1zazw.ch.files.1drv.com/y4m88EwN9SqD0V8yYtzNKDL2uLTdC0U5tDT_HRoej-36EiNkk70BTnwTwgAqrWOXFM17S-nvZbO4IpKcFuJi6Tr5TmlvcuPti2x7GgSsI5DDflpXTCiRh0uKiJh_Ua3zwpVdhdoJJ3v5mJVemYgEhH-4zXLnoai8pOGDzoMEJ3DEdFMp2gjEaUuWrNRrNWEno0IMZcRQilPJTZsX3_gW-CbrQ?width=660&height=371&cropmode=none)
+![](/images/kanagawa3t.jpg)
 
 craft beer真係魅力沒法擋  
 
-![](https://q1zbzw.ch.files.1drv.com/y4mFM5Dg6PQ0c_bl6yazPebZ4G3RRJ_zmzJdJOUIoA_QzgTpoyokI9KtmQL7toRdiTJJUmsBneHvgI4bhLkLOX_tw_AYC-iiyEKXn5u5-frUlDSyTxRUGuwOrmnXorKh1XcJTX7wA461ahh-kw85rD7GXjwV-xNDk1JNRlyeJY6aDwrs7D68srOpmNdic_kTLFnVChriokGhZTrESQJ_qhYhg?width=660&height=371&cropmode=none)
+![](/images/kanagawa3t4.jpg)
 
 **クリームチーズの醤油漬**  
 個醬油漬cream cheese勁好送酒  
 
-![](https://q1zdzw.ch.files.1drv.com/y4mk4-tvoeJmhx3Chs08ptaLWLfZlu-6Ncr-80X4LUqKYFY0feQ5dXVwxQKlabGPbWx1paW9nGCv121dAOZRFIhqgf7ke_i3An1ooxoP2B9hpoRBLr4PCCJFgt2mexhui6zk0PL1xlOsUF6VGOzqy4aR0BHKvaszTwyPy9k9y0ay7NKSE-34VmamnAavS_4luFV4cQ9dvnIhGJfk1K_xxhJgg?width=371&height=660&cropmode=none)
+![](/images/kanagawa3t5.jpg)
 
 嚟埋呢杯**Hop Hideout**就完喇  
 
-![](https://af3wzw.ch.files.1drv.com/y4mCidSiZB9we9caAP62ybtNgxLmi4pALRiC4kn83rkyRKTTZ0ryWi_G15_DiuNFmEa1ZkuGiDlprZ1SWYFkd0u7VD2gw0ehFKdO8CqOniavX4StOmCaV9L1AXrRs9t2zOjQNn5NvTpU7hK1xZ74syErJJdL6ESNJdaVTOCoTNykcyWw6CEoj0XYryJy339jsxfPPVG78hQcV-KAwWQpguEkw?width=660&height=371&cropmode=none)
+![](/images/kanagawa3u1.jpg)
 
 吖～ 話說川崎呢度係叮噹**ドラえもん**嘅故鄉  
 
-![](https://al3czw.ch.files.1drv.com/y4mTZGFCX1jlGY1F8EJk5mNJ5lgOmewvXES4nKp3GC_ni9rndChXepdRrI8ZgT6OgW8iZiaGl9WpHaDd5Dzm-I3nkWCG-4a15FHGVMuk08a2CLTSRVIQVmV1m17sTMen4SHXRYw6ZCdPvlo1MvDzNQBWRIUglEZefXULNIbsXpZJ3YuqtuEKVH445tZyXH_ik69Y_OWL9wVM8PIXhHC_o91fA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3u3.jpg)
 
 拎埋行李就搭京急返機場  
 
-![](https://af3bzw.ch.files.1drv.com/y4muX0qv1C3q6jg8y2UX11ADgD9Rw968c1_09vML-HMLi42bUKeJ1kMvGK446cGgTsy80KzJggqLKjqp8dOo4f-F2i9-NtxSbFxJt5p5eDUbEmyKqWvk9o8I_OpSqpkFudoXd0Wy3UtDrQ6Y8QFjlQqS1DdT90wBGoUPFFKueHyeslkx99ZNwpd7QqtSc45bkansn231UbiQHok98Fcvb9zFw?width=660&height=371&cropmode=none)
+![](/images/kanagawa3u.jpg)
 
 好快有車又好快去到  
 
-![](https://av3wzw.ch.files.1drv.com/y4mpozj6as8r9mmQdTR0PUqD_Ny_ZUE8jThY0LBUtQLCDZK97ly1kBTRFGQcAM0D4heLdZKJmYU9WstogqMSlzUNPoGRrrRMJb_KUWNLJ7CVzCl8YqWL1VHV_mH538CYUoWx_No32OtDoixlM4yJpEo8rkumhutqn9Ij0XzjnYhu0mSogn1M2HR-nhHt7VE9g6y0eBPLA8wYchqagiuFn5-QA?width=660&height=371&cropmode=none)
+![](/images/kanagawa3u4.jpg)
 
 咁就快閃咗三日三夜喇  
 搭凌晨機，五點落機返屋企沖個涼然後死返工！！！  

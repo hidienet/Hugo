@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 有時候不認為自己已經上了點年紀也不行...  
 
-[![](https://4.bp.blogspot.com/-cMjMAID3BaI/XE24-BSJAyI/AAAAAAAAHu0/4C61Yj9wZWAyAjs4N59WdUOjARPvht2dwCLcBGAs/s640/15739714342_5e75935513_z.jpg)](https://4.bp.blogspot.com/-cMjMAID3BaI/XE24-BSJAyI/AAAAAAAAHu0/4C61Yj9wZWAyAjs4N59WdUOjARPvht2dwCLcBGAs/s1600/15739714342_5e75935513_z.jpg)
+![](/images/ryoantiaging.jpg)
 
 連用shampoo也要用上ant-aging了  
   

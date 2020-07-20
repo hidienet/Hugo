@@ -13,7 +13,7 @@ Y-zone一定要有特別呵護嗎？
 習慣了分開pH值的cleanser來使用而已  
 只是**感覺上**比普通body cleanser更溫和  
 
-[![](https://2.bp.blogspot.com/-I5Eq7cFA4sY/XExu3c24deI/AAAAAAAAG7Q/xDfpy_AxBp0bAJB4thsMMVeU1Hl3Olr7QCLcBGAs/s640/15081564247_672f07c219_z.jpg)](https://2.bp.blogspot.com/-I5Eq7cFA4sY/XExu3c24deI/AAAAAAAAG7Q/xDfpy_AxBp0bAJB4thsMMVeU1Hl3Olr7QCLcBGAs/s1600/15081564247_672f07c219_z.jpg)
+![](/images/lactacyd.jpg)
 
 五種有沒有分別？  
 有！質地不同，但也是用來清潔的  

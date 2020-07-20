@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 超型格包裝的黑色類蛇毒眼膜  
 
-[![](https://farm8.staticflickr.com/7530/15716937908_196673a386_z.jpg)](https://farm8.staticflickr.com/7530/15716937908_196673a386_z.jpg)
+![](/images/tonymolysynake.jpg)
 
 芝麻糊色的眼膜  
 敷上眼立即變成大熊貓（笑）  

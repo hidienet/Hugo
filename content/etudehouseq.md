@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://3.bp.blogspot.com/-y60a35y9VtE/XEx2dQ_Wf3I/AAAAAAAAG-M/g0Qgug7W6igEkj6t_dE0Z9DJLHEMtH8PQCLcBGAs/s640/14906124892_d90d35660a_z.jpg)](https://3.bp.blogspot.com/-y60a35y9VtE/XEx2dQ_Wf3I/AAAAAAAAG-M/g0Qgug7W6igEkj6t_dE0Z9DJLHEMtH8PQCLcBGAs/s1600/14906124892_d90d35660a_z.jpg)
+![](/images/etudehouseq.jpg)
 
 Q for Q10, tightening & firming  
 一種內服外敷都好的元素  

@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 天氣有點冷當然要去打邊爐  
 
-[![](https://farm9.staticflickr.com/8638/15956014561_bba652e7d5_z.jpg)](https://farm9.staticflickr.com/8638/15956014561_bba652e7d5_z.jpg)
+![](/images/dojohakata.jpg)
 
 九州料理之一的**牛腸鍋**  
 （別跟我說博多只有博多拉麵，OK？）  
@@ -24,14 +24,14 @@ tags : [flavor - 行膳積腹]
 能減膩加纖維而且吸了湯汁更是美味  
 紅色乾辣椒只是微辣也能解解膩  
 
-[![](https://farm8.staticflickr.com/7513/15771982369_ec2e0926bf_z.jpg)](https://farm8.staticflickr.com/7513/15771982369_ec2e0926bf_z.jpg)
+![](/images/dojohakata1.jpg)
 
 **燒榮螺**  
 一大隻慢慢烤  
 肉質鮮味又夠彈牙  
 新鮮的貨色就是直烤也好吃  
 
-[![](https://farm8.staticflickr.com/7578/15957327792_2ae0f8c720_z.jpg)](https://farm8.staticflickr.com/7578/15957327792_2ae0f8c720_z.jpg)
+![](/images/dojohakata2.jpg)
 
 **炭火串燒**  
 標榜用備長炭烤的串燒  
@@ -49,7 +49,7 @@ tags : [flavor - 行膳積腹]
 （左下）蔥燒牛舌  
 牛舌就是彈牙裡面juicy，沒有補充  
 
-[![](https://farm9.staticflickr.com/8575/15770734210_14761bb3f1_z.jpg)](https://farm9.staticflickr.com/8575/15770734210_14761bb3f1_z.jpg)
+![](/images/dojohakata3.jpg)
 
 再來淡味些的，就點了這**豆腐鍋**  
 豆腐新鮮撞的又濃又滑  

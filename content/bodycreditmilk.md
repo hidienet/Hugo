@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 看到很的很大枝又便宜也不錯用  
 但太重了，不如試試其它的吧  
 
-[![](https://farm9.staticflickr.com/8580/15957230261_c8c7156c58_z.jpg)](https://farm9.staticflickr.com/8580/15957230261_c8c7156c58_z.jpg)
+![](/images/bodycreditmilk.jpg)
 
 牛奶味的hand cream  
 喔～ 是甜味牛奶，塗後味道溢出很歡悅  

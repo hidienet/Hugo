@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 集齊七粒龍珠可以召喚神龍實現願望  
 敷了七天珍珠就能夠透亮白皙  
 
-[![](https://farm9.staticflickr.com/8636/15883804826_6f85f6acbb_z.jpg)](https://farm9.staticflickr.com/8636/15883804826_6f85f6acbb_z.jpg)
+![](/images/apieupearl.jpg)
 
 包裝盒呈三角形，每張面膜摺疊成一條  
 好・似・濕・紙・巾（哈）  

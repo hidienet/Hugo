@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 具美白功效的按摩面膜，真的很magic！  
 
-[![](https://farm8.staticflickr.com/7543/16111086165_4fa31bf663_z.jpg)](https://farm8.staticflickr.com/7543/16111086165_4fa31bf663_z.jpg)
+![](/images/tonymolytomatox.jpg)
 
 主成分為番茄同向日葵  
 能保濕抗氧化與美白的功效  

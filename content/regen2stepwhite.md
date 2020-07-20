@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 一次過敷兩種不同材質的mask，好過癮～  
 
-[![](https://farm8.staticflickr.com/7477/15874915549_4a2859840a_z.jpg)](https://farm8.staticflickr.com/7477/15874915549_4a2859840a_z.jpg)
+![](/images/regen2stepwhite.jpg)
 
 能美白保濕加強肌膚彈性同緊緻輪廓  
 滿足多心又覺得自己很有這堆需要的我  

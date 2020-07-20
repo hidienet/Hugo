@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 music："I'm seven and I know it～"（噗）  
 
-[![](https://farm8.staticflickr.com/7510/15670828899_72c533cd46_z.jpg)](https://farm8.staticflickr.com/7510/15670828899_72c533cd46_z.jpg)
+![](/images/lg7perioe.jpg)
 
 來來去去也是那些清潔美白防敏感清除異味blablabla  
 牙膏是藍色gel狀  

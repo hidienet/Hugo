@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 為了這張蛋臉  
 就連屎，都會用上面（笑喊）  
 
-[![](https://1.bp.blogspot.com/-zjnG5MmRDBI/XE1ShXvLKdI/AAAAAAAAHFc/HLYyIbOjem0B6WG2X_vE3bNHNI5_D9TwACLcBGAs/s640/15223981939_ba19a10444_z.jpg)](https://1.bp.blogspot.com/-zjnG5MmRDBI/XE1ShXvLKdI/AAAAAAAAHFc/HLYyIbOjem0B6WG2X_vE3bNHNI5_D9TwACLcBGAs/s1600/15223981939_ba19a10444_z.jpg)
+![](/images/birdpowder.jpg)
 
 以夜鶯的便便乾燥後成粉  
 加在起完泡泡的cleanser一齊洗  

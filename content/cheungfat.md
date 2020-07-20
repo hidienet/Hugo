@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹]
 清湯腩河很美味沒錯  
 不過濃味的粵式柱侯牛腩也不能錯過  
 
-[![](https://farm8.staticflickr.com/7556/15770141740_e8ec7c7151_z.jpg)](https://farm8.staticflickr.com/7556/15770141740_e8ec7c7151_z.jpg)
+![](/images/cheungfat.jpg)
 
 看到這深沉的顏色配上超令身光澤  
 就知道牛腩已經煮的入味到不行  

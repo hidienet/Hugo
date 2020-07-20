@@ -6,7 +6,7 @@ aliases: [ "/2014/10/masque-etude-house-i-need-you-q10-mask.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-對！我就是要連敷26個字母～XD  
+I need you to 敷26個字母～XD  
 
 ![](/images/etudehouseq.jpg)
 

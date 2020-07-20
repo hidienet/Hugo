@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 抑或有很多人說那隻德國產韓國貨有多好  
 又說北海道乜乜乜也很好...  
 
-[![](https://farm9.staticflickr.com/8649/15776392938_118d6bc128_z.jpg)](https://farm9.staticflickr.com/8649/15776392938_118d6bc128_z.jpg)
+![](/images/sombayu.jpg)
 
 始終如一，最愛還是用元祖級別的尊！馬！油！  
 無添加香料版本，是有點腥  

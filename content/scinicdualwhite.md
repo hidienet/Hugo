@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 蘊含36ml 精華的黑色mask  
 
-[![](https://3.bp.blogspot.com/-rFbyC280jro/XE2vUtCOcOI/AAAAAAAAHqw/wxoZKIEGYWk4XnpR2UYXTy8Ty-7lxSY7ACLcBGAs/s640/15503352450_6649752790_z.jpg)](https://3.bp.blogspot.com/-rFbyC280jro/XE2vUtCOcOI/AAAAAAAAHqw/wxoZKIEGYWk4XnpR2UYXTy8Ty-7lxSY7ACLcBGAs/s1600/15503352450_6649752790_z.jpg)
+![](/images/scinicdualwhite.jpg)
 
 黑色的材質來自黑豆、黑米、黑芝麻同木炭  
 布質偏薄，分開上下兩層  

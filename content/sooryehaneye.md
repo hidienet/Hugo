@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 很喜歡內補的韓方漢方護膚品  
 
-[![](https://farm8.staticflickr.com/7581/15958803642_f205a2d165_z.jpg)](https://farm8.staticflickr.com/7581/15958803642_f205a2d165_z.jpg)
+![](/images/sooryehaneye.jpg)
 
 天地和率丹、花露水、長生何首烏、長生桔梗、生率膏、blablabla...  
 一大推韓方中藥名稱  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 天氣越來越乾燥  
 面膜除了保濕也需要滋潤些  
 
-[![](https://4.bp.blogspot.com/-avw1w_lsQ98/XE1bgFDEZJI/AAAAAAAAHGc/dqM8WAxmp8w20foi9QNwGhaeBj9A6fzxwCLcBGAs/s640/11151332783_380d9360b2_z.jpg)](https://4.bp.blogspot.com/-avw1w_lsQ98/XE1bgFDEZJI/AAAAAAAAHGc/dqM8WAxmp8w20foi9QNwGhaeBj9A6fzxwCLcBGAs/s1600/11151332783_380d9360b2_z.jpg)
+![](/images/lululunblue.jpg)
 
 沙漠肌用的toner mask  
 超薄紙質卻有滿滿的精華  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 小小一枝的精華  
 蘊藏著大大的保濕能力  
 
-[![](https://3.bp.blogspot.com/-fVu-3cqqraU/XE1EOnNTmsI/AAAAAAAAHAI/g_y3GGOMj_c8jeO-_voJROGAJU6e2ooCQCLcBGAs/s640/15348347096_ec7c7bc242_z.jpg)](https://3.bp.blogspot.com/-fVu-3cqqraU/XE1EOnNTmsI/AAAAAAAAHAI/g_y3GGOMj_c8jeO-_voJROGAJU6e2ooCQCLcBGAs/s1600/15348347096_ec7c7bc242_z.jpg)
+![](/images/sunhydro.jpg)
 
 超迷你的小瓶  
 就算放在袋口裡也很方便  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 近期超鍾愛的toner（心）  
 
-[![](https://2.bp.blogspot.com/-6frSVBJlXAE/XE29OWnwmSI/AAAAAAAAHwc/CD6vjaSxjbAIItupyC-DxsDPmCdQ0fhrACLcBGAs/s640/15720861646_7d48361867_z.jpg)](https://2.bp.blogspot.com/-6frSVBJlXAE/XE29OWnwmSI/AAAAAAAAHwc/CD6vjaSxjbAIItupyC-DxsDPmCdQ0fhrACLcBGAs/s1600/15720861646_7d48361867_z.jpg)
+![](/images/beucleb12toner.jpg)
 
 能一次解決多種肌膚問題  
 內含AHA、BHA同B12  

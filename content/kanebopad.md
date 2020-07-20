@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 適合懶人用的兩用mask  
 
-[![](https://farm8.staticflickr.com/7565/15256117193_de169038a6_z.jpg)](https://farm8.staticflickr.com/7565/15256117193_de169038a6_z.jpg)
+![](/images/kanebopad.jpg)
 
 勤力些就將它一開三至四塊  
 敷上1-3分鐘，軟化皮膚又能輕度保濕  

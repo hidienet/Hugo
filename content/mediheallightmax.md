@@ -6,11 +6,11 @@ aliases: [ "/2014/12/masque-mediheal-ipi-lightmax-hydro-nude.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-本身已經是廿分喜愛的美白mask \[[相關舊文](http://www.hidie.net/2014/02/masque-beauty-clinic-mediheal-ipi.html)\]  
+本身已經是廿分喜愛的[美白mask](https://hidie.net/medihealipi/)  
 升級版本居然是hydrogel  
 不入手會對不住自己撞牆而死（！）  
 
-[![](https://farm8.staticflickr.com/7567/15804003430_89bbbec6c7_z.jpg)](https://farm8.staticflickr.com/7567/15804003430_89bbbec6c7_z.jpg)
+![](/images/mediheallightmax.jpg)
 
 雖然說是nude gel，不過不算薄身而帶且花紋  
 如果也叫做nude的話應該是佈滿皺紋了  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 hello淨白肌（揮手）  
 
-[![](https://3.bp.blogspot.com/-Bc2oTOOUF4Y/XFbQePh5kPI/AAAAAAAAH3w/uAxrs85HGOIfQkvhaaTK4yoHMNUkF86MACLcBGAs/s640/15824035111_cf154a422f_z.jpg)](https://3.bp.blogspot.com/-Bc2oTOOUF4Y/XFbQePh5kPI/AAAAAAAAH3w/uAxrs85HGOIfQkvhaaTK4yoHMNUkF86MACLcBGAs/s1600/15824035111_cf154a422f_z.jpg)
+![](/images/skinfoodtomato.jpg)
 
 以紅番茄 締造 亮白肌膚  
 面膜是那種一塗即白cream  

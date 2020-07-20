@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 冬天，指甲就換上濃濃的顏色  
 
-[![](https://farm4.staticflickr.com/3693/9728790821_e072aafc84_z.jpg)](https://farm4.staticflickr.com/3693/9728790821_e072aafc84_z.jpg)
+![](/images/etudehousebr301.jpg)
 
 （不過可以先好好去除甲邊的死皮嗎？）  
   

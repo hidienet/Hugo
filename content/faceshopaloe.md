@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, collections - 김수현, glamorous - 面膜
 
 新一年，面還是會繼續敷～  
 
-[![](https://farm8.staticflickr.com/7571/16041065845_c0d5a6bf6d_z.jpg)](https://farm8.staticflickr.com/7571/16041065845_c0d5a6bf6d_z.jpg)
+![](/images/faceshopaloe.jpg)
 
 未敷面先興奮的面膜（撒花）  
 雖然是韓國品牌  
@@ -32,19 +32,19 @@ tags : [glamorous - 保養おたく, collections - 김수현, glamorous - 面膜
 表層沒有乾紋，皮膚從裡面彈上來  
 翌日還能維持內彈外滑，不錯耶～  
 
-[![](https://farm9.staticflickr.com/8664/16040362552_1c3272dd41_z.jpg)](https://farm9.staticflickr.com/8664/16040362552_1c3272dd41_z.jpg)
+![](/images/faceshopaloe1.jpg)
 
 其實面膜是隨這盒CC cream附送  
 再次強調這是特別版  
 所以盒上是有他簽名的啊！  
 不是氣墊霜而是由小洞擠出來的cream  
 
-[![](https://farm8.staticflickr.com/7507/16041065515_7317ee8111_z.jpg)](https://farm8.staticflickr.com/7507/16041065515_7317ee8111_z.jpg)
+![](/images/faceshopaloe2.jpg)
 
 都說了是特別版，再說這是好康的特別版  
 不用mouse pad也能當小掛畫吧（嘿嘿）  
 
-[![](https://farm9.staticflickr.com/8678/15853623318_b4f496abd6_z.jpg)](https://farm9.staticflickr.com/8678/15853623318_b4f496abd6_z.jpg)
+![](/images/faceshopaloe3.jpg)
 
 臺灣最近都是推出這種單面小圓鏡  
 （香港的鏡都是有蓋有袋的）  

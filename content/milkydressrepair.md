@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 我明明不是禽類，為甚麼會有雞皮在身體呢？  
 （你是禽獸！禽獸無誤！鑑定完畢！）  
 
-[![](https://3.bp.blogspot.com/-3GqGYJtqn0E/XE27hqS9B5I/AAAAAAAAHvk/RSxm3URbBygFGoqJc4O1DU7E03IpJ1hEgCLcBGAs/s640/15387697696_6721fec88a_z.jpg)](https://3.bp.blogspot.com/-3GqGYJtqn0E/XE27hqS9B5I/AAAAAAAAHvk/RSxm3URbBygFGoqJc4O1DU7E03IpJ1hEgCLcBGAs/s1600/15387697696_6721fec88a_z.jpg)
+![](/images/milkydressrepair.jpg)
 
 不～ 是～ 啦～（瞪）  
 要好好解決毛囊角化問題的話  

@@ -6,7 +6,7 @@ aliases: [ "/2014/10/danbo-mini-x-mtr_9.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://4.bp.blogspot.com/-tAIBEp4VAWo/XE1OyHdpm9I/AAAAAAAAHDw/eeAD8TwVNkU8pac7kAlryPB0M7zJvuB7ACLcBGAs/s640/3.jpg)](https://4.bp.blogspot.com/-tAIBEp4VAWo/XE1OyHdpm9I/AAAAAAAAHDw/eeAD8TwVNkU8pac7kAlryPB0M7zJvuB7ACLcBGAs/s1600/3.jpg)
+![](/images/danbotinhau.jpg)
 
 下一站⋯⋯  
 可以飛站嗎？

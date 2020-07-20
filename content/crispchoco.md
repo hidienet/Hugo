@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 好～ 悶～ 呀～～～  
 
-[![](https://farm8.staticflickr.com/7581/15669064698_c2d51aba70_z.jpg)](https://farm8.staticflickr.com/7581/15669064698_c2d51aba70_z.jpg)
+![](/images/crispchoco.jpg)
 
 還是吃這種又甜又脆口的過過癮吧！  
 （說好了的減肥呢？）

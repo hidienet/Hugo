@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://1.bp.blogspot.com/-mTTZ88ANZXA/XExwk7WgctI/AAAAAAAAG8U/x6ZDL0Yne_U3eqNr1DNj1sgoNTiM6U8KACLcBGAs/s640/14719554509_418ceb97b4_z.jpg)](https://1.bp.blogspot.com/-mTTZ88ANZXA/XExwk7WgctI/AAAAAAAAG8U/x6ZDL0Yne_U3eqNr1DNj1sgoNTiM6U8KACLcBGAs/s1600/14719554509_418ceb97b4_z.jpg)
+![](/images/etudehousel.jpg)
 
 L for lemon, tone clarifying  
 vitamin c亮白；檸檬酸又能去死皮  

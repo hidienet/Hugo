@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 雖然知道肌膚的膠原是不能直接補充  
 
-[![](https://farm8.staticflickr.com/7488/15903762412_eee26b7f28_z.jpg)](https://farm8.staticflickr.com/7488/15903762412_eee26b7f28_z.jpg)
+![](/images/naturerepublicaquacollagen.jpg)
 
 不過含有collagen的產品  
 還是滋潤不黏膩不錯用  

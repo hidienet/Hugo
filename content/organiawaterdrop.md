@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 有人說去韓國屈臣氏就入手這個  
 在當地也看到一箱箱出售  
 
-[![](https://farm9.staticflickr.com/8574/15390642293_c7d884a0e7_z.jpg)](https://farm9.staticflickr.com/8574/15390642293_c7d884a0e7_z.jpg)
+![](/images/organiawaterdrop.jpg)
 
 其實一枝都要1500₩，當時沒有入手  
 回到香港屈臣氏又看到有的賣  

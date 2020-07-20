@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 滾珠滾珠滾滾滾走我的眼圈啊（念力）  
 
-[![](https://2.bp.blogspot.com/-GGwfquYfqgM/XE1PZN7WhsI/AAAAAAAAHEE/x62PttGEinIEdtIV-HKh7XJ66BdpjPysQCLcBGAs/s640/15205486288_ebe9ac76bf_z.jpg)](https://2.bp.blogspot.com/-GGwfquYfqgM/XE1PZN7WhsI/AAAAAAAAHEE/x62PttGEinIEdtIV-HKh7XJ66BdpjPysQCLcBGAs/s1600/15205486288_ebe9ac76bf_z.jpg)
+![](/images/clivball.jpg)
 
 gel狀精華有提升彈力、亮化同保濕的成分  
 （蝸牛、馬齒莧、積雪草、薑、截止花、虎杖、花菖蒲、紅蘿蔔、維他命C、谷胱甘肽、果酸、煙酸等）  
@@ -26,7 +26,7 @@ gel狀精華有提升彈力、亮化同保濕的成分
 我的用法是「雙龍出海」式：  
 用金珠每邊各塗抹一次  
 再一邊用這枝金珠  
-另一邊用[charm震動導入筆](http://www.hidie.net/2014/07/tools-charm.html)  
+另一邊用[charm震動導入筆](https://hidie.net/charmeye/)  
 按摩後再左右對調  
 兩隻眼一齊做滾珠感覺用力會平均點  
 平日用手按摩也是兩邊一齊按的，不是嗎？  

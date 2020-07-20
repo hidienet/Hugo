@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 將保濕精華壓壓壓壓壓進去  
 
-[![](https://farm6.staticflickr.com/5492/10034705356_67a1506e4b_z.jpg)](https://farm6.staticflickr.com/5492/10034705356_67a1506e4b_z.jpg)
+![](/images/kracie3d.jpg)
 
 27ml的保濕美容液塞進薄薄的面膜中  
 精華粒子非常細，平均100nm  

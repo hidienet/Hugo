@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 用一瓶眼霜去解決眼周所有問題喎...  
 
-[![](https://3.bp.blogspot.com/-S-BUSu9KkbQ/XE1GMC5RfII/AAAAAAAAHBY/gqGRf6_z4_oQ5VKx5hil4nJCU4ILA-n9wCLcBGAs/s640/12264558274_b34ee71f2b_z.jpg)](https://3.bp.blogspot.com/-S-BUSu9KkbQ/XE1GMC5RfII/AAAAAAAAHBY/gqGRf6_z4_oQ5VKx5hil4nJCU4ILA-n9wCLcBGAs/s1600/12264558274_b34ee71f2b_z.jpg)
+![](/images/hreye.jpg)
 
 去眼紋浮腫黑眼圈  
 有緊緻保濕平滑作用  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://1.bp.blogspot.com/--fR-VNN_2v0/XE1A0YKwhWI/AAAAAAAAG-4/NTMxHGCwzHANIxARqvCUxm5p08tjIT0BgCLcBGAs/s640/14719874688_9f78e0f77f_z.jpg)](https://1.bp.blogspot.com/--fR-VNN_2v0/XE1A0YKwhWI/AAAAAAAAG-4/NTMxHGCwzHANIxARqvCUxm5p08tjIT0BgCLcBGAs/s1600/14719874688_9f78e0f77f_z.jpg)
+![](/images/etudehouses.jpg)
 
 S for shea butter, richly nourishing  
 乳木果潤潤面仔  

@@ -6,10 +6,10 @@ aliases: [ "/2014/10/masque.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-同一系列中的[頸pack](http://www.hidie.net/2014/07/masque_13.html)實在太好用  
+同一系列中的[頸pack](https://hidie.net/aishikonneck/)實在太好用  
 完全無法擺脫購入這個眼膜的魔咒  
 
-[![](https://2.bp.blogspot.com/-gPzbSarCDhU/XE1QxFJWsHI/AAAAAAAAHE8/ooDRHUA-74kSW3grcZvDpbpsZoTzMnargCLcBGAs/s640/15356176916_cc518e9632_z.jpg)](https://2.bp.blogspot.com/-gPzbSarCDhU/XE1QxFJWsHI/AAAAAAAAHE8/ooDRHUA-74kSW3grcZvDpbpsZoTzMnargCLcBGAs/s1600/15356176916_cc518e9632_z.jpg)
+![](/images/aishikoneye.jpg)
 
 主要成分都是藍紫根  
 簡單來說就是用來去皺  

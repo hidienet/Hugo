@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://4.bp.blogspot.com/-DK9kOm53lF4/XE1DNJLARNI/AAAAAAAAG_U/_n8BDtT6GSEkQVw8lAZg1DYdncyEcpnNACLcBGAs/s640/14719926747_401183bd88_z.jpg)](https://4.bp.blogspot.com/-DK9kOm53lF4/XE1DNJLARNI/AAAAAAAAG_U/_n8BDtT6GSEkQVw8lAZg1DYdncyEcpnNACLcBGAs/s1600/14719926747_401183bd88_z.jpg)
+![](/images/etudehouset.jpg)
 
 T for tea tree, trouble care  
 雖然是乾性皮膚  

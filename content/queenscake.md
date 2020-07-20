@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 漢堡包？蛋糕！  
 
-[![](https://3.bp.blogspot.com/-t2ZxuK_XrlU/XE1MbceedPI/AAAAAAAAHCY/2TInTwIt6kgp69VpkOv1cK4STrnGtmXBwCLcBGAs/s640/15378871722_fa80acf205_z.jpg)](https://3.bp.blogspot.com/-t2ZxuK_XrlU/XE1MbceedPI/AAAAAAAAHCY/2TInTwIt6kgp69VpkOv1cK4STrnGtmXBwCLcBGAs/s1600/15378871722_fa80acf205_z.jpg)
+![](/images/queenscake.jpg)
 
 海綿蛋糕 x mousse x 水果  
 其實沒有甚麼特別  

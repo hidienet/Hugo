@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 真心喜愛這品牌的美人圖系列  
 
-[![](https://farm8.staticflickr.com/7540/16060293202_d834b24679_z.jpg)](https://farm8.staticflickr.com/7540/16060293202_d834b24679_z.jpg)
+![](/images/faceshop24k.jpg)
 
 而這片天蔘松茸自生面膜是屬於heaven grade  
 一次過提昇肌膚的自身能力  
@@ -33,5 +33,5 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 \-----------------------------------------------  
   
 延伸閱讀：  
-[the face shop 명한미인도 설 미백비책마스크시트](http://www.hidie.net/2014/01/masque-face-shop.html)  
-[the face shop 명한미인도 율 십이경락탄력마스크시트](http://www.hidie.net/2014/03/masque-face-shop.html)
+[the face shop 명한미인도 설 미백비책마스크시트](https://hidie.net/faceshopsnow/)  
+[the face shop 명한미인도 율 십이경락탄력마스크시트](https://hidie.net/faceshoplifting/)

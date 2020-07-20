@@ -6,10 +6,10 @@ aliases: [ "/2014/11/masque-onl-makgeollism-brightening.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-超喜歡喝又甜又濃郁的[막걸리](http://www.hidie.net/2014/01/day1_3554.html)（makgeolli）  
+超喜歡喝又甜又濃郁的[막걸리](https://hidie.net/busanjj1j/)（makgeolli）  
 有酵母的東西，敷面也應該不錯吧～  
 
-[![](https://1.bp.blogspot.com/-_h7mO2vxgw4/XE26hIaTUqI/AAAAAAAAHvY/Y9F8W1buVjc7AOlMrgf2RmS7Jpoh0_m_ACLcBGAs/s640/15558060008_934918619c_z.jpg)](https://1.bp.blogspot.com/-_h7mO2vxgw4/XE26hIaTUqI/AAAAAAAAHvY/Y9F8W1buVjc7AOlMrgf2RmS7Jpoh0_m_ACLcBGAs/s1600/15558060008_934918619c_z.jpg)
+![](/images/onlmakgeollism.jpg)
 
 以100%有機米發酵而成  
 一罐含有5000ppm的nuruk（酵母）  

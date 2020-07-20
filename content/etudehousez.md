@@ -6,9 +6,9 @@ aliases: [ "/2014/10/masque-etude-house-i-need-you-zucchini.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-對！我就是要連敷26個字母～XD  
+I need you to 敷26個字母～XD  
 
-[![](https://4.bp.blogspot.com/-3lw-f0LqIT8/XE1G6NrVD0I/AAAAAAAAHBw/Bn-w6Ga1g5I_uFvwq_7MqFKWU7GApn0YACLcBGAs/s640/14883496996_f8f08d9eef_z.jpg)](https://4.bp.blogspot.com/-3lw-f0LqIT8/XE1G6NrVD0I/AAAAAAAAHBw/Bn-w6Ga1g5I_uFvwq_7MqFKWU7GApn0YACLcBGAs/s1600/14883496996_f8f08d9eef_z.jpg)
+![](/images/etudehousez.jpg)
 
 Z for zucchini, nourishing & moisturizing  
 翠玉瓜好吃，敷在面還可以保濕  

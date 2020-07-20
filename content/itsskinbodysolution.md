@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 身體每個角落都不能忽視喔～  
 
-[![](https://farm8.staticflickr.com/7495/15830351296_0e20ea2b34_z.jpg)](https://farm8.staticflickr.com/7495/15830351296_0e20ea2b34_z.jpg)
+![](/images/itsskinbodysolution.jpg)
 
 水狀的身體美白精華  
 以海綿頭直接塗於肌膚暗沈部位  

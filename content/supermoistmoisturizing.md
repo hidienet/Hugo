@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 supermoist的moisturizing mask  
 會不會特別保濕呢？  
 
-[![](https://4.bp.blogspot.com/--ITCgjAoS38/XE1dPhs9fqI/AAAAAAAAHHM/2_hGr10sH0IgkF4s6c4vbL2jYcR63IODACLcBGAs/s640/10155023496_8cf376322f_z.jpg)](https://4.bp.blogspot.com/--ITCgjAoS38/XE1dPhs9fqI/AAAAAAAAHHM/2_hGr10sH0IgkF4s6c4vbL2jYcR63IODACLcBGAs/s1600/10155023496_8cf376322f_z.jpg)
+![](/images/supermoistmoisturizing.jpg)
 
 大大塊棉質面膜  
 水質的精華份量爆多  

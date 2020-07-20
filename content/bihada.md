@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 多合一的美肌純米酒  
 
-[![](https://1.bp.blogspot.com/-guOZuqr0hdY/XExyyVaKlVI/AAAAAAAAG9I/vN2quluLpD0OZBl2QylcNiudoAT8ibK7wCLcBGAs/s640/13187591223_14117be240_z.jpg)](https://1.bp.blogspot.com/-guOZuqr0hdY/XExyyVaKlVI/AAAAAAAAG9I/vN2quluLpD0OZBl2QylcNiudoAT8ibK7wCLcBGAs/s1600/13187591223_14117be240_z.jpg)
+![](/images/bihada.jpg)
 
 沒有添加防腐劑色素香料等  
 好吧已經是酒根本就是防腐有香味的  

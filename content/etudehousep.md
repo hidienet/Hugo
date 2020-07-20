@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://3.bp.blogspot.com/-1zGe8kl6gjk/XExzraY2bJI/AAAAAAAAG9s/OymRKBM6qE4LAbwuh-hJzRGWqXoIO_8nwCLcBGAs/s640/14719803260_4f98bbbc86_z.jpg)](https://3.bp.blogspot.com/-1zGe8kl6gjk/XExzraY2bJI/AAAAAAAAG9s/OymRKBM6qE4LAbwuh-hJzRGWqXoIO_8nwCLcBGAs/s1600/14719803260_4f98bbbc86_z.jpg)
+![](/images/etudehousep.jpg)
 
 P for pomegranate, smooth elasticity  
 小時候字面上不懂分(番)石榴同石榴(籽)  
@@ -21,7 +21,7 @@ P for pomegranate, smooth elasticity
 面膜顏色是維持白色不是紅色  
 精華還是很多多多面膜本身吸不完  
 下半part因個人問題開始不貼面  
-（也是用[矽膠mask](http://www.hidie.net/2014/07/masque-daiso.html)完美地解決問題）  
+（也是用[矽膠mask](https://hidie.net/daisosilicone/)完美地解決問題）  
   
 敷15-20分鐘，拿下面膜後  
 按摩兩三下就等繼續吸收  

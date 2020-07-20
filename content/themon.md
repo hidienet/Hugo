@@ -8,6 +8,6 @@ tags : [flavor - 行膳積腹]
 
 又厚又滑的層層玉子焼  
 
-[![](https://farm9.staticflickr.com/8669/15888907281_b049422da6_z.jpg)](https://farm9.staticflickr.com/8669/15888907281_b049422da6_z.jpg)
+![](/images/themon.jpg)
 
 爆汁的美味就是有種幸福的感覺～（超讚）

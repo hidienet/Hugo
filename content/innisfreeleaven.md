@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 就稱這罐為童顏面膜吧！  
 
-[![](https://3.bp.blogspot.com/-l8V61HetgKM/XE1P1xeJwlI/AAAAAAAAHEU/8GzfIDddaXcpQXP-RzUWPbvtfmgP8_kdwCLcBGAs/s640/15224059860_a88e92f329_z.jpg)](https://3.bp.blogspot.com/-l8V61HetgKM/XE1P1xeJwlI/AAAAAAAAHEU/8GzfIDddaXcpQXP-RzUWPbvtfmgP8_kdwCLcBGAs/s1600/15224059860_a88e92f329_z.jpg)
+![](/images/innisfreeleaven.jpg)
 
 酵母面膜，跟那些酵母精華一樣  
 令皮膚活化更新有輕度美白等功能  

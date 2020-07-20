@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～ XD  
 
-[![](https://4.bp.blogspot.com/-nPAVFzpYAk4/XExRJDRE70I/AAAAAAAAG2o/-s-7NLTigcEyX-L9_wjpLDm0QaHtJNHaQCLcBGAs/s640/14710462579_92ebb781d4_z.jpg)](https://4.bp.blogspot.com/-nPAVFzpYAk4/XExRJDRE70I/AAAAAAAAG2o/-s-7NLTigcEyX-L9_wjpLDm0QaHtJNHaQCLcBGAs/s1600/14710462579_92ebb781d4_z.jpg)
+![](/images/etudehousea.jpg)
 
 A for aloe, soothing relief  
 平日無無聊都會敷上一pat蘆薈gel  

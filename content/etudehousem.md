@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://1.bp.blogspot.com/-lRlaKr2ZQTE/XExx39lqz8I/AAAAAAAAG8w/zGP7eRJ_biYvZFw3-LB2SRTjz_vwNM5KgCLcBGAs/s640/14906190435_4149ba1d68_z.jpg)](https://1.bp.blogspot.com/-lRlaKr2ZQTE/XExx39lqz8I/AAAAAAAAG8w/zGP7eRJ_biYvZFw3-LB2SRTjz_vwNM5KgCLcBGAs/s1600/14906190435_4149ba1d68_z.jpg)
+![](/images/etudehousem.jpg)
 
 M for mango, nourishing & firming  
 芒果氣味濃香味道又甜美  

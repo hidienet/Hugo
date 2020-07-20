@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 強烈推薦這罐印尼身體磨砂膏！  
 
-[![](https://3.bp.blogspot.com/-WeCxmlbi9TU/XE1QCtP-LKI/AAAAAAAAHEc/0pgaBWCsxaAux0ZTgyU2TLCk1fVVTkdLQCLcBGAs/s640/15388670151_ab51cc446a_z.jpg)](https://3.bp.blogspot.com/-WeCxmlbi9TU/XE1QCtP-LKI/AAAAAAAAHEc/0pgaBWCsxaAux0ZTgyU2TLCk1fVVTkdLQCLcBGAs/s1600/15388670151_ab51cc446a_z.jpg)
+![](/images/purbasariscrub.jpg)
 
 像棉花糖般輕柔的質地  
 加點水後塗在已濕的身體上  

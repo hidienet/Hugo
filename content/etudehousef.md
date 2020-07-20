@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://4.bp.blogspot.com/-Val6WJ3Vnh0/XExrbO8HLJI/AAAAAAAAG5U/EqwZUEovcmc5PkNJGM--kBPeaRgcI7JegCLcBGAs/s640/14896756632_46ee4809c2_z.jpg)](https://4.bp.blogspot.com/-Val6WJ3Vnh0/XExrbO8HLJI/AAAAAAAAG5U/EqwZUEovcmc5PkNJGM--kBPeaRgcI7JegCLcBGAs/s1600/14896756632_46ee4809c2_z.jpg)
+![](/images/etudehousef.jpg)
 
 F for fig, purifying  
 水果之中，無花果是我其中一種最愛的  

@@ -6,10 +6,10 @@ aliases: [ "/2014/10/essence-cloud-9-blanc-de-white-serum.html" ]
 tags : [glamorous - 保養おたく]
 ---
 
-對[cloud 9面霜](http://www.hidie.net/2014/08/moisturizer-cloud-9-blanc-de-white-cream.html)簡直去到鍾愛的地步  
+對[cloud 9面霜](https://hidie.net/cloud9cream/)簡直去到鍾愛的地步  
 想不到同系列的精華都那麼讚！  
 
-[![](https://2.bp.blogspot.com/-x4hPqtUyTeM/XE1TlSfv_6I/AAAAAAAAHF0/pAAhnig6Jeg81ESXYnnKYe1wH-Uc_oO7ACLcBGAs/s640/15224142378_ff1f9e84e8_z.jpg)](https://2.bp.blogspot.com/-x4hPqtUyTeM/XE1TlSfv_6I/AAAAAAAAHF0/pAAhnig6Jeg81ESXYnnKYe1wH-Uc_oO7ACLcBGAs/s1600/15224142378_ff1f9e84e8_z.jpg)
+![](/images/cloud9serum.jpg)
 
 面霜就一塗即白  
 然後越塗就連膚色都慢慢變白  

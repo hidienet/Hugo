@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 從boby lotion認識illi  
 然而其品牌的mask也是相當好用  
 
-[![](https://3.bp.blogspot.com/-XQNcPfcMD8U/XFbSbi_d4_I/AAAAAAAAH5Y/l1arY5pcwrUn7UrtSGHwx6Z05YUzyN4xQCLcBGAs/s640/15828965612_377974e66c_z.jpg)](https://3.bp.blogspot.com/-XQNcPfcMD8U/XFbSbi_d4_I/AAAAAAAAH5Y/l1arY5pcwrUn7UrtSGHwx6Z05YUzyN4xQCLcBGAs/s1600/15828965612_377974e66c_z.jpg)
+![](/images/illigreentea.jpg)
 
 絕對有理由懷疑包裝寫錯  
 應該是brightening而不是total aging care  

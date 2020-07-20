@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 ふわふわ的去角質炭酸mask  
 
-[![](https://2.bp.blogspot.com/-AB93XVdumiI/XFbKEtHomjI/AAAAAAAAH3I/czHESGDqchoAEA5tdc7CpgzxT3e65l52QCLcBGAs/s640/15775925706_78f12ba0fc_z.jpg)](https://2.bp.blogspot.com/-AB93XVdumiI/XFbKEtHomjI/AAAAAAAAH3I/czHESGDqchoAEA5tdc7CpgzxT3e65l52QCLcBGAs/s1600/15775925706_78f12ba0fc_z.jpg)
+![](/images/sodapique.jpg)
 
 包裝後面有個小小位置剪開  
 就輕易把左右的1劑2劑在手中混合  

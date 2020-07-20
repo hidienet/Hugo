@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 敷連眼蓋的眼膜會甚麼都看不到  
 而敷唇膜，就不能吃喝同講話  
 
-[![](https://1.bp.blogspot.com/-Bgt1ZdZ2nsY/XE1Mj86Q2wI/AAAAAAAAHCg/riabjJXweTsqsjkf7HrWAhUNRDcImn5NACLcBGAs/s640/15376007651_83cb84ea05_z.jpg)](https://1.bp.blogspot.com/-Bgt1ZdZ2nsY/XE1Mj86Q2wI/AAAAAAAAHCg/riabjJXweTsqsjkf7HrWAhUNRDcImn5NACLcBGAs/s1600/15376007651_83cb84ea05_z.jpg)
+![](/images/puresmilelip.jpg)
 
 但有乾紋的嘴會不漂亮  
 所以還是乖乖敷上  

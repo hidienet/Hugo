@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://3.bp.blogspot.com/-S8baN8rvbHo/XExv2CgRbcI/AAAAAAAAG78/u3nHZPt2OhoETYT3r90m9eh1lXp04B4iQCLcBGAs/s640/14719577688_220fa09657_z.jpg)](https://3.bp.blogspot.com/-S8baN8rvbHo/XExv2CgRbcI/AAAAAAAAG78/u3nHZPt2OhoETYT3r90m9eh1lXp04B4iQCLcBGAs/s1600/14719577688_220fa09657_z.jpg)
+![](/images/etudehousek.jpg)
 
 K for Korean ginseng, revitalizing &nourishing  
 打開包裝袋已湧出大陣參味  

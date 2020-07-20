@@ -9,18 +9,18 @@ tags : [flavor - 行膳積腹]
 有人說我近期吃了太多日本餐（是日本菜但其實每樣都不同啦）  
 好吧！今天吃上海菜～  
 
-[![](https://farm9.staticflickr.com/8651/16007601941_521bb550b5_z.jpg)](https://farm9.staticflickr.com/8651/16007601941_521bb550b5_z.jpg)
+![](/images/crystaljade.jpg)
 
 皮薄剔透裡面有湯汁的**小籠包**  
 豬肉餡軟滑juicy  
 別忘了加提鮮的薑絲醋喔  
 
-[![](https://farm8.staticflickr.com/7534/15823804627_b6785f3ddc_z.jpg)](https://farm8.staticflickr.com/7534/15823804627_b6785f3ddc_z.jpg)
+![](/images/crystaljade1.jpg)
 
 **酸辣湯拉麵**  
 拉麵小籠包除了小籠包當然有拉麵  
 
-[![](https://farm9.staticflickr.com/8627/15387299304_1d70092602_z.jpg)](https://farm9.staticflickr.com/8627/15387299304_1d70092602_z.jpg)
+![](/images/crystaljade2.jpg)
 
 （拌勻）  
 雖然也很喜歡清雞湯的拉麵  
@@ -31,7 +31,7 @@ tags : [flavor - 行膳積腹]
 撈麵，不會比湯麵遜色  
 除了拉麵小籠包外  
 
-[![](https://farm9.staticflickr.com/8633/16009555135_1b1b9f7484_z.jpg)](https://farm9.staticflickr.com/8633/16009555135_1b1b9f7484_z.jpg)
+![](/images/crystaljade3.jpg)
 
 作為熱愛和平的animal lover  
 豈能不試試也使招牌菜的**茶香燻乳鴿**？  

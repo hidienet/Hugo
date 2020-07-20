@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 除了年齡同體重一直向上發展外  
 皮膚們都敵不過地心吸力，全都向下伸延（淚奔）  
 
-[![](https://farm8.staticflickr.com/7476/15856356915_5a4d993851_z.jpg)](https://farm8.staticflickr.com/7476/15856356915_5a4d993851_z.jpg)
+![](/images/beuclepack.jpg)
 
 為了讓自己看起來別再慘不忍睹  
 還是乖乖地幫皮膚做多點引體上升吧～  
@@ -20,7 +20,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 不同的是這次的活化劑是粉紅色  
 有茄紅素跟大馬士革玫瑰花水等等  
 所以混合後面膜也是粉紅色的  
-（顏色似[覆盤子濁酒](http://www.hidie.net/2014/01/day4pink-pink.html)，嘻）  
+（顏色似[覆盤子濁酒](https://hidie.net/busanjj4n/)，嘻）  
   
 塗這種面膜，為求使拉緊發揮最大功效：  
 下巴由內向外（左同右）延伸到邊緣  

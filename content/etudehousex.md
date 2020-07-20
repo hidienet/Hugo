@@ -6,9 +6,9 @@ aliases: [ "/2014/10/masque-etude-house-i-need-you-xylitol.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-對！我就是要連敷26個字母～XD  
+I need you to敷26個字母～XD  
 
-[![](https://2.bp.blogspot.com/-rakolbWsQrQ/XE1FgqkIQ_I/AAAAAAAAHA4/54jEEmAjDt4p2vooz9NqeC3HKuep-ca9QCLcBGAs/s640/14719875888_0ffac589e6_z.jpg)](https://2.bp.blogspot.com/-rakolbWsQrQ/XE1FgqkIQ_I/AAAAAAAAHA4/54jEEmAjDt4p2vooz9NqeC3HKuep-ca9QCLcBGAs/s1600/14719875888_0ffac589e6_z.jpg)
+![](/images/etudehousex.jpg)
 
 X for xylitol forest, clean moisture  
 孤陋寡聞的我  

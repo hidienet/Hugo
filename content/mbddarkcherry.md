@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 黑森林蛋糕mask（誤）  
 
-[![](https://farm6.staticflickr.com/5463/9999713385_60cdc602b0_z.jpg)](https://farm6.staticflickr.com/5463/9999713385_60cdc602b0_z.jpg)
+![](/images/mbddarkcherry.jpg)
 
 以朱古力同車厘子打造美白緊實的肌膚  
 打開包裝就釋出濃甜的朱古力味道  

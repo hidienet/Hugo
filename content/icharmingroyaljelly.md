@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 蜂皇漿加上collagen...  
 就是能令皮膚保濕滋潤對吧！  
 
-[![](https://4.bp.blogspot.com/-6rC1HRFnnfI/XE29fbEDn5I/AAAAAAAAHws/AwElYLUibYwfGxfXWAMoF2ANonGYWW9DwCLcBGAs/s640/10504071235_a47a7a0aaf_z.jpg)](https://4.bp.blogspot.com/-6rC1HRFnnfI/XE29fbEDn5I/AAAAAAAAHws/AwElYLUibYwfGxfXWAMoF2ANonGYWW9DwCLcBGAs/s1600/10504071235_a47a7a0aaf_z.jpg)
+![](/images/icharmingroyaljelly.jpg)
 
 打開包裝，咦？甚麼味道？  
 完全不能討好我的氣味  

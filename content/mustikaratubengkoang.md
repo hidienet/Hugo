@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 bengkoang，就是爽爽脆脆的沙葛  
 
-[![](https://3.bp.blogspot.com/-ZoACvDD02So/XE1R9ESKDfI/AAAAAAAAHFU/W_A-vnNUPFMMxs8_fYdN_xeJ8NhfaLq4QCLcBGAs/s640/15410405122_af8a301158_z.jpg)](https://3.bp.blogspot.com/-ZoACvDD02So/XE1R9ESKDfI/AAAAAAAAHFU/W_A-vnNUPFMMxs8_fYdN_xeJ8NhfaLq4QCLcBGAs/s1600/15410405122_af8a301158_z.jpg)
+![](/images/mustikaratubengkoang.jpg)
 
 而切開後看到白色的「肉」  
 磨成粉狀來敷面可以達至美白效果  

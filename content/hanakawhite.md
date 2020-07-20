@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 「杏仁亦要花氣力...」（咦？）  
 
-[![](https://farm8.staticflickr.com/7571/15704853677_28a42b1d17_z.jpg)](https://farm8.staticflickr.com/7571/15704853677_28a42b1d17_z.jpg)
+![](/images/hanakawhite.jpg)
 
 以杏仁酸溫和地跟死皮脫離關係  
 亮白的凍膜界面，用完肌膚不會乾燥  
@@ -20,5 +20,5 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 基本要求（去死皮亮白不乾）都做得到  
 但花上半小時才有這樣的效果  
-那不如用[primera隻peeling gel](http://www.hidie.net/2014/11/peeling-primera-facial-mild-peeling.html)  
+那不如用[primera隻peeling gel](https://hidie.net/primerapeeling/)  
 30秒都做到一樣的功效啦（釘書釘眼）

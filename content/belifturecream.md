@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 對於不分晝夜季節都要美白的我  
 也是會在生理期前加上乾燥的天氣下低頭  
 
-[![](https://farm8.staticflickr.com/7572/15882061949_62198df7d2_z.jpg)](https://farm8.staticflickr.com/7572/15882061949_62198df7d2_z.jpg)
+![](/images/belifturecream.jpg)
 
 要用，就用真正能令肌膚吸飽水之餘  
 亦有微微滋潤的良好鎖水度的產品  

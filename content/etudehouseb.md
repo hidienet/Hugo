@@ -8,10 +8,10 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～ XD  
 
-[![](https://2.bp.blogspot.com/-ODEq9JvDBc4/XExRoonCu6I/AAAAAAAAG3E/OKocCtuE-boP3Na3fh3rYDAUul-rTxelQCLcBGAs/s640/14710500308_1ce9df03cc_z.jpg)](https://2.bp.blogspot.com/-ODEq9JvDBc4/XExRoonCu6I/AAAAAAAAG3E/OKocCtuE-boP3Na3fh3rYDAUul-rTxelQCLcBGAs/s1600/14710500308_1ce9df03cc_z.jpg)
+![](/images/etudehouseb.jpg)
 
 B for Bulgarian rose, brightening  
-呵呵～ 我超喜歡[保加利亞](http://www.hidie.net/2014/06/14d16n.html)  
+呵呵～ 超喜歡[保加利亞](https://hidie.net/bulgaria14d16n/)  
 也非常鍾愛玫瑰產品  
 這塊保加利亞玫瑰mask  
 未打開包裝前已很深得我心  

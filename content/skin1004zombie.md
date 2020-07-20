@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 Zombies, Run!  
 
-[![](https://3.bp.blogspot.com/-oXgr14tmYS4/XE1QUYAdxdI/AAAAAAAAHEo/xEAXxteOb8MhCuRX9tvacxKAkosYZ9pGwCLcBGAs/s640/15410737085_175548e65d_z.jpg)](https://3.bp.blogspot.com/-oXgr14tmYS4/XE1QUYAdxdI/AAAAAAAAHEo/xEAXxteOb8MhCuRX9tvacxKAkosYZ9pGwCLcBGAs/s1600/15410737085_175548e65d_z.jpg)
+![](/images/skin1004zombie.jpg)
 
 敷的時候就拉緊拉緊像zombie一樣醜  
 洗面後就白白滑滑肌膚緊緻毛孔收細  
@@ -27,5 +27,5 @@ Zombies, Run!
 臭腥蛋白味、敷的時候拉緊  
 用後緊緻收輪廓撫平乾紋皺紋  
   
-敷了10多年的[nu skin - face lift](http://www.hidie.net/2013/10/masque-nu-skin-face-lift.html)  
+敷了10多年的[nu skin - face lift](https://hidie.net/nuskinfacelift/)  
 是**一模一樣**的東西呢～（笑喊）

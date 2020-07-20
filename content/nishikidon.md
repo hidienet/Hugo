@@ -10,7 +10,7 @@ tags : [flavor - 行膳積腹]
 裝修是築地風格  
 也標榜刺身食材是從築地運送  
 
-[![](https://farm8.staticflickr.com/7518/15772430329_b38008a2e2_z.jpg)](https://farm8.staticflickr.com/7518/15772430329_b38008a2e2_z.jpg)
+![](/images/nishikidon.jpg)
 
 要吃，當然會吃極上豐腴的**鮪魚腩海膽丼**  
 我明白藍鰭吞拿魚已經越吃越少  
@@ -19,12 +19,12 @@ tags : [flavor - 行膳積腹]
 oh no！這濃郁的組合簡直是逆天的美味  
 好吃到要哭出來了～～～  
 
-[![](https://farm8.staticflickr.com/7490/15772421159_9310db6265_z.jpg)](https://farm8.staticflickr.com/7490/15772421159_9310db6265_z.jpg)
+![](/images/nishikidon1.jpg)
 
 友人F的**雜錦丼** （btw，多謝請客）  
 新鮮就好了，看出能一次過滿足多個願望  
 
-[![](https://farm8.staticflickr.com/7546/15338809933_482f92ea76_z.jpg)](https://farm8.staticflickr.com/7546/15338809933_482f92ea76_z.jpg)
+![](/images/nishikidon2.jpg)
 
 既然是賣鮪魚的  
 就試試這道**醬酒漬黑鮪**  

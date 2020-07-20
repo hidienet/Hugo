@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹]
 
 入口即化的頂級薄和牛...  
 
-[![](https://farm9.staticflickr.com/8654/15876927427_bee80b19d1_z.jpg)](https://farm9.staticflickr.com/8654/15876927427_bee80b19d1_z.jpg)
+![](/images/ginzatst.jpg)
 
 只是加蔥黑椒同少少鹽就已經是極級的美味～  
   

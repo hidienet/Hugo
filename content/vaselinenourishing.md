@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 相比起天氣冷，我更怕乾...  
 
-[![](https://farm9.staticflickr.com/8648/16068041425_35a4c42b14_z.jpg)](https://farm9.staticflickr.com/8648/16068041425_35a4c42b14_z.jpg)
+![](/images/vaselinenourishing.jpg)
 
 雖然很喜歡玫瑰味  
 可是這兩枝C/P值實在太高  

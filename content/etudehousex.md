@@ -6,7 +6,7 @@ aliases: [ "/2014/10/masque-etude-house-i-need-you-xylitol.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-I need you to敷26個字母～XD  
+I need you to 敷26個字母～XD  
 
 ![](/images/etudehousex.jpg)
 

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 肌膚吃下的蜂皇漿…  
 
-[![](https://farm8.staticflickr.com/7537/15980732691_2f610fc885_z.jpg)](https://farm8.staticflickr.com/7537/15980732691_2f610fc885_z.jpg)
+![](/images/iiiwroyaljelly.jpg)
 
 啊！極度討厭的面膜剪裁  
 眼距位非常窄兼且眼洞開口位細  

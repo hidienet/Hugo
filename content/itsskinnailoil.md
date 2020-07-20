@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 顏色美麗又非常香的護甲油  
 
-[![](https://1.bp.blogspot.com/-7gjqZiJ4E9Y/XFbSnpi5NqI/AAAAAAAAH5c/eikLQq_nyWMGaMcbAlnfPl3y_9qZbzy6gCLcBGAs/s640/15848854731_0e2b7350bd_z.jpg)](https://1.bp.blogspot.com/-7gjqZiJ4E9Y/XFbSnpi5NqI/AAAAAAAAH5c/eikLQq_nyWMGaMcbAlnfPl3y_9qZbzy6gCLcBGAs/s1600/15848854731_0e2b7350bd_z.jpg)
+![](/images/itsskinnailoil.jpg)
 
 堅果油、牛油果油再加上vitamin E  
 很滋潤卻不會油膩膩的  

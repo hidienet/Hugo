@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 給皮膚穿上的純白婚紗  
 
-[![](https://4.bp.blogspot.com/-xXLiKrS8MpI/XE1btjmdNfI/AAAAAAAAHGg/M9aPpGV5XPgC8U5_ffYaN8T5WLEsF85RQCLcBGAs/s640/15410402862_5ca383f0b5_z.jpg)](https://4.bp.blogspot.com/-xXLiKrS8MpI/XE1btjmdNfI/AAAAAAAAHGg/M9aPpGV5XPgC8U5_ffYaN8T5WLEsF85RQCLcBGAs/s1600/15410402862_5ca383f0b5_z.jpg)
+![](/images/itsskinweddingdress.jpg)
 
 清新的橘子類氣味  
 水水的質地而且延展性超強  

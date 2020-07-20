@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 一年到尾都是蛇王的日子  
 連敷眼，也要用上有蛇毒毒的成分  
 
-[![](https://farm8.staticflickr.com/7474/15718353959_18d4df55f5_z.jpg)](https://farm8.staticflickr.com/7474/15718353959_18d4df55f5_z.jpg)
+![](/images/naturerepublicsnaytoxgel.jpg)
 
 透明的類蛇毒hydrogel mask  
 成分裡還加入明張目膽明目的杞子  

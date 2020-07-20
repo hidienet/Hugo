@@ -11,7 +11,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 而且往往會在皮膚上反映  
 鎮靜同保濕是最基本的方法  
 
-[![](https://farm8.staticflickr.com/7462/16101158416_fa2a3d8801_z.jpg)](https://farm8.staticflickr.com/7462/16101158416_fa2a3d8801_z.jpg)
+![](/images/innisfreemugwort.jpg)
 
 艾蒿，對子宮有良好的循環作用  
 原來用於肌膚上會有保濕功效  
@@ -28,4 +28,4 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 \-----------------------------------------------  
   
-延伸閱讀：[예지미인 좌훈쑥찜질패드（艾草暖暖M巾）](http://www.hidie.net/2014/01/m.html)
+延伸閱讀：[예지미인 좌훈쑥찜질패드（艾草暖暖M巾）](https://hidie.net/mugwortpad/)

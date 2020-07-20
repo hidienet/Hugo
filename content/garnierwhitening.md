@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 14天好「檸」亮白～  
 
-[![](https://farm8.staticflickr.com/7471/15688534840_9e8684456e_z.jpg)](https://farm8.staticflickr.com/7471/15688534840_9e8684456e_z.jpg)
+![](/images/garnierwhitening.jpg)
 
 檸檬味濃郁的美白+保濕mask  
 布質不算很薄而且精華滿滿  

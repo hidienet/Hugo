@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://2.bp.blogspot.com/-qQcXsFhfQzM/XE1DrVJf-wI/AAAAAAAAG_s/f9q5MNFk0LMlLN7-TBVnSVK0zwMclqJzgCLcBGAs/s640/14719848249_de660355c1_z.jpg)](https://2.bp.blogspot.com/-qQcXsFhfQzM/XE1DrVJf-wI/AAAAAAAAG_s/f9q5MNFk0LMlLN7-TBVnSVK0zwMclqJzgCLcBGAs/s1600/14719848249_de660355c1_z.jpg)
+![](/images/etudehouseu.jpg)
 
 U for unpolished rice, firming & nourishing  
 平日已知道洗米水的好處有很多  

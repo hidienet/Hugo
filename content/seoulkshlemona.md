@@ -13,7 +13,7 @@ tags : [travel - 남한・서울 (首爾), collections - 김수현, glamorous - 
 要知道韓國是個「贈品國」（咦？）  
 而lemona的event也是送了很多東西  
 
-![](/images/seoulkshlemona0.jpg)
+![](/images/seoulkshlemona.jpg)
 
 全・部・都・是・這・次・拿・回・來・的  
 很誇張對不對？（3人份）  

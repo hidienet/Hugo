@@ -11,7 +11,7 @@ tags : [glamorous - 蛋臉以外]
 但就算再護甲的卸甲水  
 一直用也會傷指甲吧  
 
-[![](https://farm8.staticflickr.com/7551/15441884243_cda79e06b4_z.jpg)](https://farm8.staticflickr.com/7551/15441884243_cda79e06b4_z.jpg)
+![](/images/itsskinnailpeeloff.jpg)
 
 所以，用這枝可以把指甲油像貼紙般撕下的base就好了  
 成分有堅果提取物、維他命E、角蛋白  

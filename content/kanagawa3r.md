@@ -36,34 +36,43 @@ tags : [flavor - 行膳積腹, flavor - 飲！, travel-日本関東東海道-相
 ![](/images/kanagawa3r4.jpg)
 
 **銀杏**  
+menu見到有就一定會嗌啦
 
 ![](/images/kanagawa3r5.jpg)
 
 **さぎもの炭火焼き（レバー）**  
-
+新鮮雞膶，毫無苦味非常好食呢！
 
 ![](/images/kanagawa3r6.jpg)
 
 GF sour
+以為好似[lemon sour](https://hidie.net/kanagawa2p/)咁會有粒粒結冰提子  
+不過都好好飲啦無藥水味㗎
 
 ![](/images/kanagawa3r7.jpg)
 
 **月見つくね**  
-
+哇哇哇呢個好好好好味  
+軟滑又香嘅雞肉同雞軟骨打成  
+再加埋濃郁又無蛋腥味嘅生蛋黃  
+人間美味呢~
 
 ![](/images/kanagawa3r8.jpg)
 
 **牛さがりの炭火焼き**  
-橫膈膜肉
+橫膈膜肉腍軟滑  
+冇咩油脂所以只剩重牛肉味，正！
 
 ![](/images/kanagawa3r9.jpg)
 
 **牛ホルモンの炭火焼き**  
-
+肥腸呢家嘢間唔時都要食吓嘅...
 
 ![](/images/kanagawa3r10.jpg)
 
-京生麩
+京生麩  
+微韌嘅燒生麩，本身無咩未道  
+但係幾得意咪叫碟食吓囉
 
 ![](/images/kanagawa3r11.jpg)
 

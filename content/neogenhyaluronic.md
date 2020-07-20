@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 又涼又乾，額頭竟然驚現四角肌膚（OMG）  
 要趕快急救急救急救皮膚  
 
-[![](https://4.bp.blogspot.com/-kj1Bmwe-Uys/XE25lS7dLrI/AAAAAAAAHvA/fqRbEfDMwMAfyPT4148mqPnsllaBScGDACLcBGAs/s640/15715809156_af6d527a7d_z.jpg)](https://4.bp.blogspot.com/-kj1Bmwe-Uys/XE25lS7dLrI/AAAAAAAAHvA/fqRbEfDMwMAfyPT4148mqPnsllaBScGDACLcBGAs/s1600/15715809156_af6d527a7d_z.jpg)
+![](/images/neogenhyaluronic.jpg)
 
 超保濕的mask是時候出動了  
 100%純棉面膜，摸上手柔軟順滑  
@@ -31,11 +31,11 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 當然，在這種救命時刻  
 直接敷是不會滿足一次KO四角肌的我  
-敷的時候面層加上了[daiso膠膜](http://www.hidie.net/2014/07/masque-daiso.html)  
-再於上面舖了[熱毛巾mask](http://www.hidie.net/2014/07/masque-franc-franc-steam-mask.html)  
+敷的時候面層加上了[daiso膠膜](https://hidie.net/daisosilicone/)  
+再於上面舖了[熱毛巾mask](https://hidie.net/francfrancsteam/)  
 密集式令皮膚超吸收外  
 最後還在去掉角膜拿掉面膜前  
-用上加紅外線方式的[導入機](http://www.hidie.net/2014/07/tools-dhc-pretico.html)  
+用上加紅外線方式的[導入機](https://hidie.net/dhcpretico/)  
 務求使精華一滴不漏地衝入肌膚內  
 是有點繁複，可為了發揮最大效果嘛  
 誰叫我之前懶了點令皮膚乾燥  

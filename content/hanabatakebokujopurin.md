@@ -7,13 +7,13 @@ tags : [flavor - 螞蟻族]
 ---
 
 要吃北海道花畑牧場的美味  
-不一定要飛去日本的  
+不一定要[飛去日本](https://hidie.net/tokyo3f/)的  
 
-[![](https://farm8.staticflickr.com/7522/15831901387_1c3b9773a4_z.jpg)](https://farm8.staticflickr.com/7522/15831901387_1c3b9773a4_z.jpg)
+![](/images/hanabatakebokujopurin.jpg)
 
 一小杯裡齊備的焦糖牛奶布甸  
 
-[![](https://farm8.staticflickr.com/7505/15395391224_04d90a3600_z.jpg)](https://farm8.staticflickr.com/7505/15395391224_04d90a3600_z.jpg)
+![](/images/hanabatakebokujopurin1.jpg)
 
 好似聖誕波波，超～ 可～ 愛～  
 要完好開成圓滾滾形狀  
@@ -27,6 +27,3 @@ tags : [flavor - 螞蟻族]
 簡直是極致的享受  
 ...如果焦糖熱吃會更美味呢！  
   
-\-----------------------------------------------  
-  
-延伸閱讀：[花畑牧場 ホットキャラメル・アイスクリーム](http://www.hidie.net/2013/10/day3_31.html)

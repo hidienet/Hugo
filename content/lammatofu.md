@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 山長水遠去南丫島，怎能不找找建興阿婆呢？  
 
-[![](https://farm9.staticflickr.com/8566/15228716334_1ce497ee48_z.jpg)](https://farm9.staticflickr.com/8566/15228716334_1ce497ee48_z.jpg)
+![](/images/lammatofu.jpg)
 
 能看得出兩碗豆花的分別嗎？  
   

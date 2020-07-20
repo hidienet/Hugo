@@ -6,9 +6,9 @@ aliases: [ "/2014/11/tools-saem-smart-auto-pore-cleanser.html" ]
 tags : [glamorous - 保養おたく]
 ---
 
-我知，我已經有部好洗得的[clarisonic](http://www.hidie.net/2014/02/tools-clarisonic-mia.html)  
+我知，我已經有部好洗得的[clarisonic](https://hidie.net/clarisonic/)  
 
-[![](https://3.bp.blogspot.com/-1xSghFrDKOY/XE21TTPkUBI/AAAAAAAAHts/hQ-GoXZjvl4SbhVgRp664ixqpU6YS6cnACLcBGAs/s640/15503990189_ce657bd530_z.jpg)](https://3.bp.blogspot.com/-1xSghFrDKOY/XE21TTPkUBI/AAAAAAAAHts/hQ-GoXZjvl4SbhVgRp664ixqpU6YS6cnACLcBGAs/s1600/15503990189_ce657bd530_z.jpg)
+![](/images/thesaemauto1.jpg)
 
 但這部真的又輕 顏色又靚  
 再加上黑之中有閃令令的很漂亮嘛  
@@ -18,7 +18,7 @@ tags : [glamorous - 保養おたく]
 「馬力」也比較不夠強勁  
 （1分鐘震動10000次）  
 
-[![](https://1.bp.blogspot.com/-JdDYbh8yN1g/XE21aJYRYGI/AAAAAAAAHt0/65Bw_Fh68-w0WfpN7BH4kiEXp9UyDqsRQCLcBGAs/s640/15691453402_1b89746e0d_z.jpg)](https://1.bp.blogspot.com/-JdDYbh8yN1g/XE21aJYRYGI/AAAAAAAAHt0/65Bw_Fh68-w0WfpN7BH4kiEXp9UyDqsRQCLcBGAs/s1600/15691453402_1b89746e0d_z.jpg)
+![](/images/thesaemauto.jpg)
 
 但刷毛較幼較長也較軟  
 （150000條刷毛呢）  

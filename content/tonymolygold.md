@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 「少林十八銅人！」  
 
-[![](https://farm9.staticflickr.com/8573/15885246216_3ece680c9d_z.jpg)](https://farm9.staticflickr.com/8573/15885246216_3ece680c9d_z.jpg)
+![](/images/tonymolygold.jpg)
 
 24K金加蝸牛黏液、魚子醬同蜂蜜  
 內含100ppm純金，能賦予肌膚活力增加彈性  

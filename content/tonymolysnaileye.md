@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 不可以因為乾燥天氣令眼底肌膚迅速老化  
 
-[![](https://4.bp.blogspot.com/-3FDmnk8kAZU/XE2-zMmotZI/AAAAAAAAHxw/aJMvJtisl0UNfsjWnz5i3Q29wSfuq0GKgCLcBGAs/s640/15614241247_d9f000ba36_z.jpg)](https://4.bp.blogspot.com/-3FDmnk8kAZU/XE2-zMmotZI/AAAAAAAAHxw/aJMvJtisl0UNfsjWnz5i3Q29wSfuq0GKgCLcBGAs/s1600/15614241247_d9f000ba36_z.jpg)
+![](/images/tonymolysnaileye.jpg)
 
 緊貼肌膚的厚厚hydrogel mask  
 以蝸牛成分滋養肌膚同增加彈性  

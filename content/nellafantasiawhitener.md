@@ -8,10 +8,10 @@ tags : [glamorous - 蛋臉以外]
 
 由年頭到年尾，也是喜歡白色肌膚的自己  
 
-[![](https://farm8.staticflickr.com/7475/15856145955_04d14ebaa3_z.jpg)](https://farm8.staticflickr.com/7475/15856145955_04d14ebaa3_z.jpg)
+![](/images/nellafantasiawhitener.jpg)
 
 （哈哈～ 見到色白cream又入手就是）  
-這品牌之前買過[黑頭massage](http://www.hidie.net/2014/07/massage-nella-fantasia-pore-jelly-pop.html)不錯用的說  
+這品牌之前買過[黑頭massage](https://hidie.net/nellafantasia/)不錯用的說  
 而這枝色白cream也沒有令我失望  
 吸收很快，有輕度保濕功效  
 效果也能持續半天  

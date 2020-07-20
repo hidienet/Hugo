@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 面部輪廓在睡夢中悄悄地收緊了  
 
-[![](https://farm8.staticflickr.com/7541/15805257147_4be427c5d4_z.jpg)](https://farm8.staticflickr.com/7541/15805257147_4be427c5d4_z.jpg)
+![](/images/onllifting.jpg)
 
 淺士多啤梨奶顏色的watery gel狀  
 水水狀的質地來自水溶性發酵花草水  

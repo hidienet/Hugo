@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 再加上富有營養的燕麥  
 就全都放在乾旱的面上吧～  
 
-[![](https://4.bp.blogspot.com/-rim42xm02jQ/XE21HyzBhoI/AAAAAAAAHto/9Kr4hk0S0T4sdC7bkc6tGExfoGBPVXaqACLcBGAs/s640/11151114015_94edfea9f2_z.jpg)](https://4.bp.blogspot.com/-rim42xm02jQ/XE21HyzBhoI/AAAAAAAAHto/9Kr4hk0S0T4sdC7bkc6tGExfoGBPVXaqACLcBGAs/s1600/11151114015_94edfea9f2_z.jpg)
+![](/images/tcfsgreenpack.jpg)
 
 一個mask可以用2-3次  
 cream狀的面膜裡面有綠色的粒子  

@@ -11,20 +11,20 @@ tags : [flavor - 行膳積腹]
 是把圍繞住我的毛公仔咕𠱸等拋走  
 （人人也將它們攬攬錫錫，很髒）  
 
-[![](https://farm8.staticflickr.com/7575/16100452811_d9033abac9_z.jpg)](https://farm8.staticflickr.com/7575/16100452811_d9033abac9_z.jpg)
+![](/images/izumikumamoto1.jpg)
 
 還以為主題café的就只是賣樣子  
 不過這餐廳除了熊本個熊樣  
 食物也不錯吃喔（這是izumi kitchen啦！）  
 
-[![](https://farm9.staticflickr.com/8671/15915085600_09ab05caef_z.jpg)](https://farm9.staticflickr.com/8671/15915085600_09ab05caef_z.jpg)
+![](/images/izumikumamoto2.jpg)
 
 難得一次會喝的**忌廉湯**（沒有選擇只有一款湯）  
 沒有重油味同麵粉的味道  
 不會黏成一舊舊也不會太稀像水一樣  
 濃淡適中，不錯不錯耶  
 
-[![](https://farm8.staticflickr.com/7488/15916288089_ced394dbe1_z.jpg)](https://farm8.staticflickr.com/7488/15916288089_ced394dbe1_z.jpg)
+![](/images/izumikumamoto3.jpg)
 
 **吉列豬扒奄列咖喱飯**  
 食物都是有くまモン的樣子  
@@ -36,7 +36,7 @@ tags : [flavor - 行膳積腹]
 咖喱就是一般濃郁的日式咖喱  
 飯就是白飯，熊樣是芝士提子乾同車厘茄  
 
-[![](https://farm8.staticflickr.com/7466/16101640422_62e7065c86_z.jpg)](https://farm8.staticflickr.com/7466/16101640422_62e7065c86_z.jpg)
+![](/images/izumikumamoto.jpg)
 
 **太陽蛋炸雞飯**  
 哈哈～ 有生菜白芝麻醋沙律  
@@ -47,15 +47,15 @@ tags : [flavor - 行膳積腹]
 可惜鹹了些，配飯就剛剛好  
 有了紫菜maskくまモン又變回黑熊  
 
-[![](https://farm8.staticflickr.com/7479/16100451811_520ccf90b6_z.jpg)](https://farm8.staticflickr.com/7479/16100451811_520ccf90b6_z.jpg)
+![](/images/izumikumamoto4.jpg)
 
 不要玩食物  
 
-[![](https://farm8.staticflickr.com/7560/16102363355_86c6de7749_z.jpg)](https://farm8.staticflickr.com/7560/16102363355_86c6de7749_z.jpg)
+![](/images/izumikumamoto5.jpg)
 
 哈哈哈，虐待牠真的好好玩  
 
-[![](https://farm8.staticflickr.com/7579/16101639702_5202b3ff10_z.jpg)](https://farm8.staticflickr.com/7579/16101639702_5202b3ff10_z.jpg)
+![](/images/izumikumamoto6.jpg)
 
 yeah！dessert time～  
 牛奶雪糕 x 有紅豆白玉的牛奶雪糕  
@@ -63,7 +63,7 @@ yeah！dessert time～
 紅豆甜，白玉韌韌我很喜歡  
 吃完把兩隻熊card仔帶回做書籤  
 
-[![](https://farm9.staticflickr.com/8600/15482905483_3ee6035f78_z.jpg)](https://farm9.staticflickr.com/8600/15482905483_3ee6035f78_z.jpg)
+![](/images/izumikumamoto7.jpg)
 
 另，問店員哥仔拿了一套四張的餐紙 XD  
 （但也不覺得這隻東西有那裡可愛耶...）  

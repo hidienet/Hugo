@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 天氣乾，皮膚中最易受影響之一會是眼底吧  
 
-[![](https://2.bp.blogspot.com/-6_xKmZFHDog/XE24t-qg4RI/AAAAAAAAHus/LUG-23fL-0AF8Q7PJarKPc13nvLytj3mwCLcBGAs/s640/15118151894_c0513d330c_z.jpg)](https://2.bp.blogspot.com/-6_xKmZFHDog/XE24t-qg4RI/AAAAAAAAHus/LUG-23fL-0AF8Q7PJarKPc13nvLytj3mwCLcBGAs/s1600/15118151894_c0513d330c_z.jpg)
+![](/images/naturerepublicsnaileye.jpg)
 
 10,000ppm蝸牛精華的hydrogel mask  
 滑滑的水凝材質非常貼服眼底  

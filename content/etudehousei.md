@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://1.bp.blogspot.com/-hDDW4KX9Kws/XExte9-DQNI/AAAAAAAAG6w/A7fiy-H6SKc1fz3qLB9leX_5XwFuZrWIwCLcBGAs/s640/14905839962_edf74b660e_z.jpg)](https://1.bp.blogspot.com/-hDDW4KX9Kws/XExte9-DQNI/AAAAAAAAG6w/A7fiy-H6SKc1fz3qLB9leX_5XwFuZrWIwCLcBGAs/s1600/14905839962_edf74b660e_z.jpg)
+![](/images/etudehousei.jpg)
 
 I for immortelle, energizing & nourishing  
 對於蠟菊，我第一時間是想起L'occitane XDDD  

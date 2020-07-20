@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 血氣肌膚的「夠蔘行動」！  
 
-[![](https://farm8.staticflickr.com/7529/16147203345_aae2d2942a_z.jpg)](https://farm8.staticflickr.com/7529/16147203345_aae2d2942a_z.jpg)
+![](/images/foodaholicredginseng.jpg)
 
 面膜的紅蔘味超爆濃郁  
 3D剪裁中間有車痕，整塊就是很貼面  

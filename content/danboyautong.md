@@ -6,6 +6,6 @@ aliases: [ "/2014/12/danbo-mini-x-mtr.html" ]
 tags : [collections - danbo]
 ---
 
-[![](http://farm3.staticflickr.com/2876/12245492836_3c8bc7cc21_z.jpg)](http://farm3.staticflickr.com/2876/12245492836_3c8bc7cc21_z.jpg)
+![](/images/danboyautong.jpg)
 
 這滴不是汗，是油～

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://1.bp.blogspot.com/-wAJUmfy1SOI/XExyht3eSmI/AAAAAAAAG88/PGA6xqd3XyUWygC2BaQ98sLwBxlgkWZvwCLcBGAs/s640/14903128131_7ecda40628_z.jpg)](https://1.bp.blogspot.com/-wAJUmfy1SOI/XExyht3eSmI/AAAAAAAAG88/PGA6xqd3XyUWygC2BaQ98sLwBxlgkWZvwCLcBGAs/s1600/14903128131_7ecda40628_z.jpg)
+![](/images/etudehousen.jpg)
 
 N for noni, revitalizing  
 未試飲過對身體有多種益處的noni juice  

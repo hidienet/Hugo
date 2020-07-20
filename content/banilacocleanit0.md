@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 好洗得的卸妝膏～  
 
-[![](https://3.bp.blogspot.com/--IKIQfNrcjc/XE1O8y1TU1I/AAAAAAAAHD0/3x-Rn93YZII8f9EY0OeZgX_C-W6pw3GVwCLcBGAs/s640/14585442195_91041f6aab_z.jpg)](https://3.bp.blogspot.com/--IKIQfNrcjc/XE1O8y1TU1I/AAAAAAAAHD0/3x-Rn93YZII8f9EY0OeZgX_C-W6pw3GVwCLcBGAs/s1600/14585442195_91041f6aab_z.jpg)
+![](/images/banilacocleanit0.jpg)
 
 油膏狀，乾手拿取直接上面  
 再過水乳化然後沖洗  

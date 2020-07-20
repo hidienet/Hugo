@@ -3,10 +3,10 @@ title: '[白狼365] Day4：好天放雞'
 date: 2015-01-04T12:00:00.000+08:00
 draft: false
 aliases: [ "/2015/01/365-day4.html" ]
-tags : [collections - zaku II 白狼・365 project]
+tags : [collections - zaku]
 ---
 
-[![](https://farm8.staticflickr.com/7565/15923177460_bb994bb101_z.jpg)](https://farm8.staticflickr.com/7565/15923177460_bb994bb101_z.jpg)
+![](/images/zaku004.jpg)
 
 我好鍾意走地雞  
 去到世界各地都要放雞走走地  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://3.bp.blogspot.com/-xsXUxhGbbJw/XE1F6ttispI/AAAAAAAAHBM/Or6orxLTy_g-DctuiBswerAytiZDUEO-ACLcBGAs/s640/14883490736_2349299dac_z.jpg)](https://3.bp.blogspot.com/-xsXUxhGbbJw/XE1F6ttispI/AAAAAAAAHBM/Or6orxLTy_g-DctuiBswerAytiZDUEO-ACLcBGAs/s1600/14883490736_2349299dac_z.jpg)
+![](/images/etudehousey.jpg)
 
 Y for yogurt strawberry, soft & moist  
 面膜偏小卻爆多精華  

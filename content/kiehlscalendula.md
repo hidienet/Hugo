@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 話說肌膚敏感時  
 用skin care需要特別小心  
 
-[![](https://2.bp.blogspot.com/-c83CavWoiR8/XExtEoeVx0I/AAAAAAAAG6k/nJsiXXy_uEEB6GEV9_sCctNfQLnZuxQ0gCLcBGAs/s640/15037359528_9735af5981_z.jpg)](https://2.bp.blogspot.com/-c83CavWoiR8/XExtEoeVx0I/AAAAAAAAG6k/nJsiXXy_uEEB6GEV9_sCctNfQLnZuxQ0gCLcBGAs/s1600/15037359528_9735af5981_z.jpg)
+![](/images/kiehlscalendula.jpg)
 
 有著像喝花茶般的香味  
 是具收斂舒緩功效的金盞花  

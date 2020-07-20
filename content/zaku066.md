@@ -3,7 +3,7 @@ title: '[白狼365] Day66：肉じゃが'
 date: 2015-03-07T12:00:00.000+08:00
 draft: false
 aliases: [ "/2015/03/365-day66.html" ]
-tags : [collections - zaku II 白狼・365 project]
+tags : [collections - zaku]
 ---
 
 ![](/images/zaku066a.jpg)

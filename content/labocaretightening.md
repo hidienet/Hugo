@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 毛孔已經變得很細，肌膚很緊緻  
 不過這不代表我的毛孔緊縮工程會完結！  
 
-[![](https://farm8.staticflickr.com/7576/16019373922_4b85089361_z.jpg)](https://farm8.staticflickr.com/7576/16019373922_4b85089361_z.jpg)
+![](/images/labocaretightening.jpg)
 
 好過癮的面膜（哈）  
 濕濕的布中滲滿泥漿  
@@ -30,20 +30,14 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 原本的濕布面膜，變硬了成為石膏膜  
 將「面具」剝下後再輕輕以水抹淨或者過水  
 
-###   
 
-wow～ 超乾淨！非常清爽
-
-而且泥本身都有收緊作用
-
-輪廓同毛孔都緊緻了
-
-「噢～ 毛孔是甚麼？能吃的嗎？」（眾毆）
-
-又乾淨又能將毛孔隱藏得微細細
-
+wow～ 超乾淨！非常清爽  
+而且泥本身都有收緊作用  
+輪廓同毛孔都緊緻了  
+「噢～ 毛孔是甚麼？能吃的嗎？」（眾毆）  
+又乾淨又能將毛孔隱藏得微細細  
 簡直是完美陶瓷肌，GET！  
   
 \-----------------------------------------------  
   
-延伸閱讀：[23 years old air-laynic pore mask](http://www.hidie.net/2014/12/masque-23-years-old-air-laynic-pore.html)
+延伸閱讀：[23 years old air-laynic pore mask](https://hidie.net/twentythreeyearsoldpore/)

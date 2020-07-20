@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 很喜歡入手色白cream（掩面）  
 
-[![](https://farm9.staticflickr.com/8621/15669849377_79daec442c_z.jpg)](https://farm9.staticflickr.com/8621/15669849377_79daec442c_z.jpg)
+![](/images/medihealtpomagic.jpg)
 
 純白色加上微微滋潤感  
 然而也定不住這類似化學品的氣味  

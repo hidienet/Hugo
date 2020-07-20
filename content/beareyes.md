@@ -8,11 +8,11 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 太可愛的東西就是那麼吸引...（心）  
 
-[![](https://farm8.staticflickr.com/7468/15717834670_03735ecee1_z.jpg)](https://farm8.staticflickr.com/7468/15717834670_03735ecee1_z.jpg)
+![](/images/beareyes.jpg)
 
 哈哈，熊熊超人～  
 
-[![](https://farm8.staticflickr.com/7512/15285499703_6a6cab0610_z.jpg)](https://farm8.staticflickr.com/7512/15285499703_6a6cab0610_z.jpg)
+![](/images/beareyes1.jpg)
 
 還有漫畫說明用途  
   

@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 不能確定自己有多喜歡刷牙  
 
-[![](https://2.bp.blogspot.com/-BK3zSv6vCRc/XFbRQRNh45I/AAAAAAAAH4Q/W8rtaZW-q3IgLByhkb5DZPFkRXmXRsRFACLcBGAs/s640/15641260000_e67fd48597_z.jpg)](https://2.bp.blogspot.com/-BK3zSv6vCRc/XFbRQRNh45I/AAAAAAAAH4Q/W8rtaZW-q3IgLByhkb5DZPFkRXmXRsRFACLcBGAs/s1600/15641260000_e67fd48597_z.jpg)
+![](/images/oralbpulsonic.jpg)
 
 只知道自己很鍾愛電器（笑）  
 而且在充電裝的電動牙刷中這枝真的很纖巧  

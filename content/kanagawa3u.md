@@ -16,6 +16,10 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 江戶風味
 
+![](/images/kanagawa3u6.jpg)
+
+110
+
 ![](/images/kanagawa3u3.jpg)
 
 夠鐘喇... 拎埋行李就搭京急去機場（羽田空港）  

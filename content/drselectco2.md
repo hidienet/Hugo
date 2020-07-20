@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 （保濕注氧活化美白等多種功效）  
 這次又試試另一種「玩法」  
 
-[![](https://farm9.staticflickr.com/8651/15882034588_20ddf339bb_z.jpg)](https://farm9.staticflickr.com/8651/15882034588_20ddf339bb_z.jpg)
+![](/images/drselectco2.jpg)
 
 gel pack，一次過打開1、2劑  
 放於容器內攪拌就會釋出ふわふわ的泡泡  

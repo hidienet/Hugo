@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 差不多踏入聖誕才有得賣  
 
-[![](https://farm8.staticflickr.com/7570/15834190807_14da949c71_z.jpg)](https://farm8.staticflickr.com/7570/15834190807_14da949c71_z.jpg)
+![](/images/nestlechoclaitchips.jpg)
 
 不知道為甚麼但每逢聖誕就想吃這個  
 扭扭樣斜花紋似聖誕stick？  

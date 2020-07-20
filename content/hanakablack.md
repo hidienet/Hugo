@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 熱炭拿去babykill；凍炭，用來敷面～  
 
-[![](https://farm8.staticflickr.com/7562/15704586379_5a6ab4764c_z.jpg)](https://farm8.staticflickr.com/7562/15704586379_5a6ab4764c_z.jpg)
+![](/images/hanakablack.jpg)
 
 樣子好可愛（笑）  
 炭有清潔控油作用  

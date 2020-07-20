@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 不論任何天氣，美白都是不能少的  
 
-[![](https://4.bp.blogspot.com/-thnbbFUEjlw/XFbKo_uj9QI/AAAAAAAAH3c/-Q6FUmjD0C889n0uPdryXXKhc775JBGVACLcBGAs/s640/15632846599_06c5fc1fde_z.jpg)](https://4.bp.blogspot.com/-thnbbFUEjlw/XFbKo_uj9QI/AAAAAAAAH3c/-Q6FUmjD0C889n0uPdryXXKhc775JBGVACLcBGAs/s1600/15632846599_06c5fc1fde_z.jpg)
+![](/images/innisfreelemonlime.jpg)
 
 lemonlime，氣味很酸的東西就是  
 可惜這mask聞起來像檸檬味的清潔劑般（汗）  

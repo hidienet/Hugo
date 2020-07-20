@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 不論面膜的價格如何  
 能有功效的才有價值  
 
-[![](https://3.bp.blogspot.com/-ecLSB9__D84/XE1cYq5CcdI/AAAAAAAAHG0/S0P6pyJcguY_DvjcprZBCv695j5SgU0WQCLcBGAs/s640/10504089466_5162334d52_z.jpg)](https://3.bp.blogspot.com/-ecLSB9__D84/XE1cYq5CcdI/AAAAAAAAHG0/S0P6pyJcguY_DvjcprZBCv695j5SgU0WQCLcBGAs/s1600/10504089466_5162334d52_z.jpg)
+![](/images/youngskinroyaljelly.jpg)
 
 蘊含蜂皇漿的保濕mask  
 21g水水的精華都藏在薄薄綿紙裡  

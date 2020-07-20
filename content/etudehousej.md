@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://4.bp.blogspot.com/-ehQ24XYgasI/XExupV9GYnI/AAAAAAAAG7M/188xa0C6fKU3OHGFPNmEsJqcmjwUq9uQACLcBGAs/s640/14719578628_e52900059f_z.jpg)](https://4.bp.blogspot.com/-ehQ24XYgasI/XExupV9GYnI/AAAAAAAAG7M/188xa0C6fKU3OHGFPNmEsJqcmjwUq9uQACLcBGAs/s1600/14719578628_e52900059f_z.jpg)
+![](/images/etudehousej.jpg)
 
 J for job's teas, revitalizing & smoothing  
 平日薏米給我的感覺是去水腫  

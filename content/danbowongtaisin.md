@@ -6,6 +6,6 @@ aliases: [ "/2014/11/danbo-mini-x-mtr_17.html" ]
 tags : [collections - danbo]
 ---
 
-[![](https://2.bp.blogspot.com/-aE7FUD3TVvU/XFbEwPWesuI/AAAAAAAAH2Q/Z3wh_gEZqf0lO4YSsub4-6gReU1hstvWgCLcBGAs/s640/1.jpg)](https://2.bp.blogspot.com/-aE7FUD3TVvU/XFbEwPWesuI/AAAAAAAAH2Q/Z3wh_gEZqf0lO4YSsub4-6gReU1hstvWgCLcBGAs/s1600/1.jpg)
+![](/images/danbowongtaisin.jpg)
 
 求枝好籤

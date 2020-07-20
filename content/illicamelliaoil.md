@@ -6,10 +6,10 @@ aliases: [ "/2014/12/masque-illi-camellia-oil-nourishing-mask.html" ]
 tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 ---
 
-為甚麼那些英文都是錯的？ \[[相關舊文](http://www.hidie.net/2014/11/masque-illi-green-tea-brightening-mask.html)\]  
+為甚麼那些英文都是[錯的](https://hidie.net/illigreentea/)？  
 （nourishing是滋養；intensive moisture是深層保濕喔～）  
 
-[![](https://farm9.staticflickr.com/8584/16038252961_e4f77bf346_z.jpg)](https://farm9.staticflickr.com/8584/16038252961_e4f77bf346_z.jpg)
+![](/images/illicamelliaoil.jpg)
 
 蘊含富營養的山茶花油  
 配合大豆同不能少的人參  
@@ -32,4 +32,4 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 \-----------------------------------------------  
   
-延伸閱讀：[\[hair\] 大島椿 ヘアオイル](http://www.hidie.net/2014/03/hair.html)
+延伸閱讀：[\[hair\] 大島椿 ヘアオイル](https://hidie.net/tsubakihair/)

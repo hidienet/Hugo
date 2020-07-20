@@ -253,7 +253,7 @@ craft beer真係魅力沒法擋
 
 ![](/images/kanagawa3u3.jpg)
 
-拎埋行李就搭京急去[機場](https://hidie.net/kanagawa3/)  
+拎埋行李就搭京急去[機場](https://hidie.net/kanagawa3u/)  
 
 ![](/images/kanagawa3u.jpg)
 

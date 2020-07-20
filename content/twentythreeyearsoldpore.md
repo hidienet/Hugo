@@ -8,9 +8,9 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對付毛孔的強勁武器（！）  
 
-[![](https://farm8.staticflickr.com/7541/15751832077_36ab7802c5_z.jpg)](https://farm8.staticflickr.com/7541/15751832077_36ab7802c5_z.jpg)
+![](/images/twentythreeyearsoldpore.jpg)
 
-同之前用過的co2 mask用法基本上無異 \[[相關舊文](http://www.hidie.net/2014/05/masque-skin-carboxy-system-co2-mask.html)\]  
+同之前用過的[co2 mask](https://hidie.net/co2mask/)用法基本上無異  
 也是把針筒型的gel加上碳酸mask  
 以密集式注氧於肌膚中  
 從而強化皮膚同收細毛孔  
@@ -30,7 +30,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 還不夠...  
 
-[![](https://farm9.staticflickr.com/8663/15751837197_5b3473c4a1_z.jpg)](https://farm9.staticflickr.com/8663/15751837197_5b3473c4a1_z.jpg)
+![](/images/twentythreeyearsoldpore1.jpg)
 
 面膜set送了這次vitamin shot c  
 一半gel狀透明質酸原液  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對！我就是要連敷26個字母～XD  
 
-[![](https://2.bp.blogspot.com/-_5hPAB6BltY/XExsX8QIteI/AAAAAAAAG6I/KVaq3a5s_x484eG6oKWRw6u0DLQeThNZgCLcBGAs/s640/14896755572_0e44a9b43e_z.jpg)](https://2.bp.blogspot.com/-_5hPAB6BltY/XExsX8QIteI/AAAAAAAAG6I/KVaq3a5s_x484eG6oKWRw6u0DLQeThNZgCLcBGAs/s1600/14896755572_0e44a9b43e_z.jpg)
+![](/images/etudehouseg.jpg)
 
 G for green tea, moisture & relief  
 綠茶給我的感覺是有豐富的兒茶素  

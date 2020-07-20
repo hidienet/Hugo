@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 美味的朱古力配上happy friday  
 這世界實在太美好了吧～  
 
-[![](https://farm8.staticflickr.com/7309/9718416642_c73f9bee75_z.jpg)](https://farm8.staticflickr.com/7309/9718416642_c73f9bee75_z.jpg)
+![](/images/thomashaas.jpg)
 
 (自行配對啦～)  
 cognac truffle/ salted caramel truffle/ chocolate caramels (merlot)/ marc de champagne truffle/ earl grey tea (dark chocolate)/ chocolate paired with cassis/ chocolate paired with passion fruit/ 83% cocoa/ 79% cocoa/ aztec/ palet au cafe/ chocolate with crispy hazelnut  

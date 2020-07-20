@@ -11,7 +11,7 @@ tags : [glamorous - 蛋臉以外]
 所以腳踭位會有點乾乾的  
 還是用些保濕cream塗一下吧  
 
-[![](https://4.bp.blogspot.com/-LNgZ7FI_1Pg/XExrkuc16nI/AAAAAAAAG5c/AhORbLJIMysFEE0ZcNM3G3lT76IjK3B1QCLcBGAs/s640/15035725228_9a5fb6a40d_z.jpg)](https://4.bp.blogspot.com/-LNgZ7FI_1Pg/XExrkuc16nI/AAAAAAAAG5c/AhORbLJIMysFEE0ZcNM3G3lT76IjK3B1QCLcBGAs/s1600/15035725228_9a5fb6a40d_z.jpg)
+![](/images/toplan.jpg)
 
 小小的一罐盒子也很可愛  
 不過拿下盒子後就…  

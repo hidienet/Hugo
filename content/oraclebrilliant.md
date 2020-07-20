@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 不能停止的美白進程  
 
-[![](https://3.bp.blogspot.com/-awhkLSvmkTc/XE1TQIgd3SI/AAAAAAAAHFs/W8ZfV3A-YTAyrlwB3qzlp7Cxb4oM_biEwCLcBGAs/s640/15407556111_e4b8b814f9_z.jpg)](https://3.bp.blogspot.com/-awhkLSvmkTc/XE1TQIgd3SI/AAAAAAAAHFs/W8ZfV3A-YTAyrlwB3qzlp7Cxb4oM_biEwCLcBGAs/s1600/15407556111_e4b8b814f9_z.jpg)
+![](/images/oraclebrilliant.jpg)
 
 以熊果素、珍珠同維他命C成分美白  
 也添加了沒有標明是甚麼的保濕因子  

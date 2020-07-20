@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 很愛質地清爽的泰國護膚品  
 
-[![](https://4.bp.blogspot.com/-O5VwcyBUYlU/XE1ODvUAkRI/AAAAAAAAHDY/lSfrGpYIJbgAZCe6sm-GYkEY8Lyn3giZQCLcBGAs/s640/15205099799_4ee04c875f_z.jpg)](https://4.bp.blogspot.com/-O5VwcyBUYlU/XE1ODvUAkRI/AAAAAAAAHDY/lSfrGpYIJbgAZCe6sm-GYkEY8Lyn3giZQCLcBGAs/s1600/15205099799_4ee04c875f_z.jpg)
+![](/images/voodooday.jpg)
 
 SPF50的蛇毒防曬日霜  
 不黏膩延展性高容易推開  

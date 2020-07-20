@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 保濕加滋潤，水分一滴都不能在皮膚裡偷走  
 
-[![](https://2.bp.blogspot.com/-PxnGMMoMKLI/XE1T2bUfIpI/AAAAAAAAHGA/s-lPzfE3SNEItzfOvSJsK1lALm7ut3d2QCLcBGAs/s640/9999846103_d95198af65_z.jpg)](https://2.bp.blogspot.com/-PxnGMMoMKLI/XE1T2bUfIpI/AAAAAAAAHGA/s-lPzfE3SNEItzfOvSJsK1lALm7ut3d2QCLcBGAs/s1600/9999846103_d95198af65_z.jpg)
+![](/images/mbdtsubaki.jpg)
 
 超～ 薄～ 的面膜紙  
 面膜濕濕的很貼面（鼻翼兩旁就...）  

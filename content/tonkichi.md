@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹]
 朋友說有點喉嚨痛...  
 我們當然要以毒攻毒啦（魔鬼）  
 
-[![](https://farm9.staticflickr.com/8678/16008703402_4147a47582_z.jpg)](https://farm9.staticflickr.com/8678/16008703402_4147a47582_z.jpg)
+![](/images/tonkichi.jpg)
 
 脆口不油膩（油已經吞落肚）  
 最好吃當然是外脆內juicy的豬柳  

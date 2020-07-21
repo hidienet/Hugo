@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 飲用的綠茶同皮膚吸收的綠茶一樣也是3D的（哈）  
 
-[![](https://farm8.staticflickr.com/7510/16326507496_1ce0767ba0_z.jpg)](https://farm8.staticflickr.com/7510/16326507496_1ce0767ba0_z.jpg)
+![](/images/foodaholicgreentea.jpg)
 
 沒有特定敷甚麼的日子  
 就給皮膚喝能保濕抗氧的綠茶  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 就算再懶，卸眼妝也要很徹底  
 
-[![](https://farm8.staticflickr.com/7352/16281520908_63e0732065_z.jpg)](https://farm8.staticflickr.com/7352/16281520908_63e0732065_z.jpg)
+![](/images/kissmelashoff.jpg)
 
 嫌用眼唇卸妝液敷住不舒服又不夠快  
 不如試這種mascara型的mascara remover  

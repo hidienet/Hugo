@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 以維他命C、E同ferulic acid預防肌膚老化  
 
-[![](https://farm8.staticflickr.com/7437/16467851711_439a0219fb_z.jpg)](https://farm8.staticflickr.com/7437/16467851711_439a0219fb_z.jpg)
+![](/images/skinceuticalsceferulic.jpg)
 
 60ml，很大的一枝（用了半年才用得完）  
 維他命C不耐光，要用深色玻璃樽好好保護  

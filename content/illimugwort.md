@@ -11,7 +11,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 為免皮膚也變得「熱情」  
 還是敷上具有適度鎮靜功能的面膜吧  
 
-[![](https://farm8.staticflickr.com/7319/15833651564_8ed5d3eb03_z.jpg)](https://farm8.staticflickr.com/7319/15833651564_8ed5d3eb03_z.jpg)
+![](/images/illimugwort.jpg)
 
 含有艾蒿、白樺茸、人參等成分  
 能令鎮靜肌膚同時增加水分同活力  

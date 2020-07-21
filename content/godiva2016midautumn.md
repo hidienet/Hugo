@@ -19,7 +19,7 @@ tags : [flavor - 螞蟻族]
 要cake當然有cake  
 係多個moon字响前面囉呵呵  
 
-[![](https://c1.staticflickr.com/9/8201/29314025174_de305cb907_z.jpg)](https://c1.staticflickr.com/9/8201/29314025174_de305cb907_z.jpg)
+![](/images/godiva2016midautumn.jpg)
 
 為求無咁樣衰，咪諗住拎盒無咁mooncake樣咪算囉  
 （係㗎喇係咁死cheap㗎喇新年D嘢咪又係咁）  

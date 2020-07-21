@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 要食到米芝蓮星級甜品大師鎧塚俊彦嘅「精品」  
 唔一定要訂位預約同高消費嘅...  
 
-[![](https://c1.staticflickr.com/5/4627/39844279034_facec95dc6_z.jpg)](https://c1.staticflickr.com/5/4627/39844279034_facec95dc6_z.jpg)
+![](/images/misdotoshi.jpg)
 
 去ミスタードーナツ（mister donut）就得喇！  
 係啦，我知我知唔係佢整嘅  
@@ -28,7 +28,7 @@ misdo meets Toshi Yoroizuka Chocolate Collection
   
 已經好美味？未算...  
 
-[![](https://c1.staticflickr.com/5/4660/25684142117_3a524fc300_z.jpg)](https://c1.staticflickr.com/5/4660/25684142117_3a524fc300_z.jpg)
+![](/images/misdotoshi1.jpg)
 
 （咬～～～）  
 呃呃呃，仲要有餡㗎該煨！  

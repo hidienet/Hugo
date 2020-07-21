@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 100ml超大容量的精華素  
 
-[![](https://farm9.staticflickr.com/8682/16052424283_907792a225_z.jpg)](https://farm9.staticflickr.com/8682/16052424283_907792a225_z.jpg)
+![](/images/skin1004centellaasiatica.jpg)
 
 100% centella asiatica成分  
 馬達加斯加積雪草（老虎草）  

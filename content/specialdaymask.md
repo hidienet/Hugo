@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 special day用的eye mask？  
 
-[![](https://farm8.staticflickr.com/7533/16185720575_7f9989b9f8_z.jpg)](https://farm8.staticflickr.com/7533/16185720575_7f9989b9f8_z.jpg)
+![](/images/specialdaymask.jpg)
 
 hydrogel mask質地順滑貼服  
 超大塊的眼膜，放在眼底亦同時敷顴骨位  

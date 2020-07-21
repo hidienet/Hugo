@@ -8,10 +8,10 @@ tags : [glamorous - 保養おたく, glamorous - 蛋臉以外]
 
 用得貴不如用得好  
 
-[![](https://farm9.staticflickr.com/8678/15765929164_9dfe361d2e_z.jpg)](https://farm9.staticflickr.com/8678/15765929164_9dfe361d2e_z.jpg)
+![](/images/niveacreme.jpg)
 
 其實一罐平價的nivea  
-也可以比美貴婦級[la mer](http://www.hidie.net/2014/01/moisturizer-la-mer-creme-de-la-mer.html)（甚至更好～）  
+也可以比美貴婦級[la mer](https://hidie.net/cremedelamer/)（甚至更好～）  
 最基本用法的塗面塗身體滋潤肌膚  
   
 進階些可以在吹頭前塗一點於髮尾才吹乾  

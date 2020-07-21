@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 我果然賣懶是買到年卅晚...  
 （懶這東西我常賣常有，下年初一就啟市了，真「勤力」！）  
 
-[![](https://farm8.staticflickr.com/7416/16373322657_9bf21e56b8_z.jpg)](https://farm8.staticflickr.com/7416/16373322657_9bf21e56b8_z.jpg)
+![](/images/labelyoungcreammist.jpg)
 
 帶花香的lotion x cream  
 在瓶身看到有點杰的樣子  

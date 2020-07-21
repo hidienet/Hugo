@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族]
 這不是西式的lava cake  
 襯湯圓節就吃些應節食物  
 
-[![](https://farm9.staticflickr.com/8659/16723055765_82335a5957_z.jpg)](https://farm9.staticflickr.com/8659/16723055765_82335a5957_z.jpg)
+![](/images/xiaonanguo.jpg)
 
 好喜慶的顏色呢～  
 上海甜品之一，紅棗包住糯米湯圓  

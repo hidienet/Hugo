@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 3 step鼻貼，為甚麼都那麼好用呢？  
 
-[![](https://farm8.staticflickr.com/7281/16407961705_48233eb702_z.jpg)](https://farm8.staticflickr.com/7281/16407961705_48233eb702_z.jpg)
+![](/images/skin1004zombienose.jpg)
 
 step 1沒有酸味的溶解劑鼻貼  
 敷15-20分鐘  

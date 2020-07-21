@@ -11,14 +11,14 @@ tags : [amusement - exhibition]
 究竟會有啲咩火花？  
 等嚟自法國嘅藝術家Dr. Julia Drouhin呈現俾你聽  
 
-[![](https://c1.staticflickr.com/5/4651/39286126365_0084066f8b_z.jpg)](https://c1.staticflickr.com/5/4651/39286126365_0084066f8b_z.jpg)
+![](/images/soundofchocolate.jpg)
 
 係呀！就係玩到冇嘢玩拎舊朱古力去整隻碟出嚟  
 然後放响個黑膠碟機去播歌  
 呢首係The Beatles - I Want To Hold Your Hand  
 黑膠 x 舊歌真係好L夾  
 
-[![](https://c1.staticflickr.com/5/4655/26311516898_c198ed8ae1_z.jpg)](https://c1.staticflickr.com/5/4655/26311516898_c198ed8ae1_z.jpg)
+![](/images/soundofchocolate1.jpg)
 
 雖然佢係黑朱古力  
 不過就算行到好近好近都聞唔到佢陣除  

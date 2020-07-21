@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 發現又到lunch time  
 但忘記在之前塗防曬的時候...  
 
-[![](https://farm4.staticflickr.com/3678/19652501162_d595a8db52_z.jpg)](https://farm4.staticflickr.com/3678/19652501162_d595a8db52_z.jpg)
+![](/images/bioreuvspray.jpg)
 
 就會很感恩袋口有這枝SPF50+ PA++++超強防曬力防曬噴噴  
 加上直噴倒轉噴也可以  

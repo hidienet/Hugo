@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 好一碗滋潤身體又滋潤埋心靈嘅糖水  
   
 
-[![](https://c1.staticflickr.com/5/4400/37001307905_b5170910c2_z.jpg)](https://c1.staticflickr.com/5/4400/37001307905_b5170910c2_z.jpg)
+![](/images/leafdessert.jpg)
 
 一上枱，心裡面個os：  
 「哇！啲海帶使唔使咁大塊呀？」  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 肌膚在晚上進行修護  
 用蝸牛黏液就能加強功效  
 
-[![](https://farm9.staticflickr.com/8666/16242027572_f13beac457_z.jpg)](https://farm9.staticflickr.com/8666/16242027572_f13beac457_z.jpg)
+![](/images/naturerepublicsnail.jpg)
 
 每張紙面膜蘊含2000ppm的蝸牛黏液精華  
 能保濕修護同平復肌膚  

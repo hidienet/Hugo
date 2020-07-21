@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 有時候覺得日本水果的「甜」有點假  
 
-[![](https://farm1.staticflickr.com/272/18783326533_eba8748e27_z.jpg)](https://farm1.staticflickr.com/272/18783326533_eba8748e27_z.jpg)
+![](/images/icremeriamelon.jpg)
 
 但這個超熟卻很清甜的蜜瓜  
 瓜肉又甜又軟而且爆多汁  

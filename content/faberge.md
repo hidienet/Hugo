@@ -8,7 +8,7 @@ tags : [amusement - exhibition]
 
 到了復活節就會想起了這奢華的復活蛋～  
 
-[![](https://farm9.staticflickr.com/8698/16744883617_9379a2bf0c_z.jpg)](https://farm9.staticflickr.com/8698/16744883617_9379a2bf0c_z.jpg)
+![](/images/faberge1.jpg)
 
 以巧奪天工來形容就最適合不過  
 最聞名的復活蛋中的小模型  
@@ -17,7 +17,7 @@ tags : [amusement - exhibition]
 展覽除了精品們還有當時王室貴族的服飾  
 每樣都很精細奢華（bling bling）  
 
-[![](https://farm8.staticflickr.com/7611/16864767490_dd58381ffd_z.jpg)](https://farm8.staticflickr.com/7611/16864767490_dd58381ffd_z.jpg)
+![](/images/faberge.jpg)
 
 至於booklet，首輪(左)的是厚裝  
 有做凹凸加燙金  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 能提亮膚色保濕增加彈性改善皺紋的多合一精華  
 
-[![](https://farm8.staticflickr.com/7527/16075854530_ef188b31ae_z.jpg)](https://farm8.staticflickr.com/7527/16075854530_ef188b31ae_z.jpg)
+![](/images/sungwonmeikloutserum.jpg)
 
 白色的精華液帶有超微細閃亮粒子  
 調亮了整塊面卻不覺得難吸收  
@@ -18,7 +18,7 @@ tags : [glamorous - 保養おたく]
 比較似保濕精華多於美白精華這樣  
   
 但硬要比較的話  
-即時用後感就比[cloud-9](http://www.hidie.net/2014/10/essence-cloud-9-blanc-de-white-serum.html)好  
+即時用後感就比[cloud-9](https://hidie.net/cloud9serum/)好  
 因為粒子沒有那麼大  
 不會有強勁反光的強光效果  
   

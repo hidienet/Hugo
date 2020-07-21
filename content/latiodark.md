@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族]
 不要太甜有可可香的就可以  
 這要求一點也不過分...  
 
-[![](https://farm9.staticflickr.com/8577/16060458807_b85243cff7_z.jpg)](https://farm9.staticflickr.com/8577/16060458807_b85243cff7_z.jpg)
+![](/images/latiodark.jpg)
 
 朱古力本身的味道沒有大問題  
 平價東西不要有太高期望  

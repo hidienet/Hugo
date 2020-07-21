@@ -8,6 +8,6 @@ tags : [flavor - 螞蟻族]
 
 超粉的芋頭，脆口的糖中帶有微鹹的蔥  
 
-[![](https://farm8.staticflickr.com/7613/16119132773_e00f37b476_z.jpg)](https://farm8.staticflickr.com/7613/16119132773_e00f37b476_z.jpg)
+![](/images/sweettaro.jpg)
 
 時令加技巧就是好吃～（心）

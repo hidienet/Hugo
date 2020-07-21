@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 聽說，食用巴西莓能減肥  
 不過我是不會把面膜吃掉啦～  
 
-[![](https://farm9.staticflickr.com/8668/15565522403_abd333c29e_z.jpg)](https://farm9.staticflickr.com/8668/15565522403_abd333c29e_z.jpg)
+![](/images/innisfreeacaiberry.jpg)
 
 一片面膜含有20mg的acai berry精華  
 具有保濕同增強彈力的功效  

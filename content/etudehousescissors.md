@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 好可愛甜美的眉剪  
 看著已令心情好起來  
 
-[![](https://farm9.staticflickr.com/8615/16670936591_83bfc50ae6_z.jpg)](https://farm9.staticflickr.com/8615/16670936591_83bfc50ae6_z.jpg)
+![](/images/etudehousescissors.jpg)
 
 ...不過跟我完全不相襯（汗）  
   

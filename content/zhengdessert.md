@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 超清甜的龍眼冰！！！  
 
-[![](https://farm9.staticflickr.com/8769/17843781120_12d9e5bdb7_z.jpg)](https://farm9.staticflickr.com/8769/17843781120_12d9e5bdb7_z.jpg)
+![](/images/zhengdessert.jpg)
 
 入口即溶，好爽耶～～～～  
 配合椰果同水晶珠珠  

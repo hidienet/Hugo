@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 保濕保濕... 每天都停不了  
 
-[![](https://farm9.staticflickr.com/8621/16261671241_dfe1ff5d0f_z.jpg)](https://farm9.staticflickr.com/8621/16261671241_dfe1ff5d0f_z.jpg)
+![](/images/zenibellgreentea.jpg)
 
 綠茶能輕輕舒緩作用亦能補水  
 氣味清香，面膜精華很多很貼面  

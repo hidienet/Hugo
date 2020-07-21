@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 甜頭，就如空氣一樣...  
 
-[![](https://farm8.staticflickr.com/7431/9869977006_18436c2e71_z.jpg)](https://farm8.staticflickr.com/7431/9869977006_18436c2e71_z.jpg)
+![](/images/lewhif.jpg)
 
 分子料理的朱古力版本  
 以粉狀形態去吸入  
@@ -16,6 +16,6 @@ tags : [flavor - 螞蟻族]
 而且不是實體東西是空氣  
 所以吃完也沒有滿足感...  
 
-[![](https://farm8.staticflickr.com/7295/9870080563_674816d28b_z.jpg)](https://farm8.staticflickr.com/7295/9870080563_674816d28b_z.jpg)
+![](/images/lewhif1.jpg)
 
 包裝好像煙盒呢（哈～）

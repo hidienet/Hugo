@@ -8,7 +8,7 @@ tags : [amusement - exhibition]
 
 話說呢幅畫係佢用咗三個通宵時間畫...  
 
-[![](https://c1.staticflickr.com/1/873/41296005822_19b28b2714_z.jpg)](https://c1.staticflickr.com/1/873/41296005822_19b28b2714_z.jpg)
+![](/images/hkshingo.jpg)
 
 一堆洋紫荊同心心點點咁  
 有條擘大口嘅龍  

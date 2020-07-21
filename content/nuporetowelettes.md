@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 平靚正的落妝棉  
 
-[![](https://farm9.staticflickr.com/8677/16353391425_94bed12f0e_z.jpg)](https://farm9.staticflickr.com/8677/16353391425_94bed12f0e_z.jpg)
+![](/images/nuporetowelettes.jpg)
 
 25塊只是港幣7元多（！）  
 也沒有因為價格低廉而沒有了質素  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 三點三就是跟同事開心些牙的時間～～～  
 
-[![](https://farm1.staticflickr.com/547/19664363871_1597b65df3_z.jpg)](https://farm1.staticflickr.com/547/19664363871_1597b65df3_z.jpg)
+![](/images/lottecrunkychunch.jpg)
 
 一粒粒迷你骰仔大的朱古力  
 裡面有脆脆米  

@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 有一款很喜歡用的經典物品  
 
-[![](https://farm3.staticflickr.com/2829/9689300881_962672f793_z.jpg)](https://farm3.staticflickr.com/2829/9689300881_962672f793_z.jpg)
+![](/images/elizabetharden.jpg)
 
 令唇部即時保濕又滋潤  
 用後有微微lip gloss效果  

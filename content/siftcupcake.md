@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 走得好！祝你一路好走！！！  
 
-[![](https://c1.staticflickr.com/1/802/27240061398_a21350b7a2_z.jpg)](https://c1.staticflickr.com/1/802/27240061398_a21350b7a2_z.jpg)
+![](/images/siftcupcake.jpg)
 
 無計啦，你俾件咁好食嘅散水餅我  
 真係想唔祝福你都好難  

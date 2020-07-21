@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 國貨公司好味推薦！  
 （唔係裕華呀係瑪莎啦哈哈～）  
 
-[![](https://c1.staticflickr.com/5/4790/26897938368_13f1a22888_z.jpg)](https://c1.staticflickr.com/5/4790/26897938368_13f1a22888_z.jpg)
+![](/images/mnsfroyosorbet.jpg)
 
 （左）**3% Fat Greek Style Frozen Yogurt Honey Swirls**  
 香甜嘅蜜糖加上幼滑嘅乳酪雪糕  

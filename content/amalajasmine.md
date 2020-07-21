@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 對於有機品同化學品沒有特定的偏好  
 有功效同不會傷害皮膚的就可以  
 
-[![](https://farm8.staticflickr.com/7548/16118825500_0fd97dfefe_z.jpg)](https://farm8.staticflickr.com/7548/16118825500_0fd97dfefe_z.jpg)
+![](/images/amalajasmine.jpg)
 
 茉莉based加上其氣味的眼部精華  
 在我眼外（當然不是眼中）只覺得微微保濕  

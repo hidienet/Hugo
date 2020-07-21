@@ -10,7 +10,7 @@ tags : [glamorous - 蛋臉以外]
 袋口備有枝能發熱的hand cream  
 就能令指尖都溫溫暖暖  
 
-[![](https://farm8.staticflickr.com/7516/16165690926_a8e8de0c14_z.jpg)](https://farm8.staticflickr.com/7516/16165690926_a8e8de0c14_z.jpg)
+![](/images/mamondewarm.jpg)
 
 hand cream接觸皮膚後  
 遇空氣就有微微的溫暖感  
@@ -23,5 +23,5 @@ hand cream接觸皮膚後
   
 \-----------------------------------------------  
   
-延伸閱讀の真正的暖手蛋：[sanyo eneloop rechargeable hand warmer](http://www.hidie.net/2014/02/sanyo-eneloop-rechargeable-hand-warmer.html)  
-延伸閱讀の慘痛經歷的鐵皮管爆漿記：[aesop - rosehip seed lip cream](http://www.hidie.net/2014/03/lip-aesop-rosehip-seed-lip-cream.html)
+延伸閱讀の真正的暖手蛋：[sanyo eneloop rechargeable hand warmer](https://hidie.net/sanyowarmer/)  
+延伸閱讀の慘痛經歷的鐵皮管爆漿記：[aesop - rosehip seed lip cream](https://hidie.net/aesoprosehip/)

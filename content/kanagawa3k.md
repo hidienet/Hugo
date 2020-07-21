@@ -26,11 +26,11 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa3k4.jpg)
 
-開始有祭司行喇（搵到好位置）
+開始有祭司行喇
 
 ![](/images/kanagawa3k5.jpg)
 
-到元老級別
+（搵到好位置）
 
 {{<youtube nNzNFXFF5mI>}}
 

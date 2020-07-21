@@ -12,7 +12,7 @@ tags : [glamorous - 蛋臉以外]
 微酸而帶清香的氣味  
 （不敢想像用果王做番筧那麼重口味）  
 
-[![](https://farm8.staticflickr.com/7570/16146874819_e3ab51141b_z.jpg)](https://farm8.staticflickr.com/7570/16146874819_e3ab51141b_z.jpg)
+![](/images/siammangosteen.jpg)
 
 立體的一舊一半去殼的山竹造型  
 泡量不多，但潔淨力也可以  
@@ -26,4 +26,4 @@ tags : [glamorous - 蛋臉以外]
   
 \-----------------------------------------------  
   
-延伸閱讀：[\[body\] siam herb soap coconut](http://www.hidie.net/2014/03/body-siam-herb-soap-coconut.html)
+延伸閱讀：[\[body\] siam herb soap coconut](https://hidie.net/siamcoconut/)

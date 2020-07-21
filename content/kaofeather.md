@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 對頭髮健康，最好就是back to basic！  
 
-[![](https://farm9.staticflickr.com/8630/15733436363_3ded83f2b2_z.jpg)](https://farm9.staticflickr.com/8630/15733436363_3ded83f2b2_z.jpg)
+![](/images/kaofeather.jpg)
 
 不添加奇怪物質同油分  
 （含矽含馬油成分最易阻礙頭皮呼吸）  

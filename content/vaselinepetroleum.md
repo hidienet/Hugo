@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 超便宜的萬用保濕膏有豈能算漏了這罐？  
 
-[![](https://farm8.staticflickr.com/7383/16353391265_b01bb8eed8_z.jpg)](https://farm8.staticflickr.com/7383/16353391265_b01bb8eed8_z.jpg)
+![](/images/vaselinepetroleum.jpg)
 
 skincare：  
 厚厚一層塗在嘴是嘴常用的方法  

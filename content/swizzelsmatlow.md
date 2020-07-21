@@ -10,7 +10,7 @@ tags : [flavor - 螞蟻族]
 完全沒有護唇上色的功效  
 因為是吃的吃的吃的吃的（無限loop）  
 
-[![](https://farm8.staticflickr.com/7555/16120531477_e2b00fe2cf_z.jpg)](https://farm8.staticflickr.com/7555/16120531477_e2b00fe2cf_z.jpg)
+![](/images/swizzelsmatlow.jpg)
 
 介乎粉糖與硬糖之間  
 帶藥水般的提子味（oops！）  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 好熱呀，去隊個劉華先！  
 
-[![](https://c1.staticflickr.com/5/4259/35814768606_94447014c4_z.jpg)](https://c1.staticflickr.com/5/4259/35814768606_94447014c4_z.jpg)
+![](/images/kitagawahanbeeice.jpg)
 
 吖唔係劉華，係道地綠茶出嘅雪糕  
   

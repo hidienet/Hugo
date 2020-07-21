@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 滑滑滑滑的燉奶～  
 
-[![](https://farm8.staticflickr.com/7294/16598424315_c93eac2213_z.jpg)](https://farm8.staticflickr.com/7294/16598424315_c93eac2213_z.jpg)
+![](/images/danielsrest.jpg)
 
 左邊啡色的是「黑燉奶」  
 （樣子好似奶茶呢）  

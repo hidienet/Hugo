@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 香味料真係一種可惡嘅嘢！  
 
-[![](https://c1.staticflickr.com/9/8242/29279975806_faf12a3566_z.jpg)](https://c1.staticflickr.com/9/8242/29279975806_faf12a3566_z.jpg)
+![](/images/donanmelon.jpg)
 
 呢粒糖，明知唔會俾到100%純蜜瓜汁  
 亦都知道鬼死咁多糖  

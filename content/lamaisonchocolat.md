@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 令心情放鬆思想軟化的東西  
 
-[![](https://farm8.staticflickr.com/7340/9869980516_cb20677ec0_z.jpg)](https://farm8.staticflickr.com/7340/9869980516_cb20677ec0_z.jpg)
+![](/images/lamaisonchocolat.jpg)
 
 這一刻除了使這兩粒軟軟的truffles外  
 可能就是更有配合作用的咖啡或香檳了（呵呵）

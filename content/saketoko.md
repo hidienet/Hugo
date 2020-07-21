@@ -8,7 +8,7 @@ aliases: [ "/2017/09/blog-post_22.html" ]
 平時穩穩陣陣會飲「吹呀唔走」  
 有時又會飲吓求其揀總之係南高梅嘅就得  
 
-[![](https://c1.staticflickr.com/5/4371/36544209050_1ca36bf870_z.jpg)](https://c1.staticflickr.com/5/4371/36544209050_1ca36bf870_z.jpg)
+![](/images/saketoko.jpg)
 
 而呢枝，嘅唔係上面兩種  
 卻非常驚艷... 超！好！飲！  

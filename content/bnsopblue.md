@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 用海水藍來清潔會令皮膚更乾淨嗎？  
 
-[![](https://farm9.staticflickr.com/8606/16351222539_b19b7030c3_z.jpg)](https://farm9.staticflickr.com/8606/16351222539_b19b7030c3_z.jpg)
+![](/images/bnsopblue.jpg)
 
 以深層海洋水 (hard water)代替精製水  
 藍色的面膜含有月見草花籽  
@@ -27,5 +27,5 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
   
 不過，除了顏色外  
 從味道、用法以致用後感  
-也跟之前敷過的[shrek pack](http://www.hidie.net/2014/11/masque-olive-young-x-shrek-im-real.html)差不多呢～  
+也跟之前敷過的[shrek pack](https://hidie.net/oliveyoungshrek/)差不多呢～  
 （簡直是一模一樣）

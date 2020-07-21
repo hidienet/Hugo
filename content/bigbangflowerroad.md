@@ -9,7 +9,7 @@ tags : [amusement - exhibition]
 五分四嘅成員入咗伍  
 再推出《꽃길》呢隻歌...  
 
-[![](https://c1.staticflickr.com/1/789/40287183725_feaf6455f4_z.jpg)](https://c1.staticflickr.com/1/789/40287183725_feaf6455f4_z.jpg)
+![](/images/bigbangflowerroad.jpg)
 
 有個香港視覺設計及插畫藝術家Zoie Lam  
   

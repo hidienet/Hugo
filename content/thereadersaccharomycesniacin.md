@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 特別鍾情於酵母系的精華  
 
-[![](https://farm8.staticflickr.com/7720/17407352263_c0c39a591d_z.jpg)](https://farm8.staticflickr.com/7720/17407352263_c0c39a591d_z.jpg)
+![](/images/thereadersaccharomycesniacin.jpg)
 
 而這枝，更是愛不惜手  
 超強的吸收力  

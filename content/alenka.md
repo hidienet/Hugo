@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 未必是俄國最好吃的朱古力  
 但應該是比較有代表性的  
 
-[![](https://farm8.staticflickr.com/7637/16543041627_d3d8bc5213_z.jpg)](https://farm8.staticflickr.com/7637/16543041627_d3d8bc5213_z.jpg)
+![](/images/alenka.jpg)
 
 包裝上的畫作是一個八個月大的女孩  
 這是由當時一份莫斯科報紙中  

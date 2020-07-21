@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 感覺上用醫學品牌應該比一般護膚品牌有功效吧～  
 
-[![](https://farm4.staticflickr.com/3771/12264537744_c6b6810326_z.jpg)](https://farm4.staticflickr.com/3771/12264537744_c6b6810326_z.jpg)
+![](/images/saleyecream.jpg)
 
 SAL（Skin Advanced Laboratory）  
 日本的醫學品牌  

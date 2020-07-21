@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 給肌膚喝的熱南瓜湯？  
 
-[![](https://farm8.staticflickr.com/7546/16229302431_d364cfa3e2_z.jpg)](https://farm8.staticflickr.com/7546/16229302431_d364cfa3e2_z.jpg)
+![](/images/thesaempumpkin.jpg)
 
 小小的盒子夠用一兩次  
 不過沒有蓋子就一次過用完吧！  

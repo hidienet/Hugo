@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 多於只有單一甜味的金奇異果  
 （我明白沒有人想知道...）  
 
-[![](https://farm8.staticflickr.com/7347/15785438674_2d5ee98d74_z.jpg)](https://farm8.staticflickr.com/7347/15785438674_2d5ee98d74_z.jpg)
+![](/images/innisfreegoldkiwi.jpg)
 
 維他命C超豐富，當然期待有美白效果  
 而除了美白外，這品牌的green complex  

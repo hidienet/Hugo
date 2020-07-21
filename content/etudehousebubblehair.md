@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 一按即出的染髮泡泡，就是好玩  
 
-[![](https://farm8.staticflickr.com/7513/15693522166_bca38b3f21_z.jpg)](https://farm8.staticflickr.com/7513/15693522166_bca38b3f21_z.jpg)
+![](/images/etudehousebubblehair.jpg)
 
 一二劑混合後擠出泡泡  
 （不過泡泡有點稀...）  

@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 沒有濃眼線、smokey eyes的G-dragon  
 差點認不出來（拍大腿）  
 
-[![](https://farm8.staticflickr.com/7305/16405879121_3f487e4cf8_z.jpg)](https://farm8.staticflickr.com/7305/16405879121_3f487e4cf8_z.jpg)
+![](/images/thesaemecosheet.jpg)
 
 包裝的指示裡除了使用方法是英文外  
 就只有形容「bulgarian complex」這個看得懂的字  

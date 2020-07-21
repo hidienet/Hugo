@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 灰黑色的石膏（？）面膜  
 
-[![](https://farm9.staticflickr.com/8584/16127405654_bb3f889dca_z.jpg)](https://farm9.staticflickr.com/8584/16127405654_bb3f889dca_z.jpg)
+![](/images/thesaemblack.jpg)
 
 是塊泥漿清潔面膜  
 有著薄薄的濕片裝樣子  

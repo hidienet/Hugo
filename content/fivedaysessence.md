@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 面部需要線條，但不是一條條的紋喔！  
 
-[![](https://farm8.staticflickr.com/7669/17051017552_b5e5ff7148_z.jpg)](https://farm8.staticflickr.com/7669/17051017552_b5e5ff7148_z.jpg)
+![](/images/fivedaysessence.jpg)
 
 在這個即食時代下  
 能5日byebye皺紋的東西當然不會不試  

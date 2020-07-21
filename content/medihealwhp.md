@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 泥狀的美白面膜，能使肌膚潔淨透白  
 
-[![](https://farm9.staticflickr.com/8615/16193825151_1e01eafa7e_z.jpg)](https://farm9.staticflickr.com/8615/16193825151_1e01eafa7e_z.jpg)
+![](/images/medihealwhp.jpg)
 
 能用上2-3次的包裝（扭緊蓋子不擠壓）  
 延展性非常高的白泥，超貼面無死角  

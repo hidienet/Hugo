@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 吸收超快不黏不膩的美白精華（撒花）  
 
-[![](https://farm8.staticflickr.com/7686/16948662829_c94581c687_z.jpg)](https://farm8.staticflickr.com/7686/16948662829_c94581c687_z.jpg)
+![](/images/cunaturevc.jpg)
 
 濃郁的維他命C卻沒有一絲刺激感  
 橘子氣味聞起來心情也很歡悅  

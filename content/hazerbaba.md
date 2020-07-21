@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 沒有甜的東西就不算happy friday  
 （好吧！我承認有時候「甜的東西」會跟「酒」交換一下～）  
 
-[![](https://farm9.staticflickr.com/8644/16484267838_c2d4d090e4_z.jpg)](https://farm9.staticflickr.com/8644/16484267838_c2d4d090e4_z.jpg)
+![](/images/hazerbaba.jpg)
 
 糖粉包圍住韌韌的土耳其軟糖  
 裡面含有脆口的果仁  

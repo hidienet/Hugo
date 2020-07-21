@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 蛋臉以外]
 
 洗面沖涼都用這一舊就可以  
 
-[![](https://farm9.staticflickr.com/8633/15733437083_1510f9ef3c_z.jpg)](https://farm9.staticflickr.com/8633/15733437083_1510f9ef3c_z.jpg)
+![](/images/cowsoapblue.jpg)
 
 去日本時特價入手  
 大大舊平均價是**3元多港幣**  

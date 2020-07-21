@@ -9,13 +9,13 @@ tags : [flavor - 螞蟻族]
 經「銅鑼灣街坊美食之友」的介紹  
 不是極上也能肯肯定好吃就是！  
 
-[![](https://farm8.staticflickr.com/7469/16264050185_2fc7e97ce3_z.jpg)](https://farm8.staticflickr.com/7469/16264050185_2fc7e97ce3_z.jpg)
+![](/images/congsao.jpg)
 
 先來個傳統糖水**杏仁合桃露**  
 杏仁合桃味香濃，磨得滑滑的  
 不是粉開成漿會有一舊舊的貨色，讚耶！  
 
-[![](https://farm8.staticflickr.com/7467/16076520058_79e7501dbb_z.jpg)](https://farm8.staticflickr.com/7467/16076520058_79e7501dbb_z.jpg)
+![](/images/congsao1.jpg)
 
 接著是挑戰味蕾的**榴蓮班戟**  
 薄而幼滑的皮層  
@@ -24,7 +24,7 @@ tags : [flavor - 螞蟻族]
 吃完後幾個小時都還有榴蓮的氣色  
 可想像到挑選了多美味的貨色嗎？  
 
-[![](https://farm8.staticflickr.com/7550/16262231891_2216b657b8_z.jpg)](https://farm8.staticflickr.com/7550/16262231891_2216b657b8_z.jpg)
+![](/images/congsao2.jpg)
 
 混合風的薑汁柚子果凍  
 薑奶糖水的薑味濃卻不嗆  
@@ -33,7 +33,7 @@ tags : [flavor - 螞蟻族]
 柚子果凍更是極品  
 清香的味道配合蒟蒻的煙韌，非常好吃（超推薦）  
 
-[![](https://farm8.staticflickr.com/7570/16077933499_629a55e9bd_z.jpg)](https://farm8.staticflickr.com/7570/16077933499_629a55e9bd_z.jpg)
+![](/images/congsao3.jpg)
 
 冬天限定的**栗子西米露**  
 完全磨成蓉的栗子  

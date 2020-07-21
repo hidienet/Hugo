@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 與其吃一大排平價朱古力  
 不如用同一quota吃少量尚好的  
 
-[![](https://farm3.staticflickr.com/2841/9870044593_13fa8e2f5a_z.jpg)](https://farm3.staticflickr.com/2841/9870044593_13fa8e2f5a_z.jpg)
+![](/images/venchichocaviar.jpg)
 
 手工貨色的意大利朱古力  
 稱為「魚子醬」的75%外面有粒粒  

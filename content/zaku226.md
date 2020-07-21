@@ -3,10 +3,10 @@ title: '[白狼365] Day226：PM2.5空氣質量指數（AQI）'
 date: 2015-08-14T12:00:00.000+08:00
 draft: false
 aliases: [ "/2015/08/365-day226pm25aqi.html" ]
-tags : [collections - zaku II 白狼・365 project]
+tags : [collections - zaku]
 ---
 
-[![](https://farm6.staticflickr.com/5643/19918280083_a6086e8527_z.jpg)](https://farm6.staticflickr.com/5643/19918280083_a6086e8527_z.jpg)
+![](/images/zaku226.jpg)
 
 雖然化品倉庫爆炸一大大舊蘑菇雲  
 但空氣質量還是顯示「輕度污染」  

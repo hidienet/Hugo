@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 超～ 熱～ 的天氣  
 就用冰涼的泡泡防曬（yeah～）  
 
-[![](https://farm1.staticflickr.com/415/19472907049_9a9cc3a29b_z.jpg)](https://farm1.staticflickr.com/415/19472907049_9a9cc3a29b_z.jpg)
+![](/images/omisolanoveil.jpg)
 
 搖搖搖後擠出泡泡  
 就會聽到爆炸糖般的聲音  

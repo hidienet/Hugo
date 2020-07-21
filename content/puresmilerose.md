@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 粉紅晶能增加人緣  
 用來做面膜又會怎樣呢？  
 
-[![](https://farm9.staticflickr.com/8683/15608501244_541320df72_z.jpg)](https://farm9.staticflickr.com/8683/15608501244_541320df72_z.jpg)
+![](/images/puresmilerose.jpg)
 
 面膜本身含collagen透明質酸維他命E等成分  
 可以保濕、增彈性同抗衰老  

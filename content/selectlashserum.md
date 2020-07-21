@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 護理睫毛不一定很昂貴的  
 
-[![](https://farm8.staticflickr.com/7356/15733436813_7362ab35e9_z.jpg)](https://farm8.staticflickr.com/7356/15733436813_7362ab35e9_z.jpg)
+![](/images/selectlashserum.jpg)
 
 特價後七元多港幣，太可怕了吧  
 但也能使睫毛濕潤亮澤  

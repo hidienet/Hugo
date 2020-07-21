@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 對這種一盒多塊的眼膜真的又愛又恨  
 
-[![](https://farm9.staticflickr.com/8575/16252991175_36bcb94918_z.jpg)](https://farm9.staticflickr.com/8575/16252991175_36bcb94918_z.jpg)
+![](/images/aranghydrogel.jpg)
 
 一盒30對（60塊）再加上圓形貼30張超抵算  
 黃金色的hydrogel mask  

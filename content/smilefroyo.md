@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 要吃香港最有heart的froyo  
 這家吧！不二之選～  
 
-[![](https://farm9.staticflickr.com/8592/16749661865_9d9d775bf5_z.jpg)](https://farm9.staticflickr.com/8592/16749661865_9d9d775bf5_z.jpg)
+![](/images/smilefroyo.jpg)
 
 濃郁香滑不會過甜過酸  
 也沒有沙沙的感覺  

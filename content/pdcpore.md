@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 溫熱的gel加粒粒  
 應該可以好好去除黑頭吧  
 
-[![](https://farm9.staticflickr.com/8613/16167096057_c40b4895c7_z.jpg)](https://farm9.staticflickr.com/8613/16167096057_c40b4895c7_z.jpg)
+![](/images/pdcpore.jpg)
 
 太・天・真・了！  
 gel本身都是灰灰黑黑的  

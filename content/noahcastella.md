@@ -9,16 +9,16 @@ tags : [flavor - 螞蟻族]
 一般焗蛋糕曲奇就是要好好看時間  
 但對於這種蛋糕嘛...  
 
-[![](https://farm8.staticflickr.com/7303/16352554735_678803cbc0_z.jpg)](https://farm8.staticflickr.com/7303/16352554735_678803cbc0_z.jpg)
+![](/images/noahcastella.jpg)
 
 就是要六成熟，平常就是說失敗的作品  
 現在就變成熱門的半熟流心蛋糕  
 
-[![](https://farm8.staticflickr.com/7364/16350812461_1a5af70af9_z.jpg)](https://farm8.staticflickr.com/7364/16350812461_1a5af70af9_z.jpg)
+![](/images/noahcastella1.jpg)
 
 於中間呈流動狀態，濕濕的  
 
-[![](https://farm8.staticflickr.com/7452/16351672602_0434714276_z.jpg)](https://farm8.staticflickr.com/7452/16351672602_0434714276_z.jpg)
+![](/images/noahcastella2.jpg)
 
 不過我這個超過六成熟  
 算失敗蛋糕中的失敗之作嗎？（哈）  

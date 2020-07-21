@@ -8,8 +8,7 @@ tags : [glamorous - 保養おたく]
 
 味道清新用後表面清爽也不會使皮膚乾燥  
 
-[![](https://farm9.staticflickr.com/8759/16927823317_3a6bfdc804_z.jpg)](https://farm9.staticflickr.com/8759/16927823317_3a6bfdc804_z.jpg)
+![](/images/naturerepublicmakeoff.jpg)
 
-最重要是落的快又夠徹底  
-  
+最重要是落的快又夠徹底    
 真的是枝超好用的卸妝水呢（大拇指）

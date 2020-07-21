@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 「死皮，去死吧！」  
 
-[![](https://farm9.staticflickr.com/8665/16713469796_03c34813c8_z.jpg)](https://farm9.staticflickr.com/8665/16713469796_03c34813c8_z.jpg)
+![](/images/tonymolycuticlepen.jpg)
 
 推推推，這枝跟之前買的daiso不同  
 是磨砂頭，所以推得更強力  

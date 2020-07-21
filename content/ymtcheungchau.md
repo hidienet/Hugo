@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 懶得山長水遠走到長州食糯米滋？  
 油麻地就有啦～～～  
 
-[![](https://farm1.staticflickr.com/460/18364330803_2d0ff50f20_z.jpg)](https://farm1.staticflickr.com/460/18364330803_2d0ff50f20_z.jpg)
+![](/images/ymtcheungchau.jpg)
 
 排隊？我下午四點幾不用排隊所以買的  
 （要排隊就不買了，那麼熱的天氣）  

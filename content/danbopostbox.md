@@ -9,7 +9,7 @@ tags : [collections - danbo]
 貴人呢家嘢，我生命中就至少有幾個  
 而其中一個呢，黐住佢就幾時都好好運...  
 
-[![](https://c1.staticflickr.com/5/4359/36546730304_e49c65c7ec_z.jpg)](https://c1.staticflickr.com/5/4359/36546730304_e49c65c7ec_z.jpg)
+![](/images/danbopostbox.jpg)
 
 呢隻郵便局出嘅**Yu-Pack Danbo Mini**  
 雖然唔係咩新嘢啦  
@@ -21,7 +21,7 @@ tags : [collections - danbo]
 佢對手仲要係可動㗎  
 隻嘢堅係得意到暈低呢  
 
-[![](https://c1.staticflickr.com/5/4450/37227581342_63c7f35ddf_z.jpg)](https://c1.staticflickr.com/5/4450/37227581342_63c7f35ddf_z.jpg)
+![](/images/danbopostbox1.jpg)
 
 嗱～ 係咪都紅噹噹咁真係唔知會遇到乜㗎嘛  
   

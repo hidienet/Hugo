@@ -8,12 +8,12 @@ tags : [flavor - 螞蟻族]
 
 最美味的糖果在此！  
 
-[![](https://farm8.staticflickr.com/7631/16331898473_eb865bd348_z.jpg)](https://farm8.staticflickr.com/7631/16331898473_eb865bd348_z.jpg)
+![](/images/mentosdrop.jpg)
 
 不知道是不是荷蘭限定版  
 也可能北歐也又售吧  
 （這我真的不知道）  
-先謝謝朋友S的好康  
+先謝謝荷蘭friend的好康  
   
 drop是香草的一種  
 有說不出要但一定要試試的美味  

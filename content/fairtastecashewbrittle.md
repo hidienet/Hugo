@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 响公司悶悶地梗係食吓零食㗎啦！  
 
-[![](https://c1.staticflickr.com/1/784/26492999287_63dfb04b7f_z.jpg)](https://c1.staticflickr.com/1/784/26492999287_63dfb04b7f_z.jpg)
+![](/images/fairtastecashewbrittle.jpg)
 
 呢樽嘢好正呀！！！  
 全有機同公平交易不在話下  

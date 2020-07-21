@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 小小一枝的床頭cream  
 
-[![](https://farm9.staticflickr.com/8611/16304324491_9f8bd38235_z.jpg)](https://farm9.staticflickr.com/8611/16304324491_9f8bd38235_z.jpg)
+![](/images/esthetichousev3000.jpg)
 
 維他命C美白面霜  
 罐裝扭蓋方便我在睡夢中也能打開  

@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 栗子！栗子！栗子！！！（非常重要所以講三次！）  
 
-[![](https://c1.staticflickr.com/9/8893/28084169573_4f7e834917_z.jpg)](https://c1.staticflickr.com/9/8893/28084169573_4f7e834917_z.jpg)
+![](/images/hontakachestnut.jpg)
 
 秋天就是要食栗子  
 配埋煙韌嘅大福  

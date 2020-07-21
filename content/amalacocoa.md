@@ -9,7 +9,7 @@ tags : [glamorous - 保養おたく]
 說眼精華不夠滋潤所以不鎖水  
 那麼再用同品牌的眼霜又會怎樣？  
 
-[![](https://farm8.staticflickr.com/7523/16120040549_e11be23c96_z.jpg)](https://farm8.staticflickr.com/7523/16120040549_e11be23c96_z.jpg)
+![](/images/amalacocoa.jpg)
 
 具滋潤抗氧的可可  
 為系列中的修復眼霜  

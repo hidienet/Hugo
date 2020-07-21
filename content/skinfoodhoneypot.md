@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 （那些面膜hand cream的用量也非常高就是）  
 用來「吃」的潤唇膏對我來說真的十分重要  
 
-[![](https://farm8.staticflickr.com/7660/16514932843_a3d69f0244_z.jpg)](https://farm8.staticflickr.com/7660/16514932843_a3d69f0244_z.jpg)
+![](/images/skinfoodhoneypot.jpg)
 
 何況樣子那麼可愛（心）  
 加上甜美的蜂蜜（？）味道  

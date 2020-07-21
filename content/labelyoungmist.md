@@ -10,7 +10,7 @@ tags : [glamorous - 保養おたく]
 （情人節大掃除團年等都跟我無關似的）  
 但就是很～ 懶～ （天氣潮濕吧...）  
 
-[![](https://farm8.staticflickr.com/7294/15939063713_0934d6a7cb_z.jpg)](https://farm8.staticflickr.com/7294/15939063713_0934d6a7cb_z.jpg)
+![](/images/labelyoungmist.jpg)
 
 連護膚也要快快手完成  
 有著蜂蜜色澤、像半稀的蜂蜜水質地  

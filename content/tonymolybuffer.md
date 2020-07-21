@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外]
 真真正正不用任何東西塗在指甲上  
 卻有平滑bling bling的美甲效果  
 
-[![](https://farm9.staticflickr.com/8642/15842519973_d53eef1cfd_z.jpg)](https://farm9.staticflickr.com/8642/15842519973_d53eef1cfd_z.jpg)
+![](/images/tonymolybuffer.jpg)
 
 需要的，就是工具與時間  
 （想完美的話少不了心機同技巧）  

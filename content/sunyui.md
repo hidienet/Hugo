@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 台南的美食實在太多  
 這次是tak買來的杏仁荖（撒花）  
 
-[![](https://farm8.staticflickr.com/7471/15970284157_d7f480a6eb_z.jpg)](https://farm8.staticflickr.com/7471/15970284157_d7f480a6eb_z.jpg)
+![](/images/sunyui.jpg)
 
 信裕軒這間老鋪  
 是在日治時代開業至今已幾十年歷史  

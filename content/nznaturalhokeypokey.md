@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 响酷熱嘅北半球  
 感受冰涼嘅南半球美味  
 
-[![](https://c1.staticflickr.com/5/4508/23656810668_2ec2413a76_z.jpg)](https://c1.staticflickr.com/5/4508/23656810668_2ec2413a76_z.jpg)
+![](/images/nznaturalhokeypokey.jpg)
 
 講起咩國家有咩signature雪糕口味  
 第一時間會諗起紐西蘭同hokey pokey  

@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 趕時間，快點乾可以嗎？  
 
-[![](https://farm9.staticflickr.com/8648/16352190892_d1115c6508_z.jpg)](https://farm9.staticflickr.com/8648/16352190892_d1115c6508_z.jpg)
+![](/images/itsskindryer.jpg)
 
 用這枝滴一滴就OK了  
 還散發清香的花香氣味呢～

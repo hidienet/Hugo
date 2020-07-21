@@ -9,7 +9,7 @@ tags : [flavor - 螞蟻族]
 上班不可以喝酒（其實要喝誰能阻止我？）  
 但「吃酒」應該不會被發現吧（偷笑）  
 
-[![](https://farm9.staticflickr.com/8613/16671363565_b709627b82_z.jpg)](https://farm9.staticflickr.com/8613/16671363565_b709627b82_z.jpg)
+![](/images/bourbonshochuchoco.jpg)
 
 麦焼酎的味道濃香  
 配有點甜的黑朱古力沒有違和感  

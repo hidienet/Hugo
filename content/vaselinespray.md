@@ -8,7 +8,7 @@ tags : [glamorous - 蛋臉以外]
 
 太好玩忍不住時不時拿來噴（哈哈哈哈哈）  
 
-[![](https://farm8.staticflickr.com/7778/17461429996_cbc44cef90_z.jpg)](https://farm8.staticflickr.com/7778/17461429996_cbc44cef90_z.jpg)
+![](/images/vaselinespray.jpg)
 
 用後皮膚軟滑又沒有黏膩感覺  
 噴出一條的lotion，用量也不會太多  
@@ -18,4 +18,4 @@ tags : [glamorous - 蛋臉以外]
 （喔～ 這枝是澳洲造的，不是東南亞的了...）  
 \-----------------------------------------------  
   
-延伸閱讀：[\[body\] vaseline - total moisture nourishing lotion & serum](http://www.hidie.net/2014/12/body-vaseline-total-moisture-nourishing.html)
+延伸閱讀：[\[body\] vaseline - total moisture nourishing lotion & serum](https://hidie.net/vaselinenourishing/)

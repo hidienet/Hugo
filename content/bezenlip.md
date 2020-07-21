@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく]
 
 純粹因為IKKO大叔的介紹所以覺得一試無妨  
 
-[![](https://farm8.staticflickr.com/7449/9684242603_f8fc3caba0_z.jpg)](https://farm8.staticflickr.com/7449/9684242603_f8fc3caba0_z.jpg)
+![](/images/bezenlip.jpg)
 
 包裝簡單平實，有朵很禪的蓮花  
 透明色澤的lip gloss  

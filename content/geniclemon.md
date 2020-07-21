@@ -8,7 +8,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 
 以檸檬的強勁維他命C使膚色亮白起來！  
 
-[![](https://farm9.staticflickr.com/8661/16187973196_6f677ca9bd_z.jpg)](https://farm9.staticflickr.com/8661/16187973196_6f677ca9bd_z.jpg)
+![](/images/geniclemon.jpg)
 
 一打開包裝袋已有酸酸的檸檬氣味湧入鼻  
 味道又酸又清新，不是假假加甜那種  

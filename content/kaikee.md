@@ -8,7 +8,7 @@ tags : [flavor - 螞蟻族]
 
 一班人吃的大大碗甜品  
 
-[![](https://farm8.staticflickr.com/7475/16205070105_d5d59ee4ce_z.jpg)](https://farm8.staticflickr.com/7475/16205070105_d5d59ee4ce_z.jpg)
+![](/images/kaikee.jpg)
 
 雖然自己都有份食  
 但總感覺這是「一堆狗糧放在狗兜上」  

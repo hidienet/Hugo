@@ -24,11 +24,11 @@ tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
 
 ![](/images/kanagawa3m4.jpg)
 
-我唔係搭呢班唔會上車啦
+唔係上呢班就可以慢慢影車身
 
 ![](/images/kanagawa3m.jpg)
 
-呢架响藤沢駅方向嘅車先啱  
+呢架去藤沢駅方向嘅車先啱  
 係個線條瘦削啲個樣復古啲嘅20形電車
 
 ![](/images/kanagawa3m5.jpg)

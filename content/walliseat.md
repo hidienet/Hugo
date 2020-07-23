@@ -8,7 +8,7 @@ tags : [flavor - 行膳積腹, flavor - 螞蟻族]
 
 因為食評榜排位高所以月巴HIM拉我去試吓喎…  
 
-![](https://1.bp.blogspot.com/-a-oKXawOEvQ/XLVQjKIVv6I/AAAAAAAAIhM/7-KsnrwCRjcsMS1bl7K3bg5TGbPVsq9wQCLcBGAs/s640/IMG_20190416_114545.jpg)
+![](/images/walliseat.jpg)
 
 間嘢位於M1酒店1樓  
 鄰國人入住嗰啲咁啦  
@@ -18,13 +18,13 @@ tags : [flavor - 行膳積腹, flavor - 螞蟻族]
 而啲枱細細張間距又超窄可以好清楚聽到隔離枱傾緊啲咩  
 （一邊嘅隔離枱勁講旅行，好想join埋一齊講）  
 
-![](https://1.bp.blogspot.com/-OBJ9i3t_91c/XLVRBU63WlI/AAAAAAAAIhU/gJYJEP8vdHoTsMtLMaz0fwYmKISIfyy5wCLcBGAs/s640/IMG_20190415_200427.jpg)
+![](/images/walliseat1.jpg)
 
 house water係檸檬蝶豆花茶  
 話加咗檸檬飲都有檸檬味  
 不過好神奇個色都仲係藍色而唔係紫色  
 
-![](https://1.bp.blogspot.com/-jTy-EJfyGe8/XLVTv320EkI/AAAAAAAAIhc/Kw0-VgzwciM6P4EW4IKb0FYHmEZvR3NPgCLcBGAs/s640/IMG_20190415_201558.jpg)
+![](/images/walliseat2.jpg)
 
 hot dish係**水牛芝士焗菠菜大啡菇**  
 同字面一樣啦大菇中間夾咗菠菜蓉再面頭加mozzarella去焗  
@@ -35,7 +35,7 @@ Mozzarella又係淡味芝士嘛
 成碟嘢係沙律菜嘅陳醋醬最濃味  
 （之後嘅主菜們都有佢嘅身影）  
 
-![](https://4.bp.blogspot.com/-6ae2_jSUW6Q/XLVVW0RVr7I/AAAAAAAAIhk/sg54WOBZ69krUNgNhIR9fQgeIQb8Tqe8QCLcBGAs/s640/IMG_20190415_201319.jpg)
+![](/images/walliseat3.jpg)
 
 主菜之一嗌咗**尋日的羔羊**  
 （香煎澳州法式小羊架配脆薯條）  
@@ -46,7 +46,7 @@ Mozzarella又係淡味芝士嘛
 配醬有提鮮嘅法式芥末同濃郁薄荷醬唔錯呀  
 薯條夠熱又夠硬脆，正！  
 
-![](https://1.bp.blogspot.com/-jnaHbHhb3Yo/XLVWO2bhzgI/AAAAAAAAIhw/jS4uWTyvqXgrNTHxq_w3f6wzXW-_fV0IQCLcBGAs/s640/IMG_20190415_204356.jpg)
+![](/images/walliseat4.jpg)
 
 另一主菜係**慢落豬**  
 （慢煮西班牙黑毛豬串燒配甜蕃薯角）  
@@ -58,7 +58,7 @@ Mozzarella又係淡味芝士嘛
 點睇都係條but一啲都唔影響佢嘅美味  
 又脆又甜幾好食呢  
 
-![](https://4.bp.blogspot.com/-AW_zy2nng9c/XLVYXBPVdAI/AAAAAAAAIh8/5yfZ77VzTsUvETwO0esFEDnRsqSt4TcCwCLcBGAs/s640/IMG_20190415_212236.jpg)
+![](/images/walliseat5.jpg)
 
 食豬嗰陣已經覺得飽  
 然而要餵飽個甜品胃嘛…  

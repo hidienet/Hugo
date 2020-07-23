@@ -3,7 +3,7 @@ title: '[toner] 北川本家 富翁 純米酒 美肌'
 date: 2014-09-22T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/toner.html" ]
-tags : [glamorous - 保養おたく, glamorous - 面膜魂]
+tags : [glamorous - 保養おたく]
 ---
 
 多合一的美肌純米酒  

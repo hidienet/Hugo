@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹]
 平日較鍾意泰式海南雞  
 不過新加坡式嘅間唔時食吓都幾好  
 
-![](https://zbr9wq.ch.files.1drv.com/y4mC6z1GSzSQG77qUJmos7mW0ktupj3Hsjt9bIKa81ChF3XsBvqpNopdlK7aScquzR4HzUSgp09nYsNl79DhGtJ7I4LB_K6EQq7Wfd6JhjRtCAB9vyWl2VznznyunqZvwQ8Iv6iFOS9cIPH7XTGMJzP3ThL9wzoJpGmtMSNeIY7pUK4S2neBd7KRTxkOYv8FlUBGT43cGpV9Gj3blQhs7dSbw?width=660&height=371&cropmode=none)
+![](/images/tiantian1.jpg)
 
 **天天海南雞**  
 寫例牌但係超大份  
@@ -21,7 +21,7 @@ tags : [flavor - 行膳積腹]
 雖然應該會更相輝映但都冇嗌油飯  
 好啦！搵日lunch嘅時候再試吓  
 
-![](https://zbr8wq.ch.files.1drv.com/y4m0SdyADV4ucAla-Ux45Yf4vy26Kr6v2CWGiaX-QtWytWnwRbb67aTUhacBASqEDp1qpQLh1E-Rsy8aGgBL1MGXLOuiHsFva-FPqP9p2RYlcigVNHQ0SQvxnMqSaGc2jHShziUOKHKJhwv7X51914AREr76IAWrtL7E42DPlXeTDjf8zTgBTU2WvfDV2yRykDwQKF_FxrGwDkBS96TfHvZAg?width=660&height=371&cropmode=none)
+![](/images/tiantian2.jpg)
 
 **酒糟四寶**  
 細細聲講，我覺得呢兜嘢比海南雞更！出！色！  
@@ -30,7 +30,7 @@ tags : [flavor - 行膳積腹]
 酒味濃郁又唔鹹之餘仲要勁入味  
 太好食喇實在，超讚！！！  
 
-![](https://zbr7wq.ch.files.1drv.com/y4mv-jWeXeWjokq__T6t8CIlRMJfmWviVLPJRpQPub3-Hvget1XwJMs7FBsqLu0lZtAB4X6hAQEyB5PDrtpq_rolUTN0zamgTrQXsaJbbiKBbCXqhC13Ipq33kVP1t6gDNrTyT0ORVHAFn7aNUzYFjz74dn-PD51CtUI-MxCRZ48PkQZV0_eZwvDN3oC-LmjdSqBo0iqDoUX2x_so9RdMHZyA?width=660&height=371&cropmode=none)
+![](/images/tiantian3.jpg)
 
 **鹽磚和牛**  
 响佢同牛骨茶之間揀  

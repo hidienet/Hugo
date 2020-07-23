@@ -3,7 +3,7 @@ title: '[cleanser] Men''s Bioré - Facial Sheets | メンズビオレ 洗顔シ�
 date: 2019-07-27T18:51:00.002+08:00
 draft: false
 aliases: [ "/2019/07/cleanser-mens-biore-facial-sheets.html" ]
-tags : [glamorous - 保養おたく, glamorous - 蛋臉以外, lifestyle - zakka]
+tags : [glamorous - 保養おたく, glamorous - 蛋臉以外]
 ---
 
 出汗就用佢抹一抹  

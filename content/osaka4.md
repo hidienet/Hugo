@@ -50,7 +50,7 @@ tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
 點知班機要delay  
 多咗粒幾鐘逛多陣...  
 
-[![](https://c1.staticflickr.com/5/4375/36532159591_9c6cb6e5fb_z.jpg)](https://c1.staticflickr.com/5/4375/36532159591_9c6cb6e5fb_z.jpg)
+[![](/images/kix0.jpg)
 
 Nintendo (Super Mario) @KIX  
 空港到着有好多裝飾同裝置  

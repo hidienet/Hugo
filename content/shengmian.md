@@ -9,7 +9,7 @@ tags : [flavor - 行膳積腹, flavor - 螞蟻族]
 雖然好鍾意台灣牛肉麵啲香濃湯底  
 但係咁鬼熱嘅天氣真係唔想蒸住塊面啊...  
 
-![](https://qfxntg.ch.files.1drv.com/y4mjUFjexZWMAocGE2xXOsPAuXreWY7TKjqHxyE-eWdZnN5SLUJLQRvSnvhLIN6Li7oL3ZYzf4bMkCsGL9jDLej-2V9EmjcxUEeDJK5PrhOwD0nd650YpVM_QfFYPgtRnhgTASfHFcsmm_6ez9QZZaDp9IhoGEf4Xa-Ii8CNARJSOIZiDDnggkbihT8rSyFEMwLtPzHFUbCBqlzzo8q6KCWMw?width=660&height=371&cropmode=none)
+![](/images/shengmian1.jpg)
 
 **招牌麻辣牛肉撈麵**  
 托埋塊招牌出嚟  
@@ -25,17 +25,17 @@ tags : [flavor - 行膳積腹, flavor - 螞蟻族]
   
 成碗麵嘅完成度太高喇！正！  
 
-![](https://qfxotg.ch.files.1drv.com/y4ms2yoaO-SAnmvweQCxs8HxqmfWEtlE7J_bszx3HJwhZeh40qpPrlaej_qMf_L7cjNiLvOEr19xREybRYa-yNUEWV4Yl7aqOg_RLYJnTa-QZAwZKrZKJyjAPc5UYGvjx5AwPZKFegltjVarqskNuwz5JZqO43pbyd2KcQYQlQ4Y9DYeIvY57zXCGMusrYSpWwratSYbj28AVuVpolrSAjT4g?width=660&height=371&cropmode=none)
+![](/images/shengmian2.jpg)
 
 叫撈麵會配埋**蛋花湯**  
 
-![](https://qfxrtg.ch.files.1drv.com/y4m8r94sXsVjE9ez1zlEx7WnFyyTBRE_KRP6AyQVS_XhrKqvp5T3D6GaEPZLc1nomH1eyIs9L2ASmVmDRuUUPvdY5QcQpNhXuk3kQcRx8UVtq-yL2bTjaH_M7quoxjUUVMGspPgAsIScp16OwPpssAjFQqHnDhdf-NqJv9nB-x6K1pZHtkLhbxT75Fp_dCOnE2AifbRWdqT4bgJL3yv6f3dIg?width=660&height=371&cropmode=none)
+![](/images/shengmian3.jpg)
 
 唔會好鹹又有絲絲滑嘅蛋花  
 不過習慣港式麵檔撈麵配湯嘅我  
 都係唔敢將啲湯一飲而盡  
 
-![](https://qfxptg.ch.files.1drv.com/y4mkYfIjsvePSw-QRvuKPQR6aW6kYTO5zdtDHMIPzpSqA2WtU6ei0ypy8m7gfmTjJGXHlGzDsGroboyD8DwYaPFM0ZLmOgF3WPg0OqsbCBf5AatctNi7e-KoXFAIBqNBcDrNLEFLFeeCS9YWCIMnKNc12_7qZf-7F0cjhvF4LUEAvYr14eNMcW8WquzrkukL43cm7cpjgJ-8v93syWfAhpuMw?width=660&height=371&cropmode=none)
+![](/images/shengmian4.jpg)
 
 **滷肉飯**  
 响食麵嘅地方叫飯有時候係會有伏  
@@ -47,7 +47,7 @@ tags : [flavor - 行膳積腹, flavor - 螞蟻族]
 食到碗底啲飯都仲爆汁  
 （呃，全熟蛋唔係我杯茶）  
 
-![](https://qfxmtg.ch.files.1drv.com/y4mgPfONQ0V45kz8qOj3RLOpRO8D6gwvAZrRRDWIBN_HRtYUH8QIxJfGt0SL2glgyjg2K6mpg6AU8krTUwDG7oCgVawFLZw4w0elrVBKrLELLo-whOgitcoJOn2OlFKXh2je7g9lRj2Cojm75d1Sb5DRxRcm-L05m0F0MA1S5ZeclRCrkHPe28BBt6UY9D2rf_anveA3pXrG5z67D_4JuU2gg?width=660&height=371&cropmode=none)
+![](/images/shengmian5.jpg)
 
 **涼拌手撕無骨鹽水雞**  
 香港限定菜式  
@@ -56,7 +56,7 @@ tags : [flavor - 行膳積腹, flavor - 螞蟻族]
 青瓜爽口碟底嫩豆腐豆味勁濃郁  
 麻油味都幾出喎，成碟夾埋好似食緊夜市撈一堆咁（嘻）  
 
-![](https://qfxktg.ch.files.1drv.com/y4mz95h2rKY44vqOHH8dcacLPPFibNsxuktGxqndB4AVqJLBeVZotN761MsK_jcd-zUi7I4lg2EvNuBgeRoy9op1MHPa6aIOBS4vmWqq7haJFME9QtGrZgRj4Rz_NBlDAYmOvG0Ic3cUxwMYeTygitsmTyFtarZvsT4amsl7oONuLlrz0fTuuSTR5CUd2ubXt5iN90XxgMMqCZMqOhKyY_wPg?width=660&height=371&cropmode=none)
+![](/images/shengmian6.jpg)
 
 **百香果透心涼愛玉**  
 幾飽都想食嘅甜品  

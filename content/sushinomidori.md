@@ -10,24 +10,24 @@ tags : [flavor - 行膳積腹]
 咪食吓寿司就當自己去咗囉…  
 （反正去日本都冇食過）  
 
-![](https://3.bp.blogspot.com/-A_SGt1rqUog/XECWwCdYyVI/AAAAAAAAFpY/OyO1O4dvY-EzRwCHQcAJfUnRNCsajOjjgCLcBGAs/s640/IMG_20190117_210423.jpg)
+![](/images/sushinomidori1.jpg)
 
 壽司醬油都係用返自己名同配方  
 
-![](https://3.bp.blogspot.com/-pTR3vYH-Qjw/XECcPjrYIuI/AAAAAAAAFqA/xC9ANbqOeC8NDrW5if9QkuI69tBV1HTWACLcBGAs/s640/IMG_20190117_211510.jpg)
+![](/images/sushinomidori2.jpg)
 
 **美登利 日本酒**  
 冇咩idea飲咩好嗌house sake就最穩陣  
 酒精16以上17未滿  
 新潟米味少少甜淡淡哋都唔錯  
 
-![](https://2.bp.blogspot.com/-ly_iCLtE5Kk/XECcgjoRxrI/AAAAAAAAFqM/UB-7o8rCFisjulpsefGDkmIB1D1eumhpQCLcBGAs/s640/IMG_20190117_211712.jpg)
+![](/images/sushinomidori3.jpg)
 
 **鮟鱇魚肝軍艦**  
 內臟尤其膶就係好好好濃味嘅嘢  
 魚味勁重，好似啪咗成甖kawaii咁 XD  
 
-![](https://4.bp.blogspot.com/-DkEr_cp5jik/XECdDG2hcjI/AAAAAAAAFqU/jizEZxiUxAYycxzpFwbi-75er-tfWYJdACLcBGAs/s640/IMG_20190117_211721.jpg)
+![](/images/sushinomidori4.jpg)
 
 **吞拿魚筋壽司**  
 香港冇點見過嘅吞拿魚部位  
@@ -41,7 +41,7 @@ tags : [flavor - 行膳積腹]
 哇！响香港第一次見舖頭壽司上面嘅数の子（右下）唔係一片片而係成條上  
 爽爽嘅魚春食得好過癮   
 
-![](https://3.bp.blogspot.com/-f9NaFRe8LLM/XECeJLa2kNI/AAAAAAAAFqg/72qtDHTAXiomYQK8olxsbEHnypguTPLxQCLcBGAs/s640/IMG_20190117_212426.jpg)
+![](/images/sushinomidori5.jpg)
 
 **特選壽司組合**  
 哈哈哈哈哈哈哈  
@@ -59,7 +59,7 @@ tags : [flavor - 行膳積腹]
 濃味最高當然係橙色令面嘅海膽軍艦  
 最後甜甜鬆軟嘅玉子做句號，堪稱完美！  
 
-![](https://1.bp.blogspot.com/-mM3wVcZL888/XECg9Dlz5yI/AAAAAAAAFqo/9xa4nhDe6uUM1IF4RmnyPtJgD-XF1CtjACLcBGAs/s640/IMG_20190117_221122.jpg)
+![](/images/sushinomidori6.jpg)
 
 抹茶雪糕係用**丸久小山園抹茶**做  
 茶咩香濃唔會好苦澀  

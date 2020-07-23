@@ -10,34 +10,26 @@ tags : [amusement - exhibition]
 
 ![](/images/yellowkornerlfm.jpg)
 
-咁五呎二同萬一呎望嘅香港
-
+咁五呎二同萬一呎望嘅香港  
 梗係好大分別啦！
 
   
 
-係就係YellowKorner
-
+係就係YellowKorner  
 不過今次Le French May擺嘅唔係呢邊
 
 ![](/images/yellowkornerlfm1.jpg)
 
-個展係响PMQ嘅
-
+個展係响PMQ嘅  
 （不過YellowKorner先有張大燈箱poster嘛）
 
 ![](/images/yellowkornerlfm2.jpg)
 
-同Le French May最大關係
-
-除咗YellowKorner呢間法國相舖之外
-
-梗係法籍攝影師Alex Reyval嘅作品
-
-攝影高人响咁高空影嘅香港
-
-俯瞰呢個香港感覺較整齊
-
+同Le French May最大關係  
+除咗YellowKorner呢間法國相舖之外  
+梗係法籍攝影師Alex Reyval嘅作品  
+攝影高人响咁高空影嘅香港  
+俯瞰呢個香港感覺較整齊  
 唔似得平時睇落周圍都巖巖巉巉咁
 
   

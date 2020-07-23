@@ -79,7 +79,7 @@ tags : [lifestyle - 逃離852, travel-日本関東東海道-相模神奈川三�
 
   
 #### 神奈川買物去：  
-\[符\] YEBISU お守り袋  
+\[符\] [YEBISU お守り袋](https://hidie.net/yebisuomamori/)  
 \[食\] 一堆KIRIN
 
 ![](/images/kanagawa3d3n.jpg)

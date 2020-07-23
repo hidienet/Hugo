@@ -7,55 +7,38 @@ tags : [flavor - 行膳積腹]
 ---
 
 意大利菜做法簡單材料新鮮純粹且味美  
-
 最緊要係食嗰陣夠隨意嘛…
 
-![](https://2.bp.blogspot.com/-bHIru5pW6Zg/XG414j4sIhI/AAAAAAAAIAI/7SgxieYXlqgTys0u0IxbYT5ocRmqbiHsQCLcBGAs/s640/IMG_20190213_203349.jpg)
+![](/images/pici1.jpg)
 
-堪稱完美嘅candle light dinner~
-
-Welcome包，配最最最基本嘅橄欖油同陳醋
-
-包包係韌身唔實的的又唔係只得陣空氣嗰種
-
+堪稱完美嘅candle light dinner~  
+Welcome包，配最最最基本嘅橄欖油同陳醋  
+包包係韌身唔實的的又唔係只得陣空氣嗰種  
 點油醋已經夠晒好味
 
-![](https://3.bp.blogspot.com/-qdk8WBMdQVk/XG42Cpkp--I/AAAAAAAAIAM/fCjhc_uIhrAEfQGWVC8kgwETmbo6sviCgCLcBGAs/s640/IMG_20190213_203621.jpg)
+![](/images/pici2.jpg)
 
-頭盤**cold cut**
+頭盤**cold cut**  
+芝士係鹹淡韌硬都有嘅parmesan同teleggio兩種  
+意大利豬有兩種parma ham同salami  
 
-芝士係鹹淡韌硬都有嘅parmesan同teleggio兩種
+![](/images/pici3.jpg)
 
-意大利豬有兩種parma ham同salami
-
-![](/images/pici.jpg)
-
-咁叫得做pasta bar當然pasta係主打啦
-
-主菜先嚟碟**ravioli**
-
-個雲吞皮係店裡面鮮製嘅
-
-同平時屋企啲袋裝乾意粉唔同
-
-乾意粉係粉同水；鮮製嘅係粉同蛋
-
-所以香同軟身，比乾粉更要拿捏好個起鑊時間
-
-個餡係三文魚同mascarpone
-
-香濃味道一咬爆發囉咪就係！
-
-因此個汁好簡單lemon butter
-
+咁叫得做pasta bar當然pasta係主打啦  
+主菜先嚟碟**ravioli**  
+個雲吞皮係店裡面鮮製嘅  
+同平時屋企啲袋裝乾意粉唔同  
+乾意粉係粉同水；鮮製嘅係粉同蛋  
+所以香同軟身，比乾粉更要拿捏好個起鑊時間  
+個餡係三文魚同mascarpone  
+香濃味道一咬爆發囉咪就係！  
+因此個汁好簡單lemon butter  
 配返番茄仔同比較少見嘅連條條大酸豆 (capers)
 
-![](https://2.bp.blogspot.com/-XnUQPNAfsHk/XG42QhwNdjI/AAAAAAAAIAY/jFdwV9btgzcoKEunNxlHPmwpPzlHop4NwCLcBGAs/s640/IMG_20190213_205732.jpg)
+![](/images/pici4.jpg)
 
-食完煮嘅食個焗嘅
-
-熱辣辣**classic lasagna**
-
+食完煮嘅食個焗嘅  
+熱辣辣**classic lasagna**  
 經典嘅意式肉醬beef ragu、béchamel（白醬）同parmesan  
 最原始易學難精嘅貨色  
 材料同火候就見真章  
@@ -66,14 +49,14 @@ Welcome包，配最最最基本嘅橄欖油同陳醋
 唔會肉粉分離，得以整件同食  
 好掂！！！  
 
-![](https://1.bp.blogspot.com/-mfSECro3mE0/XG42Xc2CFoI/AAAAAAAAIAg/hnsF0ZNu66MVBXeVLsZZe0ZuYEOVuR2LwCLcBGAs/s640/IMG_20190213_211503.jpg)
+![](/images/pici5.jpg)
 
 甜品時間有**tiramisu**  
 mascarpone超超超軟滑  
 朱古力同咖啡味都濃郁  
 注入晒kiss me soft嘅神髓  
 
-![](https://4.bp.blogspot.com/-Vnik6Ne7oSM/XG42eD-BgvI/AAAAAAAAIAk/KmHkMbuVaZQrHpaD8bPlQPDtXwoI0UWJwCLcBGAs/s640/IMG_20190213_211450.jpg)
+![](/images/pici6.jpg)
 
 滑嘟嘟彈彈吓當然唔少得**panna cotta**啦  
 牛奶濃滑滑彈少少漿口  

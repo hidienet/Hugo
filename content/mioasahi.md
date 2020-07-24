@@ -14,19 +14,19 @@ tags : [amusement - exhibition]
 佢嘅畫作只係黑白底之中帶少少色彩  
 但係就已經感受到嗰種寧靜喜悅  
 
-![](https://c1.staticflickr.com/1/884/39656869570_631c8ec681_z.jpg)
+![](/images/mioasahi1.jpg)
 
 跟住獨角仙入去另一空間  
 
-![](https://c1.staticflickr.com/1/881/39656869110_1f5617f6a0_z.jpg)
+![](/images/mioasahi2.jpg)
 
 （牌嘅背面係Mio Asahi另一signature三ツ月）  
 
-![](https://c1.staticflickr.com/1/886/27594517208_9d56287e15_z.jpg)
+![](/images/mioasahi3.jpg)
 
 ～入去喇～  
 
-![](https://c1.staticflickr.com/1/872/39656867460_2d334d6d2b_z.jpg)
+![](/images/mioasahi4.jpg)
 
 呢度分享咗畫家响二十年嚟嘅創作  
 裡面有主軸嘅女子  
@@ -38,7 +38,7 @@ tags : [amusement - exhibition]
 卻滲出快樂、令人會心微笑嘅感覺  
 令周圍都創造咗個好微妙嘅空間...  
 
-![](https://c1.staticflickr.com/1/795/39656868140_510422e52f_z.jpg)
+![](/images/mioasahi5.jpg)
 
 啲畫作有得賣嘅  
 不過屋企係無位擺嘅  

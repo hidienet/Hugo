@@ -12,7 +12,7 @@ tags : [amusement - exhibition]
 ![](/images/burstingbold.jpg)
 
 今次去睇呢位荷蘭藝術家**Merijn Kavelaars**  
-響應返[Dutch Days](https://www.hidie.net/2018/04/dutch-in-neighbourhood-dutch-flower.html)，响香港擺嘅首個展覽  
+響應返[Dutch Days](https://hidie.net/dutchflower/)，响香港擺嘅首個展覽  
 主題係講爆破同勇氣  
 
 ![](/images/burstingbold1.jpg)

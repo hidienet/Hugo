@@ -13,12 +13,12 @@ tags : [amusement - exhibition]
 
 咁點解身處於毛島中仲會風光好？  
 
-![](https://c1.staticflickr.com/1/945/41927903702_152e388b91_z.jpg)
+![](/images/mollywood1.jpg)
 
 畫作主要由長髮西面裸女  
 加埋同樣係藝術家梁嘉賢寫嘅打油詩  
 
-![](https://c1.staticflickr.com/1/946/41927903262_dc88938551_z.jpg)
+![](/images/mollywood2.jpg)
 
 《凡谷》中睇到處於不滿現狀嘅牆內人  
 但視線並唔廣闊  
@@ -26,20 +26,20 @@ tags : [amusement - exhibition]
 响度笑緊佢哋嘅同時  
 不過我自己又何嘗唔係？  
 
-![](https://c1.staticflickr.com/1/948/41253780244_4f45fce9b2_z.jpg)
+![](/images/mollywood3.jpg)
 
 仲有一系列睇落似用鏡頭窺探嘅作品  
 
-![](https://c1.staticflickr.com/1/827/41253778644_96412c3912_z.jpg)
+![](/images/mollywood4.jpg)
 
 黑白中又有金浮雲  
 
-![](https://c1.staticflickr.com/1/944/41253780074_587571f7d5_z.jpg)
+![](/images/mollywood5.jpg)
 
 用色柔和；話中畫中有意景  
 每絲頭髮仲畫得好細緻  
 
-![](https://c1.staticflickr.com/1/827/41927901852_19a29ab55a_z.jpg)
+![](/images/mollywood6.jpg)
 
 《下次》  
 啊！個展啱啱完咗  

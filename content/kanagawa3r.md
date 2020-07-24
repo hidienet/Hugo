@@ -45,7 +45,7 @@ menu見到有就一定會嗌啦
 
 ![](/images/kanagawa3r6.jpg)
 
-**生グレープフルーツサワー**
+**生グレープフルーツサワー**  
 以為好似[lemon sour](https://hidie.net/kanagawa2p/)咁會有粒粒結冰提子  
 不過都好好飲啦無藥水味㗎
 

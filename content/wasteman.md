@@ -8,44 +8,44 @@ tags : [amusement - exhibition]
 
 就算係黑白色都掩藏唔到佢嘅可愛  
 
-![](https://c1.staticflickr.com/1/796/40934145774_ca7fc2d6ec_z.jpg)
+![](/images/wasteman1.jpg)
 
 佢唔止得意，仲好好笑  
 
-![](https://c1.staticflickr.com/1/801/41604844572_d8718a3c55_z.jpg)
+![](/images/wasteman.jpg)
 
 ...入去喇～  
 
-![](https://c1.staticflickr.com/1/840/40934144704_c7be2e5d02_z.jpg)
+![](/images/wasteman2.jpg)
 
 呢次展覽除咗有佢啲手稿  
 
-![](https://c1.staticflickr.com/1/870/40934142864_8e827a09a7_z.jpg)
+![](/images/wasteman3.jpg)
 
 仲有噴畫  
 
-![](https://c1.staticflickr.com/1/895/41604840852_eb377ca568_z.jpg)
+![](/images/wasteman4.jpg)
 
 大部分都係上年嘅畫作  
 
-![](https://c1.staticflickr.com/1/881/41604843252_64a11e2a1d_z.jpg)
+![](/images/wasteman5.jpg)
 
 一路行慢慢睇但係一路笑  
 
-![](https://c1.staticflickr.com/1/843/40934143934_8f7936dc94_z.jpg)
+![](/images/wasteman6.jpg)
 
 構圖同字句都係易明  
 卻要用個腦load load  
 去消化吓呢啲英式幽默  
 
-![](https://c1.staticflickr.com/1/858/41604842392_eb5da40f98_z.jpg)
+![](/images/wasteman7.jpg)
 
 只係白紙白布再加黑色線條  
 
-![](https://c1.staticflickr.com/1/940/40934143154_4b29ce28bd_z.jpg)
+![](/images/wasteman8.jpg)
 
 擺响藝術家手上就已經變得好有趣  
 
-![](https://c1.staticflickr.com/1/879/41604841602_2ac05c93d2_z.jpg)
+![](/images/wasteman9.jpg)
 
 最後post呢張，因為我鍾意！

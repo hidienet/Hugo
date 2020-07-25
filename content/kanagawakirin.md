@@ -1,7 +1,7 @@
 ---
 title: '一堆KIRIN！'
 date: 2020-07-26T09:30:00.000+08:00
-draft: false
+draft: true
 images: ["/images/kanagawakirin.jpg"]
 tags : [collections - 可愛い, flavor - 小食部, flavor - 螞蟻族]
 ---

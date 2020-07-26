@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day6：HELIOS - ゴーヤーDRY、青い空と�
 date: 2013-11-23T10:00:00.001+08:00
 draft: false
 aliases: [ "/2013/11/day6helios-dry.html" ]
-tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 飲！, travel-日本-沖繩]
 ---
 
 沖縄ビール，除了ORION還有HELIOS！  

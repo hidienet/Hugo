@@ -3,7 +3,7 @@ title: '[荷蘭正呀喂！] Day3：Amsterdam（King''s Day）'
 date: 2019-07-29T22:46:00.000+08:00
 draft: false
 aliases: [ "/2019/07/day3amsterdamkings-day.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 **King's Day!!!**  

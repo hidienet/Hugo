@@ -3,7 +3,7 @@ title: '[荷蘭正呀喂！] Day4.2：IJsselmeer → Enkhuizen → Hoorn → Ams
 date: 2019-09-16T23:18:00.000+08:00
 draft: false
 aliases: [ "/2019/09/day42ijsselmeer-enkhuizen-hoorn.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 介紹返隻船先～  

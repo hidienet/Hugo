@@ -3,7 +3,7 @@ title: 'macau tower'
 date: 2015-02-09T21:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/macau-tower.html" ]
-tags : [travel - macao]
+tags : [travel-澳門]
 ---
 
 夜晚上塔就可以看到萬家燈火  

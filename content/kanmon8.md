@@ -3,7 +3,7 @@ title: '[C''mon 関門！] Day8：福岡空港'
 date: 2018-01-26T09:10:00.000+08:00
 draft: false
 aliases: [ "/2018/01/cmon-day8.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中国山陽道と九州西海道）・ 長門山口と豊前北九州, flavor - 飲！, flavor - 螞蟻族]
+tags : [travel-日本-小倉關門長門]
 ---
 
 朝早起身check out後  

@@ -3,7 +3,7 @@ title: '[荷蘭正呀喂！] Day4.1：Hoorn → Medemblik（IJsselmeer）'
 date: 2019-08-08T23:00:00.001+08:00
 draft: false
 aliases: [ "/2019/08/day41hoorn-medemblikijsselmeer.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 yo～ 又嚟一早出發...  

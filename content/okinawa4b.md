@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day4：カステラの長崎本舗（泡盛）'
 date: 2013-11-18T15:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day4_3652.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 螞蟻族, travel-日本-沖繩]
 ---
 
 不包餐的bus tour，自己帶點吃的也應該吧  

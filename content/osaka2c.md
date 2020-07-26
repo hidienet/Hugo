@@ -1,12 +1,12 @@
 ---
-title: '[大阪，美味しいね～] Day2：黒門市場 - '
+title: '[大阪，美味しいね～] Day2：黒門市場 - 高橋食品'
 date: 2020-07-31T07:30:00.000+08:00
 draft: false
 images: ["/images/osaka2c.jpg"]
 tags : [travel-日本-奈良大阪, flavor - 飲！]
 ---
  
-瞓醒又落樓
+瞓醒又落樓...
 
 ![](/images/osaka2c.jpg)
 

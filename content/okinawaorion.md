@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] 番外：ORION 飲不停'
 date: 2013-11-23T14:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/orion.html" ]
-tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 飲！, travel-日本-沖繩]
 ---
 
 去沖縄，沒有不喝ORION的道理！  

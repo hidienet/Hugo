@@ -3,7 +3,7 @@ title: '[pastry] lord stow''s - pastel de nata'
 date: 2015-01-26T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/01/pastry-lord-stows-pastel-de-nata.html" ]
-tags : [flavor - 螞蟻族, travel - macao]
+tags : [flavor - 螞蟻族, travel-澳門]
 ---
 
 兩夫婦，一起共同做了一件事  

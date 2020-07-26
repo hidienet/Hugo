@@ -3,7 +3,7 @@ title: '[荷蘭正呀喂！] Day6：Amsterdam'
 date: 2019-10-23T23:16:00.000+08:00
 draft: false
 aliases: [ "/2019/10/day6amsterdam.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 諗住去梵高館碰吓運氣但唔成功（淚）  

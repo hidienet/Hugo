@@ -3,7 +3,7 @@ title: '[ララ奈良] Day2：春日大社、奈良公園と鹿'
 date: 2017-10-31T09:25:00.000+08:00
 draft: false
 aliases: [ "/2017/10/day2.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [travel-日本-奈良大阪]
 ---
 
 晨早空氣清新開朗  

@@ -3,7 +3,7 @@ title: '[C''mon 関門！] Day6： 下関 → 小倉'
 date: 2018-01-24T09:39:00.000+08:00
 draft: false
 aliases: [ "/2018/01/cmon-day6.html" ]
-tags : [travel - 日本（中国山陽道と九州西海道）・ 長門山口と豊前北九州]
+tags : [travel-日本-小倉關門長門]
 ---
 
 又過咗個好精彩嘅一日...  

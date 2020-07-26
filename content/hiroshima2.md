@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 2：e''s time cafe & ANDERSEN | 酔心本店 | 
 date: 2018-10-09T09:29:00.000+08:00
 draft: false
 aliases: [ "/2018/10/day-2es-time-cafe-andersen.html" ]
-tags : [travel - 日本（中国山陽道）・ 安芸広島]
+tags : [travel-日本-廣島]
 ---
 
 個行程除咗食就冇咩嘢plan過...  

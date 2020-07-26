@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day4：海援隊沖縄'
 date: 2013-11-19T21:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day4_4761.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 行膳積腹, travel-日本-沖繩]
 ---
 
 有甚麼比[琉球食king Eilly](https://hidie.net/okinawa2h/)的200円一杯オリオン生サザンスター更吸引？  

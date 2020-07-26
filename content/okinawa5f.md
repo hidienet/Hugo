@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day5：海援隊沖縄 AGAIN!'
 date: 2013-11-21T21:45:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day5-again_21.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 行膳積腹, travel-日本-沖繩]
 ---
 
 只有3天的半額祭（半價），今天是最後一天了  

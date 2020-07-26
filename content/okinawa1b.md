@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] 番外：JAL city NAHA x POLA'
 date: 2013-11-10T22:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/jal-city-naha-x-pola.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 這幾天都是住這間酒店  

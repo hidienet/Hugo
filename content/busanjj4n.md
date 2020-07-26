@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day4：pink pink 복분자막걸리（
 date: 2014-01-17T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day4pink-pink.html" ]
-tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 飲！, travel-南韓-慶州釜山]
 ---
 
 扮夜貓子蒲吧去～  

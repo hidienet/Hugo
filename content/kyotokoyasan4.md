@@ -3,7 +3,7 @@ title: '[錦秋京都高野山] Day4：高野山 → KIX'
 date: 2019-11-27T21:48:00.000+08:00
 draft: false
 aliases: [ "/2019/11/day4-kix.html" ]
-tags : [travel - 日本（関西近畿南海道）・ 山城京都と紀伊和歌山]
+tags : [travel-日本-京都高野山]
 ---
 
 呼吸住清新空氣...  

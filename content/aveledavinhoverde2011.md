@@ -3,7 +3,7 @@ title: '[cheers!] Aveleda Vinho Verde 2011'
 date: 2015-03-09T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/03/cheers-aveleda-vinho-verde-2011.html" ]
-tags : [flavor - 飲！, travel - macao]
+tags : [flavor - 飲！, travel-澳門]
 ---
 
 雖然顏色帶微微綠  

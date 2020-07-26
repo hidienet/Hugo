@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：鎌倉 → 川崎'
 date: 2019-07-17T23:53:00.001+08:00
 draft: false
 aliases: [ "/2019/07/day3.html" ]
-tags : [travel - 日本（関東東海道）・ 相模神奈川三浦、川崎、横浜、鎌倉]
+tags : [travel-日本-神奈川]
 ---
 
 就算擒晚夜少少瞓  

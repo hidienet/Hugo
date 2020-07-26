@@ -3,7 +3,7 @@ title: '[Glory Days！鹿児島長崎！] Day3：山形屋 福袋 | シャロー
 date: 2020-02-26T10:57:00.000+08:00
 draft: false
 aliases: [ "/2020/02/glory-days-day3.html" ]
-tags : [travel - 日本（九州西海道）・ 薩摩鹿児島と肥前長崎]
+tags : [travel-日本-鹿兒島長崎]
 ---
 
 擒日行過見到今日山形屋會開  

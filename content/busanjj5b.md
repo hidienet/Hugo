@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day5：단팥죽（紅豆粥）'
 date: 2014-01-18T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day5_6334.html" ]
-tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 螞蟻族, travel-南韓-慶州釜山]
 ---
 
 其實吃完豬腳真的很飽  

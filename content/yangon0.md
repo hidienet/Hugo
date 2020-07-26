@@ -3,7 +3,7 @@ title: '[仰光好陽光] Night1：HKG → RGN (Vintage Luxury Yacht Hotel)'
 date: 2020-02-17T21:58:00.000+08:00
 draft: false
 aliases: [ "/2020/02/night1hkg-rgn-vintage-luxury-yacht-hotel.html" ]
-tags : [lifestyle - 逃離852, travel - မြန်မာ・ရန်ကုန်မြို့ (Yangon Myanmar)]
+tags : [lifestyle - 逃離852, travel-緬甸-仰光]
 ---
 
 年卅晚响機場食完團年飯就搭夜機  

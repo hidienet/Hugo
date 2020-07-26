@@ -3,7 +3,7 @@ title: '[豬] Restaurante Fernando 葡式燒乳豬'
 date: 2015-02-16T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/restaurante-fernando.html" ]
-tags : [flavor - 行膳積腹, travel - macao]
+tags : [flavor - 行膳積腹, travel-澳門]
 ---
 
 遠一遠走到去黑沙環  

@@ -3,7 +3,7 @@ title: '[高溫熱氣土耳其] Day4：Adalar - Büyükada (MADO)、Kadıköy (B
 date: 2020-03-16T10:06:00.000+08:00
 draft: false
 aliases: [ "/2020/03/day4adalar-buyukada-madokadkoy-benazio.html" ]
-tags : [travel - Türkiye (Turkey)]
+tags : [travel-土耳其]
 ---
 
 食飽飽酒店個早餐又出去喇～  

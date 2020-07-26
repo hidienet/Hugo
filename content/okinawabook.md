@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] 番外：沖縄碎碎念'
 date: 2013-11-23T20:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/blog-post_9535.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 臨離開沖縄時想說的～  

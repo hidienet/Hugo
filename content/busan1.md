@@ -3,7 +3,7 @@ title: '[釜山短eat trip] Day 1：機張稻草盲鰻 | Lotte Premium Outlet | 
 date: 2019-03-11T13:27:00.001+08:00
 draft: false
 aliases: [ "/2019/03/eat-trip-day-1-lotte-premium-outlet.html" ]
-tags : [lifestyle - 逃離852, travel - 남한・부산 (釜山)]
+tags : [lifestyle - 逃離852, travel-南韓-釜山]
 ---
 
 嚟一趟週末小(食)旅行…  

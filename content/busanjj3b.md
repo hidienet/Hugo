@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day3：해장국（解酒湯）'
 date: 2014-01-14T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day3.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel-南韓-慶州釜山]
 ---
 
 解酒湯（해장국）又是慶州名菜  

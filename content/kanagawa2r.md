@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day2：SEVEN & i クリームチーズ マカロン
 date: 2020-07-14T14:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa2r.jpg"]
-tags : [flavor - say cheese, flavor - 螞蟻族, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor - say cheese, flavor - 螞蟻族, travel-日本-神奈川]
 ---
 
 返到酒店又係雪糕時間  

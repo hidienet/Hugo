@@ -2,7 +2,7 @@
 title: '[ララ奈良] Day1：中谷堂 - よもぎ餅'
 date: 2017-10-30T13:20:00.000+08:00
 draft: false
-tags : [flavor - 螞蟻族, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 螞蟻族, travel-日本-奈良大阪]
 ---
 
 飲咗少少嘢呢又想食少少嘢喎  

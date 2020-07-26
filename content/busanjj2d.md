@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day2：갈비찜（燉排骨）'
 date: 2014-01-13T19:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day2_4673.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel-南韓-慶州釜山]
 ---
 
 平常香港所謂的「排骨」是指豬排骨  

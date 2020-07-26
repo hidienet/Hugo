@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day1：柿'
 date: 2014-01-11T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day1_11.html" ]
-tags : [travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 在路上的一輛卡上車買的  

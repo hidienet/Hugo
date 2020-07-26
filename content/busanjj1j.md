@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day1：경주법주 쌀막걸리'
 date: 2014-01-12T22:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day1_3554.html" ]
-tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 飲！, travel-南韓-慶州釜山]
 ---
 
 막걸리（makgeolli）是甜甜的濁酒  

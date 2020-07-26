@@ -3,7 +3,7 @@ title: '[ララ奈良] Day4：天極堂 大仏生あん葛 @二月堂北茶所'
 date: 2017-11-10T16:09:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day4_59.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪, flavor - 螞蟻族]
+tags : [travel-日本-奈良大阪, flavor - 螞蟻族]
 ---
 
 行到攰攰地，就坐低食個啲嘢先  

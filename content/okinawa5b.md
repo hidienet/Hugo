@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day5：首里あん 粒あん紅芋 沖縄伝統
 date: 2013-11-20T12:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day5_20.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 螞蟻族, travel-日本-沖繩]
 ---
 
 百多年的琉球饅頭老店  

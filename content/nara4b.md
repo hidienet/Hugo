@@ -3,7 +3,7 @@ title: '[ララ奈良] Day4：吉野本葛 天極堂'
 date: 2017-11-09T17:10:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day4_9.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良と摂津大阪, flavor - 螞蟻族]
+tags : [flavor - 行膳積腹, travel-日本-奈良大阪, flavor - 螞蟻族]
 ---
 
 漫步吉城園之後又到咗食早餐嘅時候喇  

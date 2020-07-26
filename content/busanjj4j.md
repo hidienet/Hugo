@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day4：짬뽕 x 자장면（辣湯麵 
 date: 2014-01-16T19:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day4-x-x.html" ]
-tags : [travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 在food court食飯絕對是最最最錯誤的決定  

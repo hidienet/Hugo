@@ -10,12 +10,13 @@ tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良
 
 ![](/images/osaka1c1.jpg)
 
+@**西川鮮魚店**  
 好多殼，揀咩好？
 
 ![](/images/osaka1c2.jpg)
 
 揀好就即劏～  
-（接觸係用手唔係[用腳](https://hidie.net/cebu/)㗎 XDDD）
+（接觸海膽係用手唔係[用腳](https://hidie.net/cebu/)㗎 XDDD）
 
 ![](/images/osaka1c.jpg)
 

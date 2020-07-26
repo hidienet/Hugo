@@ -3,7 +3,7 @@ title: '[小酌酒巡比利時] Day1：AMS → Brussel'
 date: 2019-05-14T10:29:00.000+08:00
 draft: false
 aliases: [ "/2019/05/day-1ams-brussel.html" ]
-tags : [lifestyle - 逃離852, travel - België & Nederland (Belgium & Netherlands)]
+tags : [lifestyle - 逃離852, travel-比利時荷蘭]
 ---
 
 直航機係貴啲嘅  

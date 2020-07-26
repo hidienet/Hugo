@@ -3,7 +3,7 @@ title: '[濟州，맛있어요] Day1：西歸浦 서귀포'
 date: 2017-10-23T09:30:00.000+08:00
 draft: false
 aliases: [ "/2017/10/day-1_23.html" ]
-tags : [lifestyle - 逃離852, travel - 남한・제주 (濟州)]
+tags : [lifestyle - 逃離852, travel-南韓-濟州]
 ---
 
 作為「假期乞兒」嘅我  

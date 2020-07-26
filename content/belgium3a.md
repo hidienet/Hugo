@@ -3,7 +3,7 @@ title: '[小酌酒巡比利時] Day3.1：Brugge'
 date: 2019-05-27T22:57:00.003+08:00
 draft: false
 aliases: [ "/2019/05/day-31brugge.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 今日唔駛超早起身…  

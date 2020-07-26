@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] 番外：椰菜花？'
 date: 2014-01-15T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/blog-post_15.html" ]
-tags : [travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 街道上的裝飾花  

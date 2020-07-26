@@ -3,7 +3,7 @@ title: '[ララ奈良] Day2：奈良町 ならまち格子の家'
 date: 2017-11-01T15:43:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [travel-日本-奈良大阪]
 ---
 
 偷窺吓以前啲人間屋先...  

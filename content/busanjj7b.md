@@ -1,9 +1,9 @@
 ---
-title: '[明明遊慶州 偏向釜山行] Day7：냉면（冷麵）'
+title: '[明明遊慶州 偏向釜山行] Day7：냉면 (冷麵)'
 date: 2014-01-20T13:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day7_20.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel-南韓-慶州釜山]
 ---
 
 浸完溫泉暖暖的不過肚子好餓  

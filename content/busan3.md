@@ -3,7 +3,7 @@ title: '[釜山短eat trip] Day 3：松亭三代豬肉湯飯 | 雪冰'
 date: 2019-03-13T10:40:00.000+08:00
 draft: false
 aliases: [ "/2019/03/eat-trip-day-3.html" ]
-tags : [travel - 남한・부산 (釜山)]
+tags : [travel-南韓-釜山]
 ---
 
 快閃嘛，話咁快就最後一朝喇…  

@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day1：어묵（炸魚條）'
 date: 2014-01-11T16:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day1.html" ]
-tags : [flavor - 小食部, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 小食部, travel-南韓-慶州釜山]
 ---
 
 街位攤檔有個阿豬媽剛剛炸起這些魚條  

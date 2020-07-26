@@ -3,7 +3,7 @@ title: '神奈川衝撞旅（3D3N）'
 date: 2020-07-25T14:50:00.000+08:00
 draft: false
 images: ["/images/kanagawa3d3n.jpg"]
-tags : [lifestyle - 逃離852, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [lifestyle - 逃離852, travel-日本-神奈川]
 ---
 
 又係一路飲啤酒同睇好多花  

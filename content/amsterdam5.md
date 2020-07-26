@@ -3,7 +3,7 @@ title: '[荷蘭正呀喂！] Day5：Keukenhof → Amsterdam'
 date: 2019-09-23T11:50:00.000+08:00
 draft: false
 aliases: [ "/2019/09/day5keukenhof-amsterdam.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 啊～天氣好好好好啊！  

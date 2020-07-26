@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day3：琉球島豚 麺屋なりよし とんこ
 date: 2013-11-17T21:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3_17.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 行膳積腹, travel-日本-沖繩]
 ---
 
 明天要早起遠行，今晚宵夜不去居酒屋  

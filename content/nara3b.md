@@ -3,7 +3,7 @@ title: '[ララ奈良] Day3：平宗 柿の葉ずし'
 date: 2017-11-06T15:33:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day3_41.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-日本-奈良大阪]
 ---
 
 嚟返個輕食早餐先...  

@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day3：紅芋琉堂 紅芋のきもち'
 date: 2013-11-16T15:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3_8423.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 螞蟻族, travel-日本-沖繩]
 ---
 
 在三越前的小鋪看到便買了  

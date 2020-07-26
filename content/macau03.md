@@ -3,7 +3,7 @@ title: 'serrdura serradura'
 date: 2015-01-12T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/01/serrdura-serradura.html" ]
-tags : [flavor - 螞蟻族, travel - macao]
+tags : [flavor - 螞蟻族, travel-澳門]
 ---
 
 沒有寫錯，是serrdura的serradura  

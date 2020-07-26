@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day2：壺屋やちむん通り'
 date: 2013-11-12T11:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day2_12.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 吃飽要到附近走走散步  

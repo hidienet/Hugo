@@ -3,7 +3,7 @@ title: '[ララ奈良] Day4：江戸川 ならまち店'
 date: 2017-11-14T09:30:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day4_14.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 行膳積腹, travel-日本-奈良大阪]
 ---
 
 今日行得多，食鰻魚補充體力就最好（耶～）  

@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 4：倉式珈琲店 | THE OUTLETS HIROSHIMA | �
 date: 2018-10-11T09:58:00.000+08:00
 draft: false
 aliases: [ "/2018/10/day-4-outlets-hiroshima.html" ]
-tags : [travel - 日本（中国山陽道）・ 安芸広島]
+tags : [travel-日本-廣島]
 ---
 
 美妙嘅早晨係由一杯好咖啡開始  

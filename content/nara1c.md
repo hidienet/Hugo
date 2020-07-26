@@ -2,7 +2,7 @@
 title: '[ララ奈良] Day1：なら泉勇斎'
 date: 2017-10-30T11:00:00.000+08:00
 draft: false
-tags : [flavor - 飲！, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 飲！, travel-日本-奈良大阪]
 ---
 
 行吓行吓口乾乾  

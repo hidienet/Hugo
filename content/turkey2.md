@@ -3,7 +3,7 @@ title: '[高溫熱氣土耳其] Day2：Yerebatan Sarnıcı、Ayasofya Müzesi、
 date: 2020-03-10T10:17:00.000+08:00
 draft: false
 aliases: [ "/2020/03/day2yerebatan-sarncayasofya.html" ]
-tags : [travel - Türkiye (Turkey)]
+tags : [travel-土耳其]
 ---
 
 酒店包埋早餐，食咗先行  

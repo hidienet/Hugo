@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day2：城亜'
 date: 2020-07-04T07:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa2c.jpg"]
-tags : [flavor-行膳積腹, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor-行膳積腹, travel-日本-神奈川]
 ---
 
 去完啲咁[靈氣](https://hidie.net/kanagawa2b/)嘅地方  

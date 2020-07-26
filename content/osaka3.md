@@ -3,7 +3,7 @@ title: '[大阪，美味しいね～] Day3：新世界、梅田'
 date: 2017-09-20T09:32:00.000+08:00
 draft: false
 aliases: [ "/2017/09/day3.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [travel-日本-奈良大阪]
 ---
 
 為咗隻牛買咗個遊客版1-day pass  

@@ -3,7 +3,7 @@ title: '[ララ奈良] Day2：萬御菓子誂處 樫舎'
 date: 2017-11-02T09:22:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2_2.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪, flavor - 螞蟻族]
+tags : [travel-日本-奈良大阪, flavor - 螞蟻族]
 ---
 
 樫舎嘅店主係專業嘅菓子職人  

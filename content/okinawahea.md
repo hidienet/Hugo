@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] 番外：hea爆石敢當 XD'
 date: 2013-11-20T21:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/hea-xd.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 在沖縄，不難見到神獸風獅  

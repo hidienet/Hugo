@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 7：かき船 かなわ | Boss Shake | Mirori C
 date: 2019-03-20T10:23:00.000+08:00
 draft: false
 aliases: [ "/2019/03/day-7-boss-shake-mirori-cafe.html" ]
-tags : [travel - 日本（中国山陽道）・ 安芸広島]
+tags : [travel-日本-廣島]
 ---
 
 今日食得飽but唔想行街  

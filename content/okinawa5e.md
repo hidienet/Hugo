@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day5：散步'
 date: 2013-11-21T16:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day5_1509.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 今天很閒，散個步  

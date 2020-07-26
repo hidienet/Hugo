@@ -3,7 +3,7 @@ title: '[小酌酒巡比利時] Day2.1：Dinant'
 date: 2019-05-17T09:44:00.000+08:00
 draft: false
 aliases: [ "/2019/05/day-21dinant.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 好好咁利用假期火車票  

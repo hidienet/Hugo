@@ -3,7 +3,7 @@ title: '雅馨緬甸餐廳'
 date: 2015-03-23T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/03/blog-post_23.html" ]
-tags : [flavor - 行膳積腹, travel - macao]
+tags : [flavor - 行膳積腹, travel-澳門]
 ---
 
 其實也沒有特別喜歡食麵  

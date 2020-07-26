@@ -6,7 +6,7 @@ images: ["/images/kanagawakirin.jpg"]
 tags : [collections - 可愛い, flavor - 小食部, flavor - 螞蟻族]
 ---
 
-話說去無料嘅[KIRIN工場見学](https://hidie.net/kanagawa2d/)...  
+話說去咗無料嘅[KIRIN工場見学](https://hidie.net/kanagawa2d/)...  
 
 ![](/images/kanagawa2d24.jpg)
 

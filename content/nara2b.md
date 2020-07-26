@@ -3,7 +3,7 @@ title: '[ララ奈良] Day2：玄'
 date: 2017-10-31T16:16:00.000+08:00
 draft: false
 aliases: [ "/2017/10/day2_31.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 行膳積腹, travel-日本-奈良大阪]
 ---
 
 原本full晒㗎，但店家話啱啱有人cancel咗  

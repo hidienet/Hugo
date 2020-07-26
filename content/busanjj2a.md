@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day2：가시오가피 삼계탕（人
 date: 2014-01-13T11:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day2.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel-南韓-慶州釜山]
 ---
 
 因為很喜歡吃人參雞湯  

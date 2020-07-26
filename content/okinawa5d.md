@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day5：沖縄そば 街角'
 date: 2013-11-21T12:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day5_21.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 行膳積腹, travel-日本-沖繩]
 ---
 
 一整個上午都是準備中

@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day4：大大粒士多啤梨'
 date: 2014-01-16T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day4_16.html" ]
-tags : [travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 好大好大粒的士多啤梨  

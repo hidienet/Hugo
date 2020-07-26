@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day6：那覇空港'
 date: 2013-11-22T19:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day6_2016.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 藍色的天空  

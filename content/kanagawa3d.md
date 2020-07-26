@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：綾鷹 茶葉のあまみ'
 date: 2020-07-16T14:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3d.jpg"]
-tags : [flavor - 飲！, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor - 飲！, travel-日本-神奈川]
 ---
 
 响円覚寺呢啲咁禪嘅地方梗係要嘆番啖茶  

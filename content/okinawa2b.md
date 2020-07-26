@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day2：牧志公設市場 刺身time'
 date: 2013-11-11T12:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day2-time.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 行膳積腹, travel-日本-沖繩]
 ---
 
 到街市不是為了逛街，當然是為了吃吃吃！  

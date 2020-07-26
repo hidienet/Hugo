@@ -3,7 +3,7 @@ title: '[荷蘭正呀喂！] Day1：Amsterdam（Pesca）'
 date: 2019-07-22T20:48:00.000+08:00
 draft: false
 aliases: [ "/2019/07/day1amsterdampesca.html" ]
-tags : [lifestyle - 逃離852, travel - België & Nederland (Belgium & Netherlands)]
+tags : [lifestyle - 逃離852, travel-比利時荷蘭]
 ---
 
 搭Thalys快一快，兩粒鐘就由比利時布魯塞爾到荷蘭阿姆斯特丹  

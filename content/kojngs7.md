@@ -3,7 +3,7 @@ title: '[Glory Days！鹿児島長崎！] Day7：NGS COFFEE | 稲佐山温泉ふ
 date: 2020-03-04T10:27:00.000+08:00
 draft: false
 aliases: [ "/2020/03/glory-days-day7ngs-coffee.html" ]
-tags : [travel - 日本（九州西海道）・ 薩摩鹿児島と肥前長崎]
+tags : [travel-日本-鹿兒島長崎]
 ---
 
 今日做咩好呢？  

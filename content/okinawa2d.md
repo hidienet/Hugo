@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day2：陶器と喫茶 南窯'
 date: 2013-11-12T16:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day2_2544.html" ]
-tags : [flavor - 螞蟻族, flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 螞蟻族, flavor - 飲！, travel-日本-沖繩]
 ---
 
 散步一會坐一下，吃個茶點

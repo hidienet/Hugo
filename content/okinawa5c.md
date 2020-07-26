@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day5：商六 ジーマミ豆腐'
 date: 2013-11-20T16:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day5_6417.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄, flavor - 小食部]
+tags : [travel-日本-沖繩, flavor - 小食部]
 ---
 
 我是沒法抗拒花生豆腐的誘惑！  

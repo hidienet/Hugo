@@ -3,7 +3,7 @@ title: '[高溫熱氣土耳其] Day6：Cappadocia Balloon Flight、Red Tour - Ce
 date: 2020-03-18T10:47:00.000+08:00
 draft: false
 aliases: [ "/2020/03/day6cappadocia-balloon-flightred-tour.html" ]
-tags : [travel - Türkiye (Turkey)]
+tags : [travel-土耳其]
 ---
 
 嚟Cappadocia梗係要坐熱氣球啦！  

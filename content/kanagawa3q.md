@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：湘南モノレール - 湘南江の島 → 
 date: 2020-07-23T14:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3q.jpg"]
-tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [travel-日本-神奈川]
 ---
 
 實在太大雨反正又睇唔到咩景  

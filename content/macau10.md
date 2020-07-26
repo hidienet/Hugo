@@ -3,7 +3,7 @@ title: '馮記三盞燈豬腳姜'
 date: 2015-02-23T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/blog-post_23.html" ]
-tags : [flavor - 行膳積腹, travel - macao]
+tags : [flavor - 行膳積腹, travel-澳門]
 ---
 
 不只是坐月才要吃豬腳薑吧...  

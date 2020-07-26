@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：グリコ アイスの実 メロン | 飯田
 date: 2020-07-21T14:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3l.jpg"]
-tags : [flavor - 螞蟻族, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor - 螞蟻族, travel-日本-神奈川]
 ---
 
 臨離開材木座前食返少少雪糕 & ice   

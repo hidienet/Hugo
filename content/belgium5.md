@@ -3,7 +3,7 @@ title: '[小酌酒巡比利時] Day5：Antwerpen → Brussel'
 date: 2019-06-28T00:25:00.001+08:00
 draft: false
 aliases: [ "/2019/06/day-5antwerpen-brussel.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 一日向南；一日向西；一日向東  

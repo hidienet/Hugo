@@ -3,7 +3,7 @@ title: '[小酌酒巡比利時] Day2.2：Naumr'
 date: 2019-05-22T23:25:00.001+08:00
 draft: false
 aliases: [ "/2019/05/day-22naumr.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 買火車飛當然唔可以浪費  

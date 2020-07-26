@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day4：沖縄美ら海水族館'
 date: 2013-11-18T11:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day4_18.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 晨早起來join的local bus tour  

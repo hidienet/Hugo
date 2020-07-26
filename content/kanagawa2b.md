@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day2：金山神社'
 date: 2020-07-03T07:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa2b.jpg"]
-tags : [travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [travel-日本-神奈川]
 ---
 
 話咁快兜完個[平間寺](https://hidie.net/kanagawa2a/)

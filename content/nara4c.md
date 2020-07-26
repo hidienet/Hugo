@@ -3,7 +3,7 @@ title: '[ララ奈良] Day4：東大寺'
 date: 2017-11-10T09:22:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day4_10.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [travel-日本-奈良大阪]
 ---
 
 飽住咁行呢個大大個地方嘅世界文化遺產  

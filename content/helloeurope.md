@@ -3,7 +3,7 @@ title: 'hello europe'
 date: 2014-05-11T11:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/hello-europe.html" ]
-tags : [lifestyle - 逃離852, travel - Italia/ vaticanae/ swiss/ france]
+tags : [lifestyle - 逃離852, travel - 意大利梵蒂岡瑞士法國]
 ---
 
 歐洲跟香港最不同的地方  

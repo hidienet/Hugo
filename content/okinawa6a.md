@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day6：不是room service的酒店房間早餐'
 date: 2013-11-22T09:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day6room-service.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 行膳積腹, travel-日本-沖繩]
 ---
 
 就算是最後一天，在沖縄就不能吃不飽  

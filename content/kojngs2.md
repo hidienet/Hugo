@@ -3,7 +3,7 @@ title: '[Glory Days！鹿児島長崎！] Day2：AMU Plaza （甘味処扇隆庵
 date: 2020-02-25T10:12:00.000+08:00
 draft: false
 aliases: [ "/2020/02/glory-days-day2amu-plaza.html" ]
-tags : [travel - 日本（九州西海道）・ 薩摩鹿児島と肥前長崎]
+tags : [travel-日本-鹿兒島長崎]
 ---
 
 1月1日，天晴。  

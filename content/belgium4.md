@@ -3,7 +3,7 @@ title: '[小酌酒巡比利時] Day4：Leuven → Brussel'
 date: 2019-06-12T00:11:00.002+08:00
 draft: false
 aliases: [ "/2019/06/day-41leuven.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 早餐都未食，就 (又)搭假日六折火車出發...  

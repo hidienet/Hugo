@@ -3,7 +3,7 @@ title: '[仰光好陽光] Day2：Shwedagon Pagoda、Bodhi Nava、Kandawgyi Lake�
 date: 2020-02-19T10:59:00.000+08:00
 draft: false
 aliases: [ "/2020/02/day2shwedagon-pagodabodhi-navakandawgyi.html" ]
-tags : [travel - မြန်မာ・ရန်ကုန်မြို့ (Yangon Myanmar)]
+tags : [travel-緬甸-仰光]
 ---
 
 睇住河景迎接晨曦  

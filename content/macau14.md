@@ -3,7 +3,7 @@ title: 'Restaurant Litoral'
 date: 2015-03-30T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/03/restaurant-litoral.html" ]
-tags : [flavor - 行膳積腹, travel - macao]
+tags : [flavor - 行膳積腹, travel-澳門]
 ---
 
 樣子醜，不過既然好吃也不妨一試對吧！  

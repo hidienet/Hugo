@@ -3,7 +3,7 @@ title: '[Glory Days！鹿児島長崎！] Day8：吉宗 本店 | ごはんカフ
 date: 2020-03-05T10:24:00.000+08:00
 draft: false
 aliases: [ "/2020/03/glory-days-day8.html" ]
-tags : [travel - 日本（九州西海道）・ 薩摩鹿児島と肥前長崎]
+tags : [travel-日本-鹿兒島長崎]
 ---
 
 噢！最後一日喇！  

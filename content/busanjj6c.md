@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day6：하연정 순두부（河蓮庭
 date: 2014-01-19T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day6_5896.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel-南韓-慶州釜山]
 ---
 
 病到無味蕾也吃得出的美味手工豆腐！（yo～）  

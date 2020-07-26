@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day5：한양족발（漢陽豬腳）'
 date: 2014-01-18T11:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day5_18.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel-南韓-慶州釜山]
 ---
 
 美好的早上是需要補充滿滿的骨膠原  

@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day4：오미자차 (五味子茶)'
 date: 2014-01-16T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day4_7450.html" ]
-tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 飲！, travel-南韓-慶州釜山]
 ---
 
 喝杯茶，hea一下  

@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 5：43 (キャラントトロワ) | 縮景園 |
 date: 2019-03-18T10:39:00.000+08:00
 draft: false
 aliases: [ "/2019/03/day-543-aeon-mallnanas.html" ]
-tags : [travel - 日本（中国山陽道）・ 安芸広島]
+tags : [travel-日本-廣島]
 ---
 
 嗱~ 咪話我去旅行只係周圍食嘢喇…  

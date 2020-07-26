@@ -3,7 +3,7 @@ title: 'Blue Blue Cebú（4D3N）'
 date: 2017-09-22T09:09:00.000+08:00
 draft: false
 aliases: [ "/2017/09/blue-blue-cebu4d3n.html" ]
-tags : [lifestyle - 逃離852, travel - Pilipinas・Cebú]
+tags : [lifestyle - 逃離852, travel-菲律賓-宿霧]
 ---
 
 我在Cebú天氣晴  

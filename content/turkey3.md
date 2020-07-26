@@ -3,7 +3,7 @@ title: '[高溫熱氣土耳其] Day3：Sultan Ahmet Camii、Topkapı Sarayı Mü
 date: 2020-03-13T10:19:00.000+08:00
 draft: false
 aliases: [ "/2020/03/day3sultan-ahmet-camiitopkap-saray.html" ]
-tags : [travel - Türkiye (Turkey)]
+tags : [travel-土耳其]
 ---
 
 又係响酒店食咗早餐先出發  

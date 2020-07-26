@@ -3,7 +3,7 @@ title: '[小酌酒巡比利時] Day3.2：Gent → Brussel'
 date: 2019-06-04T20:57:00.002+08:00
 draft: false
 aliases: [ "/2019/06/day-32gent-brussel.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 買咗火車飛同有咁好嘅陽光梗係唔好嘥！  

@@ -3,7 +3,7 @@ title: '[葡] A Petisqueira'
 date: 2015-04-20T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/04/a-petisqueira.html" ]
-tags : [flavor - 行膳積腹, travel - macao]
+tags : [flavor - 行膳積腹, travel-澳門]
 ---
 
 去的澳門不會不吃道地葡國菜吧！  

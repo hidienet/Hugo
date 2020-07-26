@@ -3,7 +3,7 @@ title: '[ドキドキ鳥取]  Day8：皆生 → イオンモール日吉津 → 
 date: 2020-02-17T12:16:00.000+08:00
 draft: false
 aliases: [ "/2020/02/day8.html" ]
-tags : [travel - 日本（中国山陰道）・ 伯耆米子、北榮、倉吉、因幡鳥取、境港]
+tags : [travel-日本-鳥取]
 ---
 
 好喇 last day喇，落樓浸個溫泉先  

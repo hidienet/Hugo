@@ -3,7 +3,7 @@ title: '[荷蘭正呀喂！] Day7：Amsterdam, AMS → HKG'
 date: 2019-10-28T14:41:00.000+08:00
 draft: false
 aliases: [ "/2019/10/day7amsterdam-ams-hkg.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 最後一朝喇～～～（淚人）  

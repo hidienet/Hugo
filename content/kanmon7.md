@@ -3,7 +3,7 @@ title: '[C''mon 関門！] Day7： 下関 → 門司 → 小倉'
 date: 2018-01-25T09:29:00.000+08:00
 draft: false
 aliases: [ "/2018/01/cmon-day7.html" ]
-tags : [travel - 日本（中国山陽道と九州西海道）・ 長門山口と豊前北九州]
+tags : [travel-日本-小倉關門長門]
 ---
 
 仲諗住早起的人兒有魚吃

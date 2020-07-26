@@ -3,7 +3,7 @@ title: '晃記餅家 肉切酥'
 date: 2013-10-04T15:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/blog-post.html" ]
-tags : [travel - macao, flavor - 小食部]
+tags : [travel-澳門, flavor - 小食部]
 ---
 
 我不吃雞仔餅的，從小已覺得這東西很臭  

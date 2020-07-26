@@ -8,10 +8,10 @@ tags : [travel-日本-奈良大阪]
 
 除咗食，都係食。  
 
-[![](https://c1.staticflickr.com/5/4343/36635557406_501fc0d62b_z.jpg)](https://c1.staticflickr.com/5/4343/36635557406_501fc0d62b_z.jpg)
+![](/images/osaka2a.jpg)
 
 住**黒門市場**最方便就係  
-想幾時落樓食都得  
+想幾時[落樓食](https://hidie.net/osaka2a/)都得  
 早少少落樓就唔駛同人迫  
 不過呢度唔係好似築地  
 要凌晨五點就要覓食  
@@ -19,9 +19,9 @@ tags : [travel-日本-奈良大阪]
 但係早啦就唔代表冇嘢食  
 仲要係比一般人食得更新鮮呢  
 
-[![](https://c1.staticflickr.com/5/4387/36286199670_41088a64c4_z.jpg)](https://c1.staticflickr.com/5/4387/36286199670_41088a64c4_z.jpg)
+![](/images/osaka2b.jpg)
 
-...同埋做即劏吞拿魚嘅第一個顧客  
+...同埋做[即劏吞拿魚](https://hidie.net/osaka2b/)嘅第一個顧客  
 個師傅未開鋪仲劏緊嗰陣  
 應該見我兜咗响舖頭好多次  
 終於有得食，佢仲送多兩塊とろ（感動）  
@@ -32,16 +32,16 @@ tags : [travel-日本-奈良大阪]
 就算去道頓堀呀心斎橋嗰啲都未開舖啦  
 飯氣攻心，返上apartment瞓陣先  
 
-[![](https://c1.staticflickr.com/5/4432/35846929884_4bc6351e32_z.jpg)](https://c1.staticflickr.com/5/4432/35846929884_4bc6351e32_z.jpg)
+![](/images/osaka2c.jpg)
 
-瞓醒又落樓，有啲口渴飲返杯豆漿  
+瞓醒又落樓，有啲口渴飲返杯[豆漿](https://hidie.net/osaka2c/)  
 濃到爆，飽多過解渴 XDDD  
 
-[![](https://c1.staticflickr.com/5/4379/35846929514_43e2ea1a48_z.jpg)](https://c1.staticflickr.com/5/4379/35846929514_43e2ea1a48_z.jpg)
+[![](/images/osaka2d3.jpg)
 
 諗住行去難波方向  
 點知行到千日前附近  
-俾**りくろーおじさんの店**個叮叮叮截停咗  
+[りくろーおじさんの店](https://hidie.net/osaka2d/)個叮叮叮截停咗  
 啱啱出爐嘅**cheese cake**  
 仲要無人排隊  
 香氣飄到周圍都係  

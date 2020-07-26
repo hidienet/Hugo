@@ -3,7 +3,7 @@ title: '[ララ奈良] Day4：奈良公園 吉城園'
 date: 2017-11-09T09:11:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day4.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [travel-日本-奈良大阪]
 ---
 
 一朝早又嚟奈良公園（番外篇）晨運  

@@ -3,7 +3,7 @@ title: '[高溫熱氣土耳其] Day1：HKG → IST | Sütiş Special、Çemberli
 date: 2020-03-09T10:19:00.000+08:00
 draft: false
 aliases: [ "/2020/03/day1hkg-ist-sutis-specialcemberlitas.html" ]
-tags : [lifestyle - 逃離852, travel - Türkiye (Turkey)]
+tags : [lifestyle - 逃離852, travel-土耳其]
 ---
 
 凌晨起飛坐12粒鐘  

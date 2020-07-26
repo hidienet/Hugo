@@ -3,7 +3,7 @@ title: '[仰光好陽光] Day4：Shwe Htoo、Bogyoke Market（Coffee Melody）�
 date: 2020-02-21T11:31:00.000+08:00
 draft: false
 aliases: [ "/2020/02/day4shwe-htoobogyoke-marketcoffee.html" ]
-tags : [travel - မြန်မာ・ရန်ကုန်မြို့ (Yangon Myanmar)]
+tags : [travel-緬甸-仰光]
 ---
 
 話咁快就年初四，聽日就要年初五咁樣喇  

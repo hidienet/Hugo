@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day1：石垣牛とアグーの店「守礼」'
 date: 2013-11-10T18:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day1.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 行膳積腹, travel-日本-沖繩]
 ---
 
 先吃完不太好吃的機場餐和超！難！吃！的飛機餐  

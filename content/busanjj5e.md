@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day5：baskin robbins'
 date: 2014-01-18T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day5baskin-robbins.html" ]
-tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 螞蟻族, travel-南韓-慶州釜山]
 ---
 
 來自南加州的baskin robbins  

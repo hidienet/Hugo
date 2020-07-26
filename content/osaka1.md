@@ -33,22 +33,21 @@ tags : [lifestyle - 逃離852, travel-日本-奈良大阪]
 
 [うに！うに！うに！](https://hidie.net/osaka1c/)  
   
-遠征：黒門市場 → 道頓堀 → 心斎橋  
+遠征：黒門市場 → [道頓堀](https://hidie.net/osaka1d/) → 心斎橋  
   
   
+![](/images/osaka1e.jpg)
 
-[![](https://c1.staticflickr.com/5/4367/35861898603_0da7f17609_z.jpg)](https://c1.staticflickr.com/5/4367/35861898603_0da7f17609_z.jpg)
-
-晚餐時間：蟹コース@**葉隠**  
+晚餐時間：蟹コース@[葉隠](https://hidie.net/osaka1e/)  
 抵食嘅，不過只可以話係抵食  
 一分錢一分貨啦  
 唔係唔新鮮嗰種係份量真係少咗啲  
 都好嘅，仲可以出去繼續食  
 （人生滿希望正能量滿滿，哈哈哈）  
 
-[![](https://c1.staticflickr.com/5/4355/36633935876_23ec160e8a_z.jpg)](https://c1.staticflickr.com/5/4355/36633935876_23ec160e8a_z.jpg)
+![](/images/osaka1f1.jpg)
 
-**チーズタルトかき氷** @**PABLO**  
+**チーズタルトかき氷** @[PABLO](https://hidie.net/osaka1f/)  
 食完成個course都唔係頂住個肚  
 行兩粒鐘就可以食得落甜品喇  
 PABLO係食cheese tart嘅  
@@ -56,22 +55,22 @@ PABLO係食cheese tart嘅
 响撈埋嚟做瀨尿牛丸丫笨嘅情況下  
 啪返個cheese tart刨冰先（期間・数量限定）  
 
-[![](https://c1.staticflickr.com/5/4394/36680881325_748011eb4d_z.jpg)](https://c1.staticflickr.com/5/4394/36680881325_748011eb4d_z.jpg)
+![](/images/osaka1g0.jpg)
 
 坐夠唞夠又行過  
 夠夜喇係時候食宵夜喇  
 
-[![](https://c1.staticflickr.com/5/4337/36511245222_2bd686835f_z.jpg)](https://c1.staticflickr.com/5/4337/36511245222_2bd686835f_z.jpg)
+![](/images/osaka1g.jpg)
 
-**せんべい** @**たこ八**  
+**せんべい** @[たこ八](https://hidie.net/osaka1g/)  
 嚟大阪無理由唔食たこ焼き  
 但又想食啲再大阪風味啲嗰種  
 所以揀呢種大阪媽咪整俾佢哋啲細路嘅小食
 
-[![](https://c1.staticflickr.com/5/4353/36680692945_84766e352d_z.jpg)](https://c1.staticflickr.com/5/4353/36680692945_84766e352d_z.jpg)
+![](/images/osaka1h.jpg)
 
 行夠喇今日，返apartment  
-食**車厘子**～
+食[車厘子](https://hidie.net/osaka1h/)～
 
   
 

@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day3：從ジュンク堂書店到Aeon'
 date: 2013-11-17T14:30:00.001+08:00
 draft: false
 aliases: [ "/2013/11/day3aeon.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 遊遊蕩蕩  

@@ -19,19 +19,19 @@ tags : [lifestyle - 逃離852, travel - 日本（関西近畿）・ 大和奈良
   
 响難波南海電鉄落車就拖喼去apartment  
 
-[![](https://c1.staticflickr.com/5/4422/36285337170_c78d98ff1b_z.jpg)](https://c1.staticflickr.com/5/4422/36285337170_c78d98ff1b_z.jpg)
+![](/images/osaka1a.jpg)
 
-正呀今次，住响**黒門市場**上蓋  
+正呀今次，住响[黒門市場](https://hidie.net/osaka1a/)上蓋  
 冇咩嘅係超～ 方～ 便～ 囉～～～  
 放低完行李就即刻出發去食嘢（出發）   
 
-[![](https://c1.staticflickr.com/5/4364/36962296581_2a5225e026_z.jpg)](https://c1.staticflickr.com/5/4364/36962296581_2a5225e026_z.jpg)
+![](/images/osaka1b.jpg)
 
-ふぐ！ふぐ！ふぐ！  
+[ふぐ！ふぐ！ふぐ！](https://hidie.net/osaka1b/)  
 
-[![](https://c1.staticflickr.com/5/4364/36291113023_7f6b684710_z.jpg)](https://c1.staticflickr.com/5/4364/36291113023_7f6b684710_z.jpg)
+![](/images/osaka1c.jpg)
 
-うに！うに！うに！  
+[うに！うに！うに！](https://hidie.net/osaka1c/)  
   
 遠征：黒門市場 → 道頓堀 → 心斎橋  
   

@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day4：남해집 돼지국밥（豬肉
 date: 2014-01-15T21:50:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day4_1990.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel-南韓-慶州釜山]
 ---
 
 眼光光飲碗豬肉湯～  

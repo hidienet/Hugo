@@ -3,7 +3,7 @@ title: '[高溫熱氣土耳其] Day8：Cappadocia → İstanbul | IST→ HKG'
 date: 2020-03-23T10:43:00.000+08:00
 draft: false
 aliases: [ "/2020/03/day8cappadocia-istanbul-ist-hkg.html" ]
-tags : [travel - Türkiye (Turkey)]
+tags : [travel-土耳其]
 ---
 
 起身落街散步  

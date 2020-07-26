@@ -3,7 +3,7 @@ title: '[ララ奈良] Day2：奈良市総合観光案内所、JR奈良駅'
 date: 2017-11-03T09:39:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2jr.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [travel-日本-奈良大阪]
 ---
 
 揼印仔時間...  

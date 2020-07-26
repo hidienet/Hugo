@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] 番外：sarangchae guesthouse（사�
 date: 2014-01-14T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/sarangchae-guesthouse.html" ]
-tags : [travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 誠意推薦這次住的民宿～  

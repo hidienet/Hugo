@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day4：호두과자、델리만쥬（h
 date: 2014-01-16T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day4hodugwajadeli-manjoo.html" ]
-tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 螞蟻族, travel-南韓-慶州釜山]
 ---
 
 車站裡面買的  

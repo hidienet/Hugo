@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 6：あなごめし うえの | 岩村菓子舗
 date: 2019-03-19T11:00:00.001+08:00
 draft: false
 aliases: [ "/2019/03/day-6.html" ]
-tags : [travel - 日本（中国山陽道）・ 安芸広島]
+tags : [travel-日本-廣島]
 ---
 
 因為今朝要「遠行」...  

@@ -3,7 +3,7 @@ title: '[荷蘭正呀喂！] Day2：Alkmaar（Kaasmarkt） → Amsterdam（Kings
 date: 2019-07-24T22:00:00.000+08:00
 draft: false
 aliases: [ "/2019/07/day2alkmaarkaasmarkt-amsterdamkingsnight.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 朝早八點幾已經响火車上（捽眼）  

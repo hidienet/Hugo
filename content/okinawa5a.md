@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day5：doutor coffee'
 date: 2013-11-20T09:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day5doutor-coffee.html" ]
-tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 飲！, travel-日本-沖繩]
 ---
 
 住在国際通這遊客區  

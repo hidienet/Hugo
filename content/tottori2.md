@@ -3,7 +3,7 @@ title: '[ドキドキ鳥取] Day2：米子 ↔ 境港（四六時中、大漁市
 date: 2020-01-14T21:03:00.000+08:00
 draft: false
 aliases: [ "/2020/01/day2.html" ]
-tags : [travel - 日本（中国山陰道）・ 伯耆米子、北榮、倉吉、因幡鳥取、境港]
+tags : [travel-日本-鳥取]
 ---
 
 話說酒店嘅welcome drink係自己响雪櫃度揀  

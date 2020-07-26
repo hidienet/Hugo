@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day2：磯丸水産'
 date: 2020-07-14T19:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa2s.jpg"]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-日本-神奈川]
 ---
 
 食完甜品又未想瞓住  

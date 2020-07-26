@@ -3,7 +3,7 @@ title: '[仰光好陽光] Day3：999 Shan Noodle Shop、Yangon Circular Railway�
 date: 2020-02-20T10:50:00.000+08:00
 draft: false
 aliases: [ "/2020/02/day3999-shan-noodle-shopyangon-circular.html" ]
-tags : [travel - မြန်မာ・ရန်ကုန်မြို့ (Yangon Myanmar)]
+tags : [travel-緬甸-仰光]
 ---
 
 同一間酒店房同一個露台  

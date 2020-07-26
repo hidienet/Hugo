@@ -1,5 +1,5 @@
 ---
-title: '[大阪，美味しいね～] Day1：PABLO - チーズタルトかき氷*'
+title: '[大阪，美味しいね～] Day1：PABLO - チーズタルトかき氷'
 date: 2020-07-29T07:30:00.000+08:00
 draft: false
 images: ["/images/osaka1f.jpg"]

@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day3：泡盛 古酒 瑞泉酒造'
 date: 2013-11-15T21:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3_317.html" ]
-tags : [flavor - 飲！, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 飲！, travel-日本-沖繩]
 ---
 
 能喝就不怕試！  

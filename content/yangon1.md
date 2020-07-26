@@ -3,7 +3,7 @@ title: '[仰光好陽光] Day1：Bogyoke Market (A-1 LOTE THAR)、Inya Day Spa�
 date: 2020-02-18T10:48:00.000+08:00
 draft: false
 aliases: [ "/2020/02/day1bogyoke-market-1-lote-tharinya-day.html" ]
-tags : [travel - မြန်မာ・ရန်ကုန်မြို့ (Yangon Myanmar)]
+tags : [travel-緬甸-仰光]
 ---
 
 住郵輪樣嘅酒店當然會住露台河景房  

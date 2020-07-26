@@ -3,7 +3,7 @@ title: '[高溫熱氣土耳其] Day5：İstanbul → Cappadocia'
 date: 2020-03-17T10:44:00.000+08:00
 draft: false
 aliases: [ "/2020/03/day5istanbul-cappadocia.html" ]
-tags : [travel - Türkiye (Turkey)]
+tags : [travel-土耳其]
 ---
 
 响酒店食埋個早餐就執好嘢  

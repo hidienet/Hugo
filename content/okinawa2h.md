@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day2：琉球食king Eilly（エイリー）'
 date: 2013-11-13T22:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day2king-eilly.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 行膳積腹, travel-日本-沖繩]
 ---
 
 200円一杯的オリオン生サザンスター  

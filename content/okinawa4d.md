@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day4：塩屋 雪塩ソフトクリーム'
 date: 2013-11-19T12:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day4_19.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 螞蟻族, travel-日本-沖繩]
 ---
 
 坐完長途車（2小時），經過塩屋  

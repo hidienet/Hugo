@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day2：第9回壺屋やちむん通り祭り'
 date: 2013-11-12T22:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day29.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 這個祭典裡雖然沒有體驗製作陶器  

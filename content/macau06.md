@@ -3,7 +3,7 @@ title: '明記美食 香蕉仔'
 date: 2015-02-02T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/blog-post.html" ]
-tags : [travel - macao, flavor - 小食部]
+tags : [travel-澳門, flavor - 小食部]
 ---
 
 不知道香港有沒有  

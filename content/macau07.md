@@ -3,7 +3,7 @@ title: '最香餅家 虫仔餅'
 date: 2015-02-09T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/blog-post_9.html" ]
-tags : [flavor - 螞蟻族, travel - macao]
+tags : [flavor - 螞蟻族, travel-澳門]
 ---
 
 sorry～ 相機不能食先（笑）  

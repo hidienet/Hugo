@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day1：Saturday market (?)'
 date: 2014-01-11T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day1saturday-market.html" ]
-tags : [travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 搭凌晨飛機由香港到釜山（red-eye flight）  

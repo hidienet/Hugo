@@ -3,7 +3,7 @@ title: '[ララ奈良] Day3： NARA Visitor Center & Inn - 茶道体験'
 date: 2017-11-08T09:30:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day3-nara-visitor-center-inn.html" ]
-tags : [flavor - 飲！, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 飲！, travel-日本-奈良大阪]
 ---
 
 同JR附近嘅奈良市総合観光案内所一樣  

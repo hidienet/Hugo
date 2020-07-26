@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day2：호떡 （糖餅）'
 date: 2014-01-13T16:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day2_6071.html" ]
-tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 韓國的街頭甜味小吃又豈能沒有호떡 (hoddeok)？  

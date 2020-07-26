@@ -37,7 +37,7 @@ tags : [travel-日本-奈良大阪]
 瞓醒又落樓，有啲口渴飲返杯[豆漿](https://hidie.net/osaka2c/)  
 濃到爆，飽多過解渴 XDDD  
 
-[![](/images/osaka2d3.jpg)
+![](/images/osaka2d3.jpg)
 
 諗住行去難波方向  
 點知行到千日前附近  
@@ -52,20 +52,20 @@ tags : [travel-日本-奈良大阪]
 熱辣辣好好味 ← 呢種食法應該唔太多人試過  
 （之後再雪凍食，呢個先係真正食用方法）  
 
-[![](https://c1.staticflickr.com/5/4423/36635556526_3db1f353ba_z.jpg)](https://c1.staticflickr.com/5/4423/36635556526_3db1f353ba_z.jpg)
+![](/images/osaka2e1.jpg)
 
 食完再再再走出apartment  
 兜到去難波，覺得冇嘢行就沿千日前行  
-又俾香味迷倒 @**鳥吾郎**  
+又俾香味迷倒 @[鳥吾郎](https://hidie.net/osaka2e/)  
 呢個旅程唯一一次食嘅九州嘢  
 乜都想試... 梗係食兩溝啦  
 兩隻味都好食（ゆず味、しょうゆ味）  
 雞肉又香又軟好好食呢～  
 
-[![](https://c1.staticflickr.com/5/4392/36682058365_d19d4b673b_z.jpg)](https://c1.staticflickr.com/5/4392/36682058365_d19d4b673b_z.jpg)
+![](/images/osaka2f.jpg)
 
 食開咗個胃又繼續食  
-**たこ焼き ちゃぷちゃぷ** @**道頓堀赤鬼**  
+**たこ焼き ちゃぷちゃぷ** @[道頓堀赤鬼](https://hidie.net/osaka2f/)  
 呢度先有嘅放湯章魚燒  
 即要即整熱到爆燈  
 個湯係柚子味唔油膩  
@@ -74,11 +74,11 @@ tags : [travel-日本-奈良大阪]
 所以個味更更更鮮，正呀  
 難怪佢會係Michelin推介店呢  
 
-[![](https://c1.staticflickr.com/5/4390/36512731062_a91b2d5775_z.jpg)](https://c1.staticflickr.com/5/4390/36512731062_a91b2d5775_z.jpg)
+![](/images/osaka2g.jpg)
 
-除咗たこ焼き向大阪梗係唔可以唔食お好み焼き  
+除咗たこ焼き响大阪梗係唔可以唔食お好み焼き  
 不過一般粉漿嘅大阪燒好漏嘅  
-食就食又係Michelin推薦嘅**美津の**  
+食就食又係Michelin推薦嘅[美津の](https://hidie.net/osaka2g/)  
 要light啲卻味道維持高水準  
 就揀店舖人氣NO. 1嘅**山芋焼**  
 用淮山磨蓉代替小麥粉  

@@ -3,7 +3,7 @@ title: '[錦秋京都高野山] Day1：KIX → 京都'
 date: 2019-11-05T22:23:00.002+08:00
 draft: false
 aliases: [ "/2019/11/day1kix.html" ]
-tags : [lifestyle - 逃離852, travel - 日本（関西近畿南海道）・ 山城京都と紀伊和歌山]
+tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 ---
 
 凌晨機，清晨落機  

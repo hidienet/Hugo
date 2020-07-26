@@ -3,7 +3,7 @@ title: '[ララ奈良] Day3：和やまむら'
 date: 2017-11-08T18:21:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day3_8.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 行膳積腹, travel-日本-奈良大阪]
 ---
 
 擒晚full booking所以今晚先嚟食  

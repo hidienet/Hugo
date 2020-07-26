@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day2：YEBISU BAR | ヱビスバー'
 date: 2020-07-14T07:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa2q.jpg"]
-tags : [flavor - 飲！, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor - 飲！, travel-日本-神奈川]
 ---
 
 食完飲完就搭京急返川崎  

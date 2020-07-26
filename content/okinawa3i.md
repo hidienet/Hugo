@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day3：blue seal 紅芋軟雪糕'
 date: 2013-11-16T20:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3blue-seal.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（沖縄琉球）・沖縄]
+tags : [flavor - 螞蟻族, travel-日本-沖繩]
 ---
 
 在沖縄，很多地方也有這家人氣雪糕店  

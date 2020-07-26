@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] 番外：daiso zoo world'
 date: 2014-01-18T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/daiso-zoo-world.html" ]
-tags : [travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 在daiso裡面玩具部裡  

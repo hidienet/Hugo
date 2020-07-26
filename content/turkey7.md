@@ -3,7 +3,7 @@ title: '[高溫熱氣土耳其] Day7：Cappadocia Green Tour - O Ağacın Altı 
 date: 2020-03-20T10:26:00.000+08:00
 draft: false
 aliases: [ "/2020/03/day7cappadocia-green-tour-o-agacn-alt.html" ]
-tags : [travel - Türkiye (Turkey)]
+tags : [travel-土耳其]
 ---
 
 唔駛趕住睇日出...  

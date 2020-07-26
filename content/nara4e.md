@@ -3,7 +3,7 @@ title: '[ララ奈良] Day4：麺闘庵'
 date: 2017-11-13T09:33:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day4_13.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 行膳積腹, travel-日本-奈良大阪]
 ---
 
 反正個東大寺鬼咁大唔會行得晒  

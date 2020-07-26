@@ -3,7 +3,7 @@ title: '[ララ奈良] Day1：栗 ならまち店'
 date: 2017-10-30T15:30:00.000+08:00
 draft: false
 aliases: [ "/2017/10/day1_30.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 行膳積腹, travel-日本-奈良大阪]
 ---
 
 話說今晚想去阿耶食癲  

@@ -3,7 +3,7 @@ title: '[ララ奈良] Day3：茶房暖暖'
 date: 2017-11-07T15:49:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day3_7.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 行膳積腹, travel-日本-奈良大阪]
 ---
 
 明明日本人話有病先會去食粥  

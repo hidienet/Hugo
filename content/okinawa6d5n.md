@@ -3,7 +3,7 @@ title: '琉球戀吃活樂遊 (6D5N)'
 date: 2013-11-23T23:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/6d5n_23.html" ]
-tags : [lifestyle - 逃離852, travel - 日本（沖縄琉球）・沖縄]
+tags : [lifestyle - 逃離852, travel-日本-沖繩]
 ---
 
 ...... 點滴在心頭 XD  

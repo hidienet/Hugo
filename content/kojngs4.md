@@ -3,7 +3,7 @@ title: '[Glory Days！鹿児島長崎！] Day4：AMU Plaza（トランドール�
 date: 2020-02-27T10:51:00.000+08:00
 draft: false
 aliases: [ "/2020/02/glory-days-day4amu-plaza-youmebingo.html" ]
-tags : [travel - 日本（九州西海道）・ 薩摩鹿児島と肥前長崎]
+tags : [travel-日本-鹿兒島長崎]
 ---
 
 冇plan過嚟長崎有咩好做...  

@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day2：那霸市第一牧志公設市場'
 date: 2013-11-11T09:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day2.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 住国際通，去市場就是方便  

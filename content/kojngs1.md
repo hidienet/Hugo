@@ -3,7 +3,7 @@ title: '[Glory Days！鹿児島長崎！] Day1：鹿児島ラーメン 我流風
 date: 2020-02-24T10:14:00.000+08:00
 draft: false
 aliases: [ "/2020/02/glory-days-day1.html" ]
-tags : [lifestyle - 逃離852, travel - 日本（九州西海道）・ 薩摩鹿児島と肥前長崎]
+tags : [lifestyle - 逃離852, travel-日本-鹿兒島長崎]
 ---
 
 一年嘅最後一日，都係選擇逃離852  

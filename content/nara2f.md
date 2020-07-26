@@ -3,7 +3,7 @@ title: '[ララ奈良] Day2：大仏プリン'
 date: 2017-11-02T16:29:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2_61.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪, flavor - 螞蟻族]
+tags : [travel-日本-奈良大阪, flavor - 螞蟻族]
 ---
 
 嘆返個滑滑嘅下午茶先...  

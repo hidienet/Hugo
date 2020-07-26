@@ -3,7 +3,7 @@ title: '[ララ奈良] Day2：酒房 亜耶'
 date: 2017-11-03T19:20:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2_3.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-日本-奈良大阪]
 ---
 
 諗住晚餐食懷石料理  

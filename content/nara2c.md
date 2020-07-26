@@ -3,7 +3,7 @@ title: '[ララ奈良] Day 2：春鹿釀造元（今西清兵衛商店）'
 date: 2017-11-01T09:39:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day-2.html" ]
-tags : [flavor - 飲！, travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [flavor - 飲！, travel-日本-奈良大阪]
 ---
 
 奈良 － 日本酒発祥の地  

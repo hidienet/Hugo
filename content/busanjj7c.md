@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day7：士多啤梨again x 蜜柑'
 date: 2014-01-20T16:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day7again-x.html" ]
-tags : [travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 份量好多，又平又好食  

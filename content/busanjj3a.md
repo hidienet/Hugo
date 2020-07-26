@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day3：국순당 막걸리 우국생'
 date: 2014-01-14T09:00:00.001+08:00
 draft: false
 aliases: [ "/2014/01/day3_695.html" ]
-tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 飲！, travel-南韓-慶州釜山]
 ---
 
 再試另一막걸리品牌  

@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day4：Lotteria - Lotz burger'
 date: 2014-01-17T12:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day4lotteria-lotz-burger.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 行膳積腹, travel-南韓-慶州釜山]
 ---
 
 如果去到外國都要食麥記快餐的話  

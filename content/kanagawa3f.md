@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：北鎌倉「円」- 葉山牛懐石set'
 date: 2020-07-18T07:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3f.jpg"]
-tags : [flavor - 行膳積腹, travel-日本関東東海道-相模神奈川三浦川崎横浜鎌倉]
+tags : [flavor - 行膳積腹, travel-日本-神奈川]
 ---
 
 今餐lunch卜咗北鎌倉「円」食懷石料理  

@@ -3,7 +3,7 @@ title: '禮記 - 雪糕磚、雪糕三文治、紅荳雪條'
 date: 2015-03-02T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/03/blog-post_2.html" ]
-tags : [flavor - 螞蟻族, travel - macao]
+tags : [flavor - 螞蟻族, travel-澳門]
 ---
 
 六十年代的裝修，家族式經營的店子  

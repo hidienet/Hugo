@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day1：Dunkin'' Donuts - cinnamon chur
 date: 2014-01-11T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day1dunkin-donuts-cinnamon-churros.html" ]
-tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 螞蟻族, travel-南韓-慶州釜山]
 ---
 
 踏足韓國的第一餐（飛機餐不在韓國本土吃的）  

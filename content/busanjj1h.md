@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day1：쌈밥（菜包飯）'
 date: 2014-01-12T13:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day1_5610.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 慶州有名的包飯（쌈밥）  

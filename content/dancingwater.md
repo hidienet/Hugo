@@ -3,7 +3,7 @@ title: '[Franco Dragone] 水舞間'
 date: 2015-01-19T20:00:00.000+08:00
 draft: false
 aliases: [ "/2015/01/franco-dragone.html" ]
-tags : [amusement - drama, travel - macao]
+tags : [amusement - drama, travel-澳門]
 ---
 
 沒有水母的水舞間（爛爆）  

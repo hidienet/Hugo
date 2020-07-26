@@ -3,7 +3,7 @@ title: '[趁熱食，曼谷！] Day1：Taxi Taxi'
 date: 2017-09-04T09:21:00.000+08:00
 draft: false
 aliases: [ "/2017/09/day1taxi-taxi.html" ]
-tags : [lifestyle - 逃離852, travel - ประเทศไทย・กรุงเทพ (Bangkok)]
+tags : [lifestyle - 逃離852, travel-泰國-曼谷]
 ---
 
 唔知由幾時開始  

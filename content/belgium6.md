@@ -3,7 +3,7 @@ title: '[小酌酒巡比利時] Day6：Brussel'
 date: 2019-07-04T23:27:00.001+08:00
 draft: false
 aliases: [ "/2019/07/day-6brussel.html" ]
-tags : [travel - België & Nederland (Belgium & Netherlands)]
+tags : [travel-比利時荷蘭]
 ---
 
 今日唔搭遠程火車，齋留Brussel都玩足一日  

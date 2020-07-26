@@ -3,7 +3,7 @@ title: '[C''mon 関門！] Day1： 福岡空港 → 小倉'
 date: 2018-01-15T09:43:00.000+08:00
 draft: false
 aliases: [ "/2018/01/cmon-day1.html" ]
-tags : [travel - 日本（中国山陽道と九州西海道）・ 長門山口と豊前北九州, lifestyle - 逃離852]
+tags : [travel-日本-小倉關門長門, lifestyle - 逃離852]
 ---
 
 日出班機飛到過嚟啱啱好中午  

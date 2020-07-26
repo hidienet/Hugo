@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day3：琉球舞踊＠首里公民館'
 date: 2013-11-14T20:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3_7764.html" ]
-tags : [travel - 日本（沖縄琉球）・沖縄]
+tags : [travel-日本-沖繩]
 ---
 
 去旅行就是要體驗當地人的生活  

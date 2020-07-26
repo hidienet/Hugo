@@ -3,7 +3,7 @@ title: '[ララ奈良] Day3：奈良国立博物館'
 date: 2017-11-07T09:20:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day3.html" ]
-tags : [travel - 日本（関西近畿）・ 大和奈良と摂津大阪]
+tags : [travel-日本-奈良大阪]
 ---
 
 行行吓到咗**奈良国立博物館**  

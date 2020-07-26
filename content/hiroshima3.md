@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 3：Yesterday | 田頭茶舗 | みっちゃん�
 date: 2018-10-10T09:31:00.000+08:00
 draft: false
 aliases: [ "/2018/10/day-3yesterday.html" ]
-tags : [travel - 日本（中国山陽道）・ 安芸広島]
+tags : [travel-日本-廣島]
 ---
 
 広島同[名古屋](https://www.hidie.net/2015/11/go-go-nagoya8d7n.html)一樣係有洋食朝食文化  

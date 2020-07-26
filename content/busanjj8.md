@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day8：lotte pasteur 100% all nature l
 date: 2014-01-22T04:45:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day8lotte-pasteur-100-all-nature-low.html" ]
-tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 飲！, travel-南韓-慶州釜山]
 ---
 
 清晨機回家，肚子不餓不吃早餐  

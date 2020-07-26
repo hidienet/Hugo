@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day4：매실마을（maesil maeul plu
 date: 2014-01-15T13:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day4maesil-maeul-plum-wine.html" ]
-tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 飲！, travel-南韓-慶州釜山]
 ---
 
 吃的東西未到，先喝酒  

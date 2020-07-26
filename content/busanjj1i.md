@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day1：황남빵（慶州 皇南餅）
 date: 2014-01-12T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day1_12.html" ]
-tags : [flavor - 螞蟻族, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [travel-南韓-慶州釜山]
 ---
 
 超好吃的慶州甜點！！！  

@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：Pat‘ à Chou'
 date: 2014-04-05T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2pat-chou.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon), flavor - 螞蟻族]
+tags : [travel-越南-西貢, flavor - 螞蟻族]
 ---
 
 Pat‘ à Chou是間法式cafe  

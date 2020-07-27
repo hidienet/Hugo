@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] 大須商店街'
 date: 2015-10-05T14:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya_5.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [travel-日本-名古屋]
 ---
 
 在名古屋嘛，除了在**栄**或者**名古屋駅**圍繞的百貨公司商圈  

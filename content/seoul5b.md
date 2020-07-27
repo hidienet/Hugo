@@ -3,7 +3,7 @@ title: '[seoul time] Day5：사용 장수(長壽) 생막걸리'
 date: 2014-10-29T18:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day5_29.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 飲！]
+tags : [travel-南韓-首爾, flavor - 飲！]
 ---
 
 「食海鮮一定要配酒，才能好好殺菌」（H氏定理）  

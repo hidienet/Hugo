@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day6：Halbite Pub'
 date: 2014-05-23T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day6halbite-pub.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 在sofia的最後一晚，當然要食鋪勁！  

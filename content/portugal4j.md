@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Praça da Liberdade'
 date: 2017-12-29T09:38:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day4praca-da-liberdade.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 行呀行又返返嚟Porto市中心  

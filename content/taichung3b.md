@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day3：合歡山 雲海'
 date: 2014-08-21T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day3_21.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 除了看[日出](https://hidie.net/taichung3a/)外，當然少不了去看雲海  

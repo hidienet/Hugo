@@ -3,7 +3,7 @@ title: '[食の四国ツアー] 金刀比羅宮 - 幸福の黄色いお守り'
 date: 2020-04-06T15:19:00.001+08:00
 draft: false
 aliases: [ "/2020/04/blog-post.html" ]
-tags : [lifestyle - zakka, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [lifestyle - zakka, travel-日本-四國]
 ---
 
 爬咗785級樓梯去買嘅御守  

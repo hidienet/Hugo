@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Free Sofia Tour'
 date: 2014-05-17T11:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/free-sofia-tour.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 走過這個精華遊覽Sofia的tour  

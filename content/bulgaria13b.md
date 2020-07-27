@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day13：Cafe Aroma  - Caffé Latte '
 date: 2014-06-06T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day13cafe-aroma-caffe-latte.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 去coffee shop hea爆是常識吧  

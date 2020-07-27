@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day3：Davidoff - Caramel Latte'
 date: 2014-05-15T08:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day3davidoff-caramel-latte.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 早上當然要來杯咖啡  

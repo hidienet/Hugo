@@ -3,7 +3,7 @@ title: '[seoul time] Day3：廣藏市場 광장시장'
 date: 2014-10-24T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day3_24.html" ]
-tags : [travel - 남한・서울 (首爾)]
+tags : [travel-南韓-首爾]
 ---
 
 原本就是想看有甚麼地道東西好掃  

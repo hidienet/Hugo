@@ -88,14 +88,14 @@ NO！ NO！ NO！
 要融入當地生活  
 仲要係大阪呢個要買平嘢呀平嘢呀嘅都市  
 
-[![](https://c1.staticflickr.com/5/4353/36512942412_a489dca3aa_z.jpg)](https://c1.staticflickr.com/5/4353/36512942412_a489dca3aa_z.jpg)
+![](/images/osaka2i.jpg)
 
-超級市場梗係要行遠少少去**玉出**啦（握拳）  
+超級市場梗係要行遠少少去[スーパー玉出](https://hidie.net/osaka2i/)啦（握拳）  
 咁就可以由黃昏行到天黑～  
 
-[![](https://c1.staticflickr.com/5/4358/35847598984_150974382c_z.jpg)](https://c1.staticflickr.com/5/4358/35847598984_150974382c_z.jpg)
+![](/images/osaka2j.jpg)
 
-買完返apartment即食  
+買完返apartment[即食](https://hidie.net/osaka2j/)  
 啱啱熟甜到震  
   
 食完生果做乜好？  
@@ -104,18 +104,18 @@ NO！ NO！ NO！
   
   
 
-[![](https://c1.staticflickr.com/5/4381/36513102162_f483f1799f_z.jpg)](https://c1.staticflickr.com/5/4381/36513102162_f483f1799f_z.jpg)
+![](/images/osaka2k.jpg)
 
   
-古早味雪條 @**北極アイス**  
+古早味雪條 @[北極のアイスキャンデー](https://hidie.net/osaka2k/)  
 一直行路就要降溫嘅雪條  
 嗰一刻响佢同ほっぷしゅーくりーむ (Hop Chou A La Cream)揀  
 都唔知幾難取捨呀陰公  
 
-[![](https://c1.staticflickr.com/5/4404/36513260182_ce4600195b_z.jpg)](https://c1.staticflickr.com/5/4404/36513260182_ce4600195b_z.jpg)
+![](https://c1.staticflickr.com/5/4404/36513260182_ce4600195b_z.jpg)
 
 yeah！到咗食晚飯嘅時間  
-呢鋪食得勁喇 @**天ぷら定食 まきの**  
+呢鋪食得勁喇 @[天ぷら定食 まきの](https://hidie.net/osaka2l/)  
 價錢唔貴嘅天ぷら連鎖店  
 整得一啲都唔求其㗎  
 隻名物玉子天個炸漿唔係好厚又脆身  

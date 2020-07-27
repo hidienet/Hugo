@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 5：トップ - ヨーグルッペ
 date: 2017-02-14T21:09:00.002+08:00
 draft: false
 aliases: [ "/2017/02/happy-days-day-5.html" ]
-tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 飲！, travel-日本-鹿兒島宮崎]
 ---
 
 係呀我知呀，呢盒嘢香港周街D超市都有  

@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：夜景 @城山公園展望台'
 date: 2017-06-06T09:38:00.000+08:00
 draft: false
 aliases: [ "/2017/06/happy-days-day-7_6.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 今朝誤打誤撞去咗[城山観光ホテル](https://hidie.net/kojkmi7b/)睇日景嘛  

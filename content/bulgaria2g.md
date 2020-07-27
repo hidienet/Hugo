@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：street art in sofia'
 date: 2014-05-14T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/street-art-in-sofia.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 在[free food tour](https://hidie.net/bulgaria2f/)時義工導遊除了介紹食物跟歷史外  

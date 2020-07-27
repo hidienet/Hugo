@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：鹿港民俗文物館'
 date: 2014-08-30T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day5_5.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 在[丁家大宅](https://hidie.net/taichung5o/)後面街就走到這文物館  

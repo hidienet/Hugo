@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：highlands coffee'
 date: 2014-04-02T20:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2highlands-coffee.html" ]
-tags : [flavor - 飲！, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 飲！, travel-越南-西貢]
 ---
 
 由博物館走出來再走多兩步已覺得好熱  

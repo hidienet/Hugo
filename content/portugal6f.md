@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day6：Guimarães mosey'
 date: 2018-03-26T09:44:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day6guimaraes-mosey.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 呢度主要嘅兩座嘢都參觀完  

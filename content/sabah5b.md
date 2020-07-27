@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day5：魚蛋撈米'
 date: 2014-01-01T07:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day5.html" ]
-tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
+tags : [flavor - 行膳積腹, travel-馬來西亞-沙巴]
 ---
 
 是次旅程的最後一餐@沙巴（已經捨不得）  

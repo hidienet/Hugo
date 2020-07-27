@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day5：名古屋の秋'
 date: 2015-10-14T13:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day5_14.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [travel-日本-名古屋]
 ---
 
 難得地又見到半棵紅葉啊～  

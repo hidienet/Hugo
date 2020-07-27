@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day14：Lisboa'
 date: 2017-08-10T09:43:00.000+08:00
 draft: false
 aliases: [ "/2017/08/day14lisboa.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 擒晚休息夠，今日早啲係行向山行  

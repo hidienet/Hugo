@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 3：hea逛@宮崎橘通り'
 date: 2017-02-02T09:40:00.000+08:00
 draft: false
 aliases: [ "/2017/02/happy-days-hea.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 宮崎D街，有陣淡淡嘅塵味  

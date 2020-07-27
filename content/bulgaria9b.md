@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day9：lavazza cappuccino'
 date: 2014-05-29T16:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day9lavazza-cappuccino.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 飲杯咖啡hea一陣～  

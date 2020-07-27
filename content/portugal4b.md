@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Torre dos Clérigos'
 date: 2017-12-14T09:13:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day4torre-dos-clerigos.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 由café食完行出嚟  

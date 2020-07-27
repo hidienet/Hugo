@@ -3,7 +3,7 @@ title: '[seoul time] Day6：kloud - 100% malt real beer'
 date: 2014-11-02T17:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-day6kloud-100-malt-real-beer.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 飲！]
+tags : [travel-南韓-首爾, flavor - 飲！]
 ---
 
 剛說完沒甚麼都不要喝淡味的韓國啤  

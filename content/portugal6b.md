@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day6：Guimarães'
 date: 2018-03-20T09:59:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day6guimaraes.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 風和日麗好日子呢～  

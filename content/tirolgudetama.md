@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] ぐてたま x チロルチョコ'
 date: 2015-10-04T11:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-x.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
+tags : [travel-日本-名古屋, flavor - 螞蟻族]
 ---
 
 在セブン－イレブン看到der～  

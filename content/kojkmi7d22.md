@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：仙巌園  克灰袋'
 date: 2017-05-24T09:27:00.000+08:00
 draft: false
 aliases: [ "/2017/05/happy-days-day-7_24.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 鮮豔黃色嘅克灰袋係鹿児島先有  

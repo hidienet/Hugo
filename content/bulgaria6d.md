@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day6：2012 Katarzyna Estate Malbec Le Carré d'
 date: 2014-05-23T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day62012-katarzyna-estate-malbec-le.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 宵夜時段喝光光的紅酒  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day3：Raffy Bar & Galeto'
 date: 2014-05-15T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day3raffy-bar.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 brunch time才吃，當然要食餐飽  

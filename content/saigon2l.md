@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：fanny icecream'
 date: 2014-04-05T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2fanny-icecream.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon), flavor - 螞蟻族]
+tags : [travel-越南-西貢, flavor - 螞蟻族]
 ---
 
 這間的雪糕標榜100% nature  

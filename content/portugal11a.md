@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day11：Cintia'
 date: 2018-05-17T09:29:00.000+08:00
 draft: false
 aliases: [ "/2018/05/day11cintia.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 搭一粒鐘有找嘅火車去Sintra（Lisboa - Rossio → **Sintra**）  

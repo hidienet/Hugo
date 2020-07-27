@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day8：鶴の家 栗わらび'
 date: 2015-10-30T19:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day8_18.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
+tags : [travel-日本-名古屋, flavor - 螞蟻族]
 ---
 
 只係食兩三件稲荷寿し係未夠滿足  

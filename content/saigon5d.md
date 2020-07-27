@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day5：Phở Lệ'
 date: 2014-04-10T12:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day5pho-le.html" ]
-tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 行膳積腹, travel-越南-西貢]
 ---
 
 敢說這碗是全球最好吃的越南牛河！

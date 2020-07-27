@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 2：おぐら本店 - おぐらの
 date: 2017-01-19T09:45:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-2_19.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 行膳積腹, travel-日本-鹿兒島宮崎]
 ---
 
 南蠻雞（チキン南蛮）係宮崎名物之一  

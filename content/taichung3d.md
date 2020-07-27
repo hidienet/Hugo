@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day3：小瑞士花園'
 date: 2014-08-22T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day3_84.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 吃過午飯就逛逛花園消化一下～  

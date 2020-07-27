@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day3：煉瓦亭 ポークカツレツ'
 date: 2013-10-31T18:00:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day3_6015.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+tags : [flavor - 行膳積腹, travel-日本-東京箱根]
 ---
 
 上百年的元祖炸豬排店  

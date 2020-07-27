@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：McDonald''s Imperial'
 date: 2017-11-21T16:38:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2mcdonalds-imperial.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 繼續Porto周圍兜...  

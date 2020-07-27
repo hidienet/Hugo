@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day4：ロピア 絹ごしプリン'
 date: 2015-10-07T20:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day4_35.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
+tags : [travel-日本-名古屋, flavor - 螞蟻族]
 ---
 
 魔鬼的化身總是美好  

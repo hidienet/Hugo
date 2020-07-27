@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：シティビュー（city view
 date: 2017-06-05T09:12:00.000+08:00
 draft: false
 aliases: [ "/2017/06/happy-days-day-7city-view.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 講吓今日响市內周圍去嘅觀光巴士先  

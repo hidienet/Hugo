@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：鹿港鹿和夜市'
 date: 2014-09-02T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day5_2.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 去台灣不逛逛夜市就好像沒去過一樣  

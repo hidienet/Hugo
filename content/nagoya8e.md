@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day8：地雷也 天むす'
 date: 2015-11-02T18:30:00.000+08:00
 draft: false
 aliases: [ "/2015/11/go-go-nagoya-day8_2.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 响本住「有買多無買錯姐有的是錢你吹得我脹咩」嘅心態下  

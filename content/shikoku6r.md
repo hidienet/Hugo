@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day6：屋台 松ちゃん'
 date: 2020-05-08T15:39:00.014+08:00
 draft: false
 aliases: [ "/2020/05/day6_95.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 飲！]
+tags : [flavor - 行膳積腹, travel-日本-四國, flavor - 飲！]
 ---
 
 夜晚就落酒店後面嘅屋台食碗ラーメン @**松ちゃん**  

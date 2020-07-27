@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day6：愛知次郎柿、大大個りんご'
 date: 2015-10-26T14:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day6_26.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [travel-日本-名古屋]
 ---
 
 既然飯後果不健康  

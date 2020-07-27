@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day2：浅草﹣雷門、仲見世'
 date: 2013-10-28T13:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day2_28.html" ]
-tags : [travel-日本-東京箱根]
+tags : [travel-日本-東京御殿場箱根]
 ---
 
 一朝早乘JR由新宿到浅草，下雨了．．．    

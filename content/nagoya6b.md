@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day6：伊藤軒 揚げ銀杏'
 date: 2015-10-21T17:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day6_21.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 小食部]
+tags : [travel-日本-名古屋, flavor - 小食部]
 ---
 
 秋天的味道啊～  

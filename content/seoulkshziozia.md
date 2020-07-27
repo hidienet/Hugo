@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：ziozia'
 date: 2014-10-28T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-ziozia.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 除了outdoor的品牌外  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Houses of Nessebar Old Town'
 date: 2014-06-03T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/houses-of-nessebar-old-town.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 這裡的屋，風格其實說不上好大分別  

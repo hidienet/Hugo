@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Igreja dos Clérigos'
 date: 2017-12-15T09:35:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day4igreja-dos-clerigos.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 同[Torre dos Clérigos](https://hidie.net/portugal4b/) (鐘樓)相連嘅  

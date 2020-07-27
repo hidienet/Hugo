@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day1：大大個桃子'
 date: 2014-08-18T19:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day1_4736.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 比我整隻手還要大～  

@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day2：清境農場 清境綿羊城堡'
 date: 2014-08-20T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day2_20.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 上回說已去到農場的最高處  

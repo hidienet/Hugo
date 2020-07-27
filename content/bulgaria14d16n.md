@@ -3,7 +3,7 @@ title: '保加利亞醉遊記（14D16N）'
 date: 2014-06-09T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/14d16n.html" ]
-tags : [lifestyle - 逃離852, travel - България (Bulgaria)]
+tags : [lifestyle - 逃離852, travel-保加利亞]
 ---
 
 醉人景致加上瘋狂地飲飽食醉  

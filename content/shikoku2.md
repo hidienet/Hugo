@@ -22,7 +22,7 @@ tags : [travel-日本-四國]
 ![](/images/shikoku2c.jpg)
 
 食完就行去現存12天守中  
-最細天守 x 最高石垣嘅：[丸亀城](https://www.hidie.net/2020/04/day2.html)  
+最細天守 x 最高石垣嘅：[丸亀城](https://hidie.net/shikoku2c/)  
 
 ![](/images/shikoku2d.jpg)
 

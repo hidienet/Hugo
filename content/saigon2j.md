@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：夜逛－市政宮、大劇院'
 date: 2014-04-05T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2_5.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 晚上看的又另一番景象  

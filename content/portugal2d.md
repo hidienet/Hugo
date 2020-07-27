@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：A Magnólia do Ardina'
 date: 2017-11-21T09:18:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2a-magnolia-do-ardina.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 食完早餐就响Porto周圍行吓  

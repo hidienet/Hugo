@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day14：二度Lubimoto'
 date: 2014-06-08T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day14lubimoto.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 在這次保加利亞旅程的最後一餐  

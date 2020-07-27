@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：Temple Club'
 date: 2014-04-04T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2temple-club.html" ]
-tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 行膳積腹, travel-越南-西貢]
 ---
 
 天還未黑但已經想早一點吃晚餐  

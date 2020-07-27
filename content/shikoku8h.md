@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day8：菓子処 青柳 本店'
 date: 2020-05-22T15:27:00.039+08:00
 draft: false
 aliases: [ "/2020/05/day8_6.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 螞蟻族]
+tags : [travel-日本-四國, flavor - 螞蟻族]
 ---
 
 响高知嘅最後一餐喇（淚）

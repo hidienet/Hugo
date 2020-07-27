@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Black Sea @Nessebar'
 date: 2014-06-03T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/black-sea-nessebar.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 這一篇，就靜靜地欣賞Nessebar這邊的Black Sea  

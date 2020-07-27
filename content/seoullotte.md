@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：lotte duty free x 機場'
 date: 2014-11-06T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-lotte-duty-free-x.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 由去程到回程也有他一直陪著呢  

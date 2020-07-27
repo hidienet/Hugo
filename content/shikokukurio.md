@@ -3,7 +3,7 @@ title: '[食の四国ツアー] 鳴門うず芋'
 date: 2020-04-09T10:50:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day3_9.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 螞蟻族]
+tags : [travel-日本-四國, flavor - 螞蟻族]
 ---
 
 普通新鮮蕃薯（[鳴門金時](https://hidie.net/shikoku3d/)）唔特別啫  

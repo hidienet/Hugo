@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day5：喫茶リッチ'
 date: 2015-10-08T14:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day5.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 早起的人吃早餐去（睏）  

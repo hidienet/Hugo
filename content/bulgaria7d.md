@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day7：Restaurant Summer Garden (РЕСТОРА�
 date: 2014-05-24T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day7_5440.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 搭了幾個鐘頭大巴，終於抵達目的地  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day2：caffé memento'
 date: 2014-05-13T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day2caffe-memento.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 去cafe是為了避雨  

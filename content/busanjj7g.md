@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day7：cass draft beer'
 date: 2014-01-21T19:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day7cass-draft-beer.html" ]
-tags : [flavor - 飲！, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [flavor - 飲！, travel-南韓-慶州釜山]
 ---
 
 吃完那不知道其實在吃什麼的辣芽菜  

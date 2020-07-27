@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day7：沿路風光明媚～'
 date: 2014-05-24T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day7_24.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 沿途的風景真的好美  

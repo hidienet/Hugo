@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day11：banitsa'
 date: 2014-06-02T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day11banitsa.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 今天又是晨早出發的日子  

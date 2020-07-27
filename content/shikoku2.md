@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day2：香川（高松、丸亀、琴平）'
 date: 2017-08-22T09:35:00.001+08:00
 draft: false
 aliases: [ "/2017/08/day2.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [travel-日本-四國]
 ---
 
 一大朝早就由高松搭JR去[丸亀](https://hidie.net/shikoku2a/)  

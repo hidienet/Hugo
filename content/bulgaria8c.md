@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day8：coffee machine'
 date: 2014-05-26T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day8coffee-machine.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 就說我是大鄉里出省吧！  

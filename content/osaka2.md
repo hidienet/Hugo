@@ -71,10 +71,10 @@ tags : [travel-日本-奈良大阪]
 食就食又係Michelin推薦嘅[美津の](https://hidie.net/osaka2g/)  
 揀咗店舖人氣NO. 1嘅**山芋焼**    
 
-[![](https://c1.staticflickr.com/5/4390/36286655400_7a85910b48_z.jpg)](https://c1.staticflickr.com/5/4390/36286655400_7a85910b48_z.jpg)
+![](/images/osaka2h.jpg)
 
 冇嘢做兜吓兜吓就兜到去冇咁多人嘅アメリカ村  
-見有啲攰咪搵個地方坐低 @**PABLO**  
+見有啲攰咪搵個地方坐低 @[PABLO](https://hidie.net/osaka2h/)  
 ... 順便食嘢  
 係就係擒日食過佢嘅cheese tart刨冰  
 咁都想試吓個元祖cheese tart嘛  

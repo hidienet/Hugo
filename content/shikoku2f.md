@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day2：四国の旬 - 嫁入りおいりソフ�
 date: 2020-04-02T15:47:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day2_2.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [flavor - 螞蟻族, travel-日本-四國]
 ---
 
 爬樓梯前食返杯雪糕  

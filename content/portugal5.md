@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：Porto ↔ Barcelos'
 date: 2017-07-28T09:40:00.000+08:00
 draft: false
 aliases: [ "/2017/07/day5porto-barcelos.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 葡國雞葡國雞葡國雞  

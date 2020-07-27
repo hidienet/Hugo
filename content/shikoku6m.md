@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day6：cafe & pancake gram グラム - プレミ
 date: 2020-05-06T10:15:00.001+08:00
 draft: false
 aliases: [ "/2020/05/day6cafe-pancake-gram.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 螞蟻族]
+tags : [travel-日本-四國, flavor - 螞蟻族]
 ---
 
 再行吓行吓兜吓兜吓  

@@ -3,7 +3,7 @@ title: '[seoul time] Day6：仁寺洞 인사동「마루」'
 date: 2014-11-01T20:00:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-day6_1.html" ]
-tags : [travel - 남한・서울 (首爾)]
+tags : [travel-南韓-首爾]
 ---
 
 仁寺洞，有朝鮮年代官府同貴族兩班遺留的舊東西  

@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 5：熊襲亭 - おたのしみコ
 date: 2017-02-15T09:09:00.000+08:00
 draft: false
 aliases: [ "/2017/02/happy-days-day-5_15.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 行膳積腹, travel-日本-鹿兒島宮崎]
 ---
 
 一次過 (差唔多)就試晒鹿児島嘅郷土料理  

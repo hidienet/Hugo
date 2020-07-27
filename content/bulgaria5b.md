@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Boyana Church'
 date: 2014-05-20T13:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/boyana-church.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 行程之一的Boyana Church  

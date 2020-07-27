@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day4：摸乳巷'
 date: 2014-08-25T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day4_25.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 鹿港這個市鎮的路並不是四四正正的  

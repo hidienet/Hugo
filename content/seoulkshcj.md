@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：CJ Petitzel'
 date: 2014-11-01T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-cj-petitzel.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현, flavor - 螞蟻族]
+tags : [travel-南韓-首爾, collections - 김수현, flavor - 螞蟻族]
 ---
 
 甜品時間（超sweet～）  

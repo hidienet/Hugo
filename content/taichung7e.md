@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day7：忠孝夜市 － 味泉米糕、排骨大王、
 date: 2014-09-07T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day7_7.html" ]
-tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 行膳積腹, travel - 臺灣清境鹿港]
 ---
 
 都是那句「不去夜市就不是去臺灣」  

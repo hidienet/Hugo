@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day4：新雀本店 お団子'
 date: 2015-10-06T11:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day4_6.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 小食部]
+tags : [travel-日本-名古屋, flavor - 小食部]
 ---
 
 很喜歡食煙韌食物的我  

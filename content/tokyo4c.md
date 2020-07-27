@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day4：御殿場outlet (ft.流れ鮨御殿場店
 date: 2013-11-02T17:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day4outlet-ft.html" ]
-tags : [travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+tags : [travel-日本-東京御殿場箱根]
 ---
 
 出發去御殿場  

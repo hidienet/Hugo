@@ -1,9 +1,9 @@
 ---
-title: '[臺中怒食遊] Day4：招牌蝦卷、招牌蚵卷@阿南師民俗小吃'
+title: '[臺中怒食遊] Day4：招牌蝦卷、招牌蚵卷 @阿南師民俗小吃'
 date: 2014-08-24T13:40:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day4_24.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 只吃一碗[魷魚粳](https://hidie.net/taichung4c/)又怎能滿足饞嘴的人？  

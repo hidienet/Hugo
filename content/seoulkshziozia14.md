@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：ziozia fall 2014'
 date: 2014-10-29T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-ziozia-fall-2014.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 直接開動花癡mode  

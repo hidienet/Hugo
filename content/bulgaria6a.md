@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day6：Izbata Tavern'
 date: 2014-05-22T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day6izbata-tavern.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 酒後睡醒慢慢走就已經是中午  

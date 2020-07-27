@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day2：supermarket'
 date: 2013-12-29T13:00:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day2supermarket.html" ]
-tags : [travel - Malaysia・Sabah]
+tags : [travel-馬來西亞-沙巴]
 ---
 
 去旅行，不是吃吃走走就是買東西

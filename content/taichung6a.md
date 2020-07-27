@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day6：鹿港阿道 蝦猴酥'
 date: 2014-09-02T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day6.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 又是一大清早吃炸物的時間（吼）  

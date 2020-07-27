@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：Port Guy Tour 1 - TAYLOR''S'
 date: 2017-12-04T09:40:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day3port-guy-tour-1-taylors.html" ]
-tags : [flavor - 飲！, travel - Portugal]
+tags : [flavor - 飲！, travel-葡萄牙]
 ---
 
 去葡萄牙唔係唔去試砵酒呀嘛？  

@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：閒逛－紅教堂、郵政局'
 date: 2014-04-03T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2_8284.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 食飽飽當然又周街逛  

@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] 夜景：テレビ塔 x オアシス21'
 date: 2015-10-20T18:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-x-21.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [travel-日本-名古屋]
 ---
 
 食飽[牛](https://hidie.net/nagoya5i/)就逛一下吧～  

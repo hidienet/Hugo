@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：Fonte das Virtudes'
 date: 2017-11-28T09:12:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2fonte-das-virtudes.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 一口氣由河邊一路向上上上行  

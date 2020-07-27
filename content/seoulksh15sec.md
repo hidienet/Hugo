@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：beyond (+ 15 seconds with soohyun EDT)'
 date: 2014-10-25T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-beyond-15-seconds-with.html" ]
-tags : [travel - 남한・서울 (首爾), glamorous - 蛋臉以外, collections - 김수현]
+tags : [travel-南韓-首爾, glamorous - 蛋臉以外, collections - 김수현]
 ---
 
 就算面部經常腫起來  

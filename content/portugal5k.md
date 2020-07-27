@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：Caldeireiros'
 date: 2018-03-16T09:40:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day5caldeireiros.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 係嘅，葡國菜係好好食  

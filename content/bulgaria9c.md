@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day9：City Pub'
 date: 2014-05-29T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day9city-pub.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 在Veliko Turnovo的最後一餐了  

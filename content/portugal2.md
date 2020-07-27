@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：Lisboa → Porto'
 date: 2017-07-25T09:59:00.000+08:00
 draft: false
 aliases: [ "/2017/07/day2lisboa-porto.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 晨五咁早就要[搭火車](https://hidie.net/portugal2a/)走  

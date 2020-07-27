@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day11：No Man''s Land LAVA vintage 2012 dry whi
 date: 2014-06-04T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day11no-mans-land-lava-vintage-2012-dry.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 意猶未盡當然要在apartment飲返杯  

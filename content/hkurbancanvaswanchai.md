@@ -10,11 +10,11 @@ tags : [amusement - exhibition]
 不過個展館本身响動漫基地  
 所以都會有灣仔嘅導賞團  
 
-[![](https://c1.staticflickr.com/1/901/40572040515_72dfac5c04_z.jpg)](https://c1.staticflickr.com/1/901/40572040515_72dfac5c04_z.jpg)
+![](/images/hkurbancanvaswanchai1.jpg)
 
 出發喇！@動漫基地  
 
-[![](https://c1.staticflickr.com/1/805/27593986798_15f25d6dd7_z.jpg)](https://c1.staticflickr.com/1/805/27593986798_15f25d6dd7_z.jpg)
+![](/images/hkurbancanvaswanchai2.jpg)
 
 先落樓就响佢隔籬嘅豪華咖啡茶室度  
 係呀而家開緊舖就睇唔到道閘  
@@ -22,12 +22,12 @@ tags : [amusement - exhibition]
 導賞團得意在唔係去睇啲閘  
 而係睇個社區  
 
-[![](https://c1.staticflickr.com/1/810/27593986238_665841eac5_z.jpg)](https://c1.staticflickr.com/1/810/27593986238_665841eac5_z.jpg)
+![](/images/hkurbancanvaswanchai3.jpg)
 
 好似呢種六十年代嘅鐵製T形街牌咁  
 都係買少見少嘅貨色喇  
 
-[![](https://c1.staticflickr.com/1/872/40572039155_fefedd7c14_z.jpg)](https://c1.staticflickr.com/1/872/40572039155_fefedd7c14_z.jpg)
+![](/images/hkurbancanvaswanchai4.jpg)
 
 蔡太乾貨 by Smile Marker  
 原本幅畫嘅蔡太係嚴肅樣  
@@ -37,16 +37,16 @@ tags : [amusement - exhibition]
   
 完咗導賞團就可以自己周圍行吓...  
 
-[![](https://c1.staticflickr.com/1/877/27593985638_06aa88a75f_z.jpg)](https://c1.staticflickr.com/1/877/27593985638_06aa88a75f_z.jpg)
+![](/images/hkurbancanvaswanchai5.jpg)
 
 峰哥袋檔 by何文蕙  
 用檔主好鍾意嘅貓貓做主題  
 
-[![](https://c1.staticflickr.com/1/879/40572040235_9ca8bfb4ec_z.jpg)](https://c1.staticflickr.com/1/879/40572040235_9ca8bfb4ec_z.jpg)
+![](/images/hkurbancanvaswanchai6.jpg)
 
 雨天晴天都有遮擔嘅潘仔記  
 
-[![](https://c1.staticflickr.com/1/899/27593987568_10d6461dd3_z.jpg)](https://c1.staticflickr.com/1/899/27593987568_10d6461dd3_z.jpg)
+![](/images/hkurbancanvaswanchai7.jpg)
 
 錦波印務  
 隻花貓「肥婆」原本一直以呢個檔頂做竇  
@@ -58,7 +58,7 @@ tags : [amusement - exhibition]
 仲有上環嘅「揭開華人社區發展新一頁」  
 同埋西營盤嘅「山城老舖循環不息」  
 
-[![](https://c1.staticflickr.com/1/890/40572039765_181c81f5ce_z.jpg)](https://c1.staticflickr.com/1/890/40572039765_181c81f5ce_z.jpg)
+![](/images/hkurbancanvaswanchai8.jpg)
 
 而上環呢間光華印務  
 有部鎮店之寶嘅德國製印刷機  
@@ -74,6 +74,6 @@ tags : [amusement - exhibition]
 \-----------------------------------------------  
   
 延伸閱讀：  
-[城巿閘誌 展覽 | HK Urban Canvas Exhibition](https://www.hidie.net/2018/04/hk-urban-canvas-exhibition.html)  
-[城巿閘誌 | HK Urban Canvas（深水埗篇）](https://www.hidie.net/2018/04/hk-urban-canvas.html)  
-[城巿閘誌 | HK Urban Canvas（旺角、油麻地篇）](https://www.hidie.net/2018/04/hk-urban-canvas_74.html)
+[城巿閘誌 展覽 | HK Urban Canvas Exhibition](https://hidie.net/hkurbancanvasex/)  
+[城巿閘誌 | HK Urban Canvas（深水埗篇）](https://hidie.net/hkurbancanvasssp/)  
+[城巿閘誌 | HK Urban Canvas（旺角、油麻地篇）](https://hidie.net/hkurbancanvasmk/)

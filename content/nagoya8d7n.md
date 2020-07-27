@@ -3,7 +3,7 @@ title: 'GO! GO! NaGoYa～（8D7N）'
 date: 2015-11-05T16:30:00.000+08:00
 draft: false
 aliases: [ "/2015/11/go-go-nagoya8d7n.html" ]
-tags : [lifestyle - 逃離852, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [lifestyle - 逃離852, travel-日本-名古屋]
 ---
 
 除咗食食買，就係食食食食食同買～  

@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 2：日落中 @大淀川'
 date: 2017-01-17T10:00:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-2_17.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 食飽飯仔就沿住條橘通り行到去大淀川  

@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day7：Urban Market By Portugal Lovers'
 date: 2018-04-04T09:28:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day7urban-market-by-portugal-lovers.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 參觀完教堂行去食lunch之際  

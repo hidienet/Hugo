@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day10：A Vida Portuguesa'
 date: 2018-05-14T09:38:00.000+08:00
 draft: false
 aliases: [ "/2018/05/day10a-vida-portuguesa.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 要知葡萄牙人嘅日用品有啲乜  

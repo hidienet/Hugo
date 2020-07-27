@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day6：松屋コーヒー本店'
 date: 2015-10-21T10:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day6.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 今天吃個百年老咖啡店早餐～  

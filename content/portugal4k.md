@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Majestic Café'
 date: 2018-01-02T09:35:00.000+08:00
 draft: false
 aliases: [ "/2018/01/day4majestic-cafe.html" ]
-tags : [flavor - 飲！, flavor - 螞蟻族, travel - Portugal]
+tags : [flavor - 飲！, flavor - 螞蟻族, travel-葡萄牙]
 ---
 
 食個靚tea先！  

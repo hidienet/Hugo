@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day3：古芝地道 local tour'
 date: 2014-04-06T11:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day3-local-tour.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 join local tour之一，去前戰地古芝  

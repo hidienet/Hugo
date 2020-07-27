@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] 400年名古屋的懶人走：名古屋城'
 date: 2015-10-15T16:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-400_15.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [travel-日本-名古屋]
 ---
 
 歷盡千辛萬苦終於來到名古屋城  

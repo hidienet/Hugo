@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：The Yeatman'
 date: 2017-12-01T09:36:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day3the-yeatman.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 一路行呀行上吓斜路落吓斜路咁  

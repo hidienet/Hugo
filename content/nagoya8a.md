@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day8：上島珈琲店'
 date: 2015-10-30T11:32:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day8.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 話咁快又到呢個旅程最後一日（嗚呀）  

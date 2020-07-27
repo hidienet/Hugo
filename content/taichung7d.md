@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day7：「飲一個人咖啡」－ 20號倉庫'
 date: 2014-09-07T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day7-20.html" ]
-tags : [flavor - 飲！, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 飲！, travel - 臺灣清境鹿港]
 ---
 
 興建於1917年  

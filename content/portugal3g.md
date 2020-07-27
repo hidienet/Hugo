@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：Barão Fladgate'
 date: 2017-12-06T09:48:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day3barao-fladgate.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 夠鐘食晏喇啦啦啦  

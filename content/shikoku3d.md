@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day3：鳴門金時 焼き芋'
 date: 2020-04-08T15:38:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day3_69.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 小食部]
+tags : [travel-日本-四國, flavor - 小食部]
 ---
 
 行返上平台，但係都未夠鐘睇渦潮...  

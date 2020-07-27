@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day7：Antunes (again!)'
 date: 2018-04-09T09:36:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day7antunes-again.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 一定要嚟呢度食羊羊羊呀～～～  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：The Nativity Church'
 date: 2014-05-27T21:15:00.000+08:00
 draft: false
 aliases: [ "/2014/05/nativity-church.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 有教徒的地方豈能沒有教堂？  

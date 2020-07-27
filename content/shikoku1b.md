@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day1：井村屋 やわもちアイス kiri ク�
 date: 2020-03-30T15:25:00.001+08:00
 draft: false
 aliases: [ "/2020/03/day1-kiri.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 螞蟻族, flavor - say cheese]
+tags : [travel-日本-四國, flavor - 螞蟻族, flavor - say cheese]
 ---
 
 因為[晚餐](https://hidie.net/shikoku1a/)飽得滯  

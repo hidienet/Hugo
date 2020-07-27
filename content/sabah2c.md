@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day2：舊街場白咖啡 old town white coffee'
 date: 2013-12-29T14:30:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day2-old-town-white-coffee.html" ]
-tags : [flavor - 飲！, travel - Malaysia・Sabah]
+tags : [flavor - 飲！, travel-馬來西亞-沙巴]
 ---
 
 雖然人在商場裡這間一定不是元祖鋪  

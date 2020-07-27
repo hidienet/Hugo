@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day2：麺処綿谷'
 date: 2020-03-31T15:52:00.001+08:00
 draft: false
 aliases: [ "/2020/03/day2_31.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [flavor - 行膳積腹, travel-日本-四國]
 ---
 
 嚟得丸亀食烏冬當然會揀間老店嚟食  

@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day1：pearl garden - 啤酒雞翼加薯條'
 date: 2014-04-02T01:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day1pearl-garden.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 夜機到達，下飛機搭的士到了酒店已經凌晨  

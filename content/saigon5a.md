@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day5：Bánh Mì Anh Phán'
 date: 2014-04-09T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day5banh-mi-anh-phan.html" ]
-tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 行膳積腹, travel-越南-西貢]
 ---
 
 在酒店食了個簡單新鮮水果餐  

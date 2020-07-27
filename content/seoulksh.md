@@ -3,7 +3,7 @@ title: 'seoul time - 김수현篇'
 date: 2014-11-07T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 「整容怪」、「大細眼」、「醜樣」、「腿短」、「棒子 差評」、「又金瘦燃」...  

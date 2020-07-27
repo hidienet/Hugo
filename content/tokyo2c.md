@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day2：舟和 あんこ玉'
 date: 2013-10-28T19:30:00.001+08:00
 draft: false
 aliases: [ "/2013/10/day2_3949.html" ]
-tags : [flavor - 螞蟻族, travel-日本-東京箱根]
+tags : [flavor - 螞蟻族, travel-日本-東京御殿場箱根]
 ---
 
 好可愛好可愛好可愛的波波～（大心）  

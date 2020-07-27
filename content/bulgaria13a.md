@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day13：boza anette'
 date: 2014-06-06T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day13boza-anette.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 morning boza～  

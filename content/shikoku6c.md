@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day6：伊予鉄道'
 date: 2020-04-29T10:38:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day6_29.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [travel-日本-四國]
 ---
 
 同擒日搭嘅[大観覧車くるりん](https://hidie.net/shikoku5i/)一樣  

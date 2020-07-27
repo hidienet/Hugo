@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day1：Hello Lisbon'
 date: 2017-07-24T09:12:00.000+08:00
 draft: false
 aliases: [ "/2017/07/day1hello-lisbon.html" ]
-tags : [lifestyle - 逃離852, travel - Portugal]
+tags : [lifestyle - 逃離852, travel-葡萄牙]
 ---
 
 搭咗兩程機食咗三餐半再睇咗四套戲  

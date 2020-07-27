@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day3：柳杉步道'
 date: 2014-08-22T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day3_22.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 看完[日出](https://hidie.net/taichung3a/)同[雲海](https://hidie.net/taichung3b/)，太陽伯伯冒了大大個禿頭  

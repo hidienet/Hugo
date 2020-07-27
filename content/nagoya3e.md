@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day3：海老どて食堂  特大海老ふりゃ～�
 date: 2015-10-03T16:03:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day3_3.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 話說下午行完[千里馬薬局](https://hidie.net/nagoya3d/)  

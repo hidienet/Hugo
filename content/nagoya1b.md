@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day1：Häagen-Dazs Crispy Sandwich マロングラ�
 date: 2015-09-29T19:15:00.000+08:00
 draft: false
 aliases: [ "/2015/09/go-go-nagoya-day1haagen-dazs-crispy.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
+tags : [travel-日本-名古屋, flavor - 螞蟻族]
 ---
 
 宵夜時間，邊行邊食懶理甚麼儀態  

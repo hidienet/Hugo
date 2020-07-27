@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day4：冷凍豆花大王'
 date: 2014-08-25T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day4_56.html" ]
-tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 螞蟻族, travel - 臺灣清境鹿港]
 ---
 
 晚飯過後再來一碗甜品  

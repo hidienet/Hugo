@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day5：すし丸 本店 - 松山御膳 松山鮓
 date: 2020-04-25T12:07:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day5_25.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 飲！]
+tags : [flavor - 行膳積腹, travel-日本-四國, flavor - 飲！]
 ---
 
 响松山，唔食松山鮓絕對會係遺憾  

@@ -3,7 +3,7 @@ title: '[seoul time] Day2：高九蔘雞湯 - 蔘雞湯、炸人蔘'
 date: 2014-10-21T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day2.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾]
 ---
 
 漫無目的就先去韓國觀光公社  

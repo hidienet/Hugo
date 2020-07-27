@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day4：丸永製菓 あいすまんじゅう'
 date: 2020-04-19T12:12:00.002+08:00
 draft: false
 aliases: [ "/2020/04/day4_19.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 螞蟻族]
+tags : [travel-日本-四國, flavor - 螞蟻族]
 ---
 
 响淳樸滿滿嘅地方  

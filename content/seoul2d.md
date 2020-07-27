@@ -3,7 +3,7 @@ title: '[seoul time] Day2：지팡이 아이스크림 jipange icecream'
 date: 2014-10-22T18:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day2-jipange-icecream.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
+tags : [travel-南韓-首爾, flavor - 螞蟻族]
 ---
 
 又試試年輕人的玩意  

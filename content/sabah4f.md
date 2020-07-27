@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day4：肉骨茶 & 黃酒煮豬肚'
 date: 2013-12-31T19:30:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day4_9907.html" ]
-tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
+tags : [flavor - 行膳積腹, travel-馬來西亞-沙巴]
 ---
 
 這年「最後的晚餐」XD  

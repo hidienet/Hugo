@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 購物篇：全真皮背囊（say byebye to my m
 date: 2014-05-28T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/say-byebye-to-my-mook.html" ]
-tags : [travel - България (Bulgaria), glamorous - 裝身]
+tags : [travel-保加利亞, glamorous - 裝身]
 ---
 
 住在Samovodska Charshiya上面  

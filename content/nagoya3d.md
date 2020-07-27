@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] 千里馬薬局'
 date: 2015-10-03T11:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [travel-日本-名古屋]
 ---
 
 到日本當然少不了去藥妝店  

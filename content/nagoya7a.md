@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day7：名古屋 馬喰一代'
 date: 2015-10-27T13:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day7.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 話說去不到[李昇](http://www.shoya.com/)食飛驒牛  

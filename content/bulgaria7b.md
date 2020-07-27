@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day7：巴士站裡的午餐'
 date: 2014-05-23T22:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day7_23.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 為甚麼為甚麼為甚麼？  

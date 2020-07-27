@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day4：波令溫泉'
 date: 2013-12-31T14:30:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day4_8055.html" ]
-tags : [travel - Malaysia・Sabah]
+tags : [travel-馬來西亞-沙巴]
 ---
 
 行程的另一站是這個波令露天溫泉  

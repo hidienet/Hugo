@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：walk across Ponte Luís I with fog'
 date: 2017-11-30T09:38:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day3walk-across-ponte-luis-i-with-fog.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 由Potro去對面嘅Vila Nova de Gaia  

@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day4：矢場とん 鉄板とんかつ'
 date: 2015-10-04T21:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day4_4.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 不知不覺由栄行到矢場  

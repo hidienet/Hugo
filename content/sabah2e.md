@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day2：今天晚飯吃中菜'
 date: 2013-12-29T20:00:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day2_29.html" ]
-tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
+tags : [flavor - 行膳積腹, travel-馬來西亞-沙巴]
 ---
 
 吃中餐，就是要....  

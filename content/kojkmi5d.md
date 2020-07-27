@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 5：種子島產 安納紅いも'
 date: 2017-03-06T10:27:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-5.html" ]
-tags : [flavor - 小食部, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 小食部, travel-日本-鹿兒島宮崎]
 ---
 
 今次去唔到種子島  

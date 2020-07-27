@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 6：桜島 x 彩虹'
 date: 2017-03-22T09:25:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-6-x.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 一出門口就俾人老點（again！！！）去其他地方搭車  

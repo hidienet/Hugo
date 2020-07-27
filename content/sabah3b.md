@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day3：pulau pulau島跳島～'
 date: 2013-12-30T15:00:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day3pulau-pulau.html" ]
-tags : [travel - Malaysia・Sabah]
+tags : [travel-馬來西亞-沙巴]
 ---
 
 我不是整天都窩在餐廳裡吃吃吃  

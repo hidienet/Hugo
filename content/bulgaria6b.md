@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day6：Schofferhofer Grapefruit Hefeweizen'
 date: 2014-05-22T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day6schofferhofer-grapefruit-hefeweizen.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 好好味的德國啤酒  

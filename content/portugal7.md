@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day7：Porto (～Santa Clara)'
 date: 2017-08-01T09:09:00.000+08:00
 draft: false
 aliases: [ "/2017/08/day7porto-santa-clara.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 是日天陰，晏啲仲大風雨中怒海狂奔  

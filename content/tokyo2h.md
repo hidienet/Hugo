@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day2：パステル プリン (pastel pudding)'
 date: 2013-10-29T22:50:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day2-pastel-pudding.html" ]
-tags : [flavor - 螞蟻族, travel-日本-東京箱根]
+tags : [flavor - 螞蟻族, travel-日本-東京御殿場箱根]
 ---
 
 宵夜時段，又是吃甜點的時間  

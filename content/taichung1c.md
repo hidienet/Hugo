@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day1：草泥馬公仔'
 date: 2014-08-17T20:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day1_17.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 ![](/images/taichung1c.jpg)

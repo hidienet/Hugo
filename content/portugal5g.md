@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：Paço dos Condes de Barcelos'
 date: 2018-03-07T09:59:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day5paco-dos-condes-de-barcelos.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 廢墟都曾經有輝煌嘅時候...  

@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day7：Vila do Conde'
 date: 2018-04-11T09:35:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day7vila-do-conde.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 係呀，有靚靚教堂同修道院唔入  

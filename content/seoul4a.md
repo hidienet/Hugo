@@ -3,7 +3,7 @@ title: '[seoul time] Day4：明洞嫩豆腐 명동순두부'
 date: 2014-10-27T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day4.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾]
 ---
 
 豆腐brunch～  

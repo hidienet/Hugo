@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：OKSUSU粟米鬚茶、CASS啤酒'
 date: 2014-10-31T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-oksusucass.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 要喝點甚麼嗎？  

@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day6：Quimdim Salâo De Chà'
 date: 2018-03-27T09:30:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day6quimdim-salao-de-cha.html" ]
-tags : [flavor - 飲！, flavor - 螞蟻族, travel - Portugal]
+tags : [flavor - 飲！, flavor - 螞蟻族, travel-葡萄牙]
 ---
 
 坐低hea吓tea返陣先...  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day3：Lubimoto'
 date: 2014-05-17T16:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day3lubimoto.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 又是[balkan bites](https://hidie.net/bulgaria2f/)的好帶挈  

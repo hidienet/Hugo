@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：lemona「紀念品」'
 date: 2014-10-20T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-lemona.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현, glamorous - 秀色可餐]
+tags : [travel-南韓-首爾, collections - 김수현, glamorous - 秀色可餐]
 ---
 
 在event中雖然未能進場  

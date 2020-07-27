@@ -3,14 +3,14 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：竹山食品 みき'
 date: 2017-03-30T09:37:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-7.html" ]
-tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 飲！, travel-日本-鹿兒島宮崎]
 ---
 
 原本諗住一朝早就美肌吓買枝甘酒嚟飲  
 點知見到個招紙寫住奄美名產  
 再睇吓裡面D嘢白白哋就當係...  
 
-![](/images/kojkmi7da.jpg)
+![](/images/kojkmi7a.jpg)
 
 其實**みき**係米漿（汗）  
 仲要係好杰撻撻嗰種  

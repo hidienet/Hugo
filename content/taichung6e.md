@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day6：hea tea@紫牛貓'
 date: 2014-09-04T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day6hea-tea.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 悶熱的天氣當然想舒舒服服地hea  

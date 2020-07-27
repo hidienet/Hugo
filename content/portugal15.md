@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day15：Lisboa ↔ Cascais'
 date: 2017-08-11T09:30:00.000+08:00
 draft: false
 aliases: [ "/2017/08/day15lisboa-cascais.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 今朝一早就搭火車由Cais do Sodré到**Cascais**  

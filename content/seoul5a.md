@@ -3,7 +3,7 @@ title: '[seoul time] Day5：鷺梁津水産市場 노량진수산시장'
 date: 2014-10-29T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day5.html" ]
-tags : [travel - 남한・서울 (首爾)]
+tags : [travel-南韓-首爾]
 ---
 
 地點超方便的水產市場  

@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day1：かに道楽'
 date: 2013-10-27T20:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day1_7074.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+tags : [flavor - 行膳積腹, travel-日本-東京箱根]
 ---
 
 晚餐，食蟹去．．．  

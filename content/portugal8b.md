@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day8：Rio Douro Boat Tour'
 date: 2018-04-19T09:29:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day8rio-douro-boat-tour.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 食飯前去食吓超清新嘅風先！  

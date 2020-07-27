@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day7：甜蜜的早餐'
 date: 2014-05-23T18:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day7.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 爆sweet的早餐耶～  

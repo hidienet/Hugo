@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day1：海賊浜焼き 豊丸水産 高松ライ
 date: 2020-03-30T10:14:00.001+08:00
 draft: false
 aliases: [ "/2020/03/day1.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 飲！]
+tags : [flavor - 行膳積腹, travel-日本-四國, flavor - 飲！]
 ---
 
 晏晝上機嘅好處係唔駛咁早起身  

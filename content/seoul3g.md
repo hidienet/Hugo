@@ -3,7 +3,7 @@ title: '[seoul time] Day3：東大門 동대문'
 date: 2014-10-26T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day3_26.html" ]
-tags : [travel - 남한・서울 (首爾)]
+tags : [travel-南韓-首爾]
 ---
 
 稱為平價置裝去處  

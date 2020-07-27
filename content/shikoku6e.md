@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day6：JR bus - 松山 →（瀨戶內海）→ 
 date: 2020-04-30T11:17:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day6jr-bus.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [travel-日本-四國]
 ---
 
 要行晨運咁上山係因為中午又嚟個大遷徙  

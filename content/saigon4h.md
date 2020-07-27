@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day4：Bánh xèo'
 date: 2014-04-08T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day4banh-xeo.html" ]
-tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 行膳積腹, travel-越南-西貢]
 ---
 
 超超超好吃的越南蛋餅在此！  

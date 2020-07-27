@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day4：復活蛋樹'
 date: 2014-05-18T17:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day4_8548.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 當然不是樹都會生蛋啦～  

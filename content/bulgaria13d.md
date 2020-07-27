@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Black Sea @Varna'
 date: 2014-06-07T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/black-sea-varna.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 這篇又是靜靜地看black sea，地點是Varna  

@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day2：鍋ぞう すきやき'
 date: 2013-10-29T19:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day2_1062.html" ]
-tags : [flavor - 行膳積腹, travel-日本-東京箱根]
+tags : [flavor - 行膳積腹, travel-日本-東京御殿場箱根]
 ---
 
 我！要！食！肉！

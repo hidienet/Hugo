@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day1：Suntory 7-Select The Beer'
 date: 2014-08-17T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day1suntory-7-select-beer.html" ]
-tags : [flavor - 飲！, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 飲！, travel - 臺灣清境鹿港]
 ---
 
 好熱呀 好熱呀 好熱呀 好熱呀～  

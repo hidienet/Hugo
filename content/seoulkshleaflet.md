@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：《별에서 온 그대》'
 date: 2014-10-26T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 因為[這套劇](http://www.hidie.net/2014/01/sbs-love-from-star.html)才認識他，沒有忘本啦～  

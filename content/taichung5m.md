@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：鼎泰興 水蒸蛋糕'
 date: 2014-08-29T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day5_31.html" ]
-tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 螞蟻族, travel - 臺灣清境鹿港]
 ---
 
 下午茶時間～  

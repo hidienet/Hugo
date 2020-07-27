@@ -3,7 +3,7 @@ title: '[seoul time] Day3：sea sea world'
 date: 2014-10-26T15:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day3sea-sea-world.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾]
 ---
 
 又在住的附近找吃的  

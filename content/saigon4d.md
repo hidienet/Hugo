@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day4：day tour - 湄公河'
 date: 2014-04-07T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day4day-tour_1540.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 暢遊湄公河～ 天氣超好！  

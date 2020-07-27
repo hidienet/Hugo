@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 6：桜島 月読神社+展望台'
 date: 2017-03-15T09:29:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-6_15.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 由落船到下一班遊覽巴士仲有成二十分鐘  

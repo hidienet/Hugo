@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day4：Nhà hàng Blue Ginger'
 date: 2014-04-08T18:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day4nha-hang-blue-ginger.html" ]
-tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 行膳積腹, travel-越南-西貢]
 ---
 
 day tour後已是黃昏  

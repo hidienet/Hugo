@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day2：超鮮味！蕃茄魚蛋米～'
 date: 2013-12-29T09:00:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day2.html" ]
-tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
+tags : [flavor - 行膳積腹, travel-馬來西亞-沙巴]
 ---
 
 早餐時間，來碗新鮮的魚蛋米  

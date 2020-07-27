@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day6：ひろめ市場'
 date: 2020-05-05T10:25:00.001+08:00
 draft: false
 aliases: [ "/2020/05/day6_71.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [travel-日本-四國]
 ---
 
 嚟高知搵食，冇做research都唔緊要  

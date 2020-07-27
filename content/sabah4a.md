@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day4：營養早餐'
 date: 2013-12-31T07:00:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day4.html" ]
-tags : [travel - Malaysia・Sabah]
+tags : [travel-馬來西亞-沙巴]
 ---
 
 今天又是晨早爬起的日子  

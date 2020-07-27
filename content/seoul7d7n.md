@@ -3,7 +3,7 @@ title: 'seoul time（7D7N）'
 date: 2014-11-04T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time7d7n.html" ]
-tags : [travel - 남한・서울 (首爾), lifestyle - 逃離852]
+tags : [travel-南韓-首爾, lifestyle - 逃離852]
 ---
 
 凌晨機去晚機回程玩到盡  

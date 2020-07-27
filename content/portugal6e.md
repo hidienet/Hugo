@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day6：Paço Dos Duques De Bragança'
 date: 2018-03-23T09:20:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day6paco-dos-duques-de-braganca.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 15世紀宮殿一座。  

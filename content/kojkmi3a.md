@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 3：APA 富士川源流 天然水'
 date: 2017-01-23T09:11:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-3apa.html" ]
-tags : [flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 飲！, travel-日本-鹿兒島宮崎]
 ---
 
 習慣咗朝早灌一灌水  

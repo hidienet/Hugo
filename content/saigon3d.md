@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day3：Au Manoir De Khai'
 date: 2014-04-06T22:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day3au-manoir-de-khai.html" ]
-tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 行膳積腹, travel-越南-西貢]
 ---
 
 高級法國料理時間（！）  

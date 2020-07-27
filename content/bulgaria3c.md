@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 交通篇：Sofia Metro'
 date: 2014-05-15T18:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/sofia-metro.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 在Sofia住的地方在cердика (Serdika)  

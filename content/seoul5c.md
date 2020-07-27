@@ -3,7 +3,7 @@ title: '[seoul time] Day5：海鮮餐（鷺梁津水産市場 노량진수산시
 date: 2014-10-29T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day5_3.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾]
 ---
 
 選了海鮮之後  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day7：ANPANMAN TERRACE KOCHI | アンパンマ�
 date: 2020-05-10T11:01:00.002+08:00
 draft: false
 aliases: [ "/2020/05/day7anpanman-terrace-kochi-kochi.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [travel-日本-四國]
 ---
 
 今日繼續喪用JR pass周圍走

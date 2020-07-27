@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day8：伊賀の里モクモク手づくりファー
 date: 2015-11-02T14:30:00.000+08:00
 draft: false
 aliases: [ "/2015/11/go-go-nagoya-day8.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 小食部]
+tags : [travel-日本-名古屋, flavor - 小食部]
 ---
 
 坐完巴士到機場，除咗check in當然又要搵食啦  

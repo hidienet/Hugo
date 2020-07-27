@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day2：balkan bites (free food tour sofia)'
 date: 2014-05-13T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day2balkan-bites-free-food-tour-sofia.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 到保加利亞旅遊  

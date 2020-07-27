@@ -3,7 +3,7 @@ title: '[seoul time] Day2：雙和茶쌍화차、大枣茶대추차'
 date: 2014-10-22T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day2_1.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 飲！]
+tags : [travel-南韓-首爾, flavor - 飲！]
 ---
 
 在仁沙洞食食hea時間  

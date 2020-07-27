@@ -112,7 +112,7 @@ NO！ NO！ NO！
 嗰一刻响佢同ほっぷしゅーくりーむ (Hop Chou A La Cream)揀  
 都唔知幾難取捨呀陰公  
 
-![](https://c1.staticflickr.com/5/4404/36513260182_ce4600195b_z.jpg)
+![](/images/osaka2l9.jpg)
 
 yeah！到咗食晚飯嘅時間  
 呢鋪食得勁喇 @[天ぷら定食 まきの](https://hidie.net/osaka2l/)  

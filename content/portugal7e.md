@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day7：Igreja de Santa Clara & Aqueducto de Santa Clar
 date: 2018-04-10T09:37:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day7igreja-de-santa-clara-aqueducto-de.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 食飽午飯，搭metro去差唔多Porto邊皮嘅**Santa Clara**  

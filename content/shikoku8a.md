@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day8：SUNNY MART 高南台地牛乳'
 date: 2020-05-19T10:12:00.009+08:00
 draft: false
 aliases: [ "/2020/05/day8sunny-mart.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 飲！]
+tags : [travel-日本-四國, flavor - 飲！]
 ---
 
 去旅行就神奇在擒晚唔早瞓  

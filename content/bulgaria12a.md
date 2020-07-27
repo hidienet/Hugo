@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day12：Cucciolo ''Volsi Cosi'' Rosato Frizzante
 date: 2014-06-04T17:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day12cucciolo-volsi-cosi-rosato.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 差不多中午才出門  

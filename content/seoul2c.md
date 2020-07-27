@@ -3,7 +3,7 @@ title: '[seoul time] Day2：聖心堂 성심당 - 酥皮紅豆包튀김소보로
 date: 2014-10-22T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day2_22.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾]
 ---
 
 超過50年歷史的麵包店  

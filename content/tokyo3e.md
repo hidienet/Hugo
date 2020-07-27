@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day3：うまい鮨勘 之 廿萬個喜愛的一
 date: 2013-10-30T19:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day3_2324.html" ]
-tags : [collections-mini, flavor - 行膳積腹, travel-日本-東京箱根]
+tags : [collections-mini, flavor - 行膳積腹, travel-日本-東京御殿場箱根]
 ---
 
 話說，今天是一早爬起身想吃所謂的築地寿司  

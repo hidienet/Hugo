@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day10：Elevador de Santa Justa'
 date: 2018-05-09T09:32:00.000+08:00
 draft: false
 aliases: [ "/2018/05/day10elevador-de-santa-justa.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 離開Porto，搭火車返Lisboa  

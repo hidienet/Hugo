@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day2：doughnut plant - tres leches'
 date: 2013-10-29T21:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day2doughnut-plant-tres-leches.html" ]
-tags : [flavor - 螞蟻族, travel-日本-東京箱根]
+tags : [flavor - 螞蟻族, travel-日本-東京御殿場箱根]
 ---
 
 力氣已盡，急需補充體力（甜食！）  

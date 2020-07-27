@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：戰爭遺跡博物館'
 date: 2014-04-04T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2_4.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 關於越南，除了對越式美食的鍾愛  

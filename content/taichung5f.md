@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：鹿港老街 － 興化宮、興化巷'
 date: 2014-08-27T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day5_79.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 繼續前進進～  

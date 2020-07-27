@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day1：ABC冰@Golf Club'
 date: 2013-12-28T16:45:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day1abcgolf-club.html" ]
-tags : [flavor - 螞蟻族, travel - Malaysia・Sabah]
+tags : [flavor - 螞蟻族, travel-馬來西亞-沙巴]
 ---
 
 貴人出門招風雨嗎？  

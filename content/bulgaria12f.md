@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day12：Tohun Soroko Rose'
 date: 2014-06-05T22:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day12tohun-soroko-rose.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 這裡沒有酒鬼  

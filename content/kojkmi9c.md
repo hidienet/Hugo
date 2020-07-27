@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 9：和心創菜 味菜み － 溶
 date: 2017-06-21T09:18:00.000+08:00
 draft: false
 aliases: [ "/2017/06/happy-days-day-9_21.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-日本-鹿兒島宮崎]
 ---
 
 食鹿児島嘅肉類除咗以[しゃぶしゃぶ](https://hidie.net/kojkmi4c/)、[蒸し、揚げ](https://hidie.net/kojkmi5e/)、[炆](https://hidie.net/kojkmi5b/)、[炊き](https://hidie.net/kojkmi6m/)烹調之外  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Asenevtsi Monument & Boris Denev'
 date: 2014-05-25T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/asenevtsi-monument-boris-denev.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 晨早就走走逛逛  

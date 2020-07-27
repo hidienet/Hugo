@@ -3,7 +3,7 @@ title: '[seoul time] Day6：o''sulloc tea house 오설록 티하우스'
 date: 2014-10-31T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day6osulloc-tea-house.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 飲！, flavor - 螞蟻族]
+tags : [travel-南韓-首爾, flavor - 飲！, flavor - 螞蟻族]
 ---
 
 很喜歡o’sulloc的[濟州綠茶](https://hidie.net/osullocpowder/)  

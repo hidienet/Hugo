@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day8：京都伊右衛門お茶、SUNTORY南アル�
 date: 2015-11-04T19:30:00.000+08:00
 draft: false
 aliases: [ "/2015/11/go-go-nagoya-suntory.html" ]
-tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 飲！, travel-日本-名古屋]
 ---
 
 一來洗散子二來上機要解渴  

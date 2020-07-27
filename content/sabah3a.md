@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day3：清而不寡 ‧ 魚片米'
 date: 2013-12-30T08:00:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day3.html" ]
-tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
+tags : [flavor - 行膳積腹, travel-馬來西亞-沙巴]
 ---
 
 今天要早起「遠」行  

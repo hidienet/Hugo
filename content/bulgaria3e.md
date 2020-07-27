@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day3：supa star'
 date: 2014-05-16T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day3supa-star.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 昨天的[balkan bites](https://hidie.net/bulgaria2f/)實在食得太興奮  

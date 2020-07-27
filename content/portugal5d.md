@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：Galo, all are Galo!'
 date: 2018-02-01T21:21:00.000+08:00
 draft: false
 aliases: [ "/2018/02/day5galo-all-are-galo.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 總之就係「雞 全部都係雞...」啦～  

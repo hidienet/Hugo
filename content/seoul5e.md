@@ -3,7 +3,7 @@ title: '[seoul time] Day5：八色烤肉 팔색삼겹살'
 date: 2014-10-30T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day5_30.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾]
 ---
 
 八種味道醃製 的五花腩  

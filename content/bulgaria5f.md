@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Pub Crawl！！！'
 date: 2014-05-21T23:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/pub-crawl.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 ROAR ROAR ROAR!  

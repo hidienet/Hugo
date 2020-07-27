@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day2：骨付鳥 一鶴 本店'
 date: 2020-04-01T15:05:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day2_1.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [flavor - 行膳積腹, travel-日本-四國]
 ---
 
 雖然仲有啲飽，不過都係走咗去食嘢  

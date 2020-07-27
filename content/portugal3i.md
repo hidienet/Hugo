@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：Port Guy Tour 2 - Quevedo'
 date: 2017-12-07T18:20:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day3port-guy-tour-2-quevedo.html" ]
-tags : [flavor - 飲！, travel - Portugal]
+tags : [flavor - 飲！, travel-葡萄牙]
 ---
 
 因為已經參觀過酒窖  

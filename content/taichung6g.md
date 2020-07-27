@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day6：鹿港牛舌餅'
 date: 2014-09-04T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day6_14.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 平時一般說的臺灣牛舌餅  

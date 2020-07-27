@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day2：清境農場 綿羊脫衣show'
 date: 2014-08-19T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day2-show.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 一大清早去看的脫衣show  

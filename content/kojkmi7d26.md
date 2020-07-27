@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：仙巌園 尚古集成館'
 date: 2017-05-31T09:26:00.000+08:00
 draft: false
 aliases: [ "/2017/05/happy-days-day-7_31.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 兜過個神社，就到咗呢個集成館嘅area  

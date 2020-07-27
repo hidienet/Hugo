@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：Penedos (Barcelinhos)'
 date: 2018-03-06T09:17:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day5penedos-barcelinhos.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 由Barcelos去另一個市要幾耐？  

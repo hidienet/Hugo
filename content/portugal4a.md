@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Muralhas do Olival (2nd round)'
 date: 2017-12-13T09:24:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day4muralhas-do-olival-2nd-round.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 今朝會先响山頂間教堂參觀  

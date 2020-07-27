@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day8：Hotel Panorama'
 date: 2014-05-28T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day8hotel-panorama.html" ]
-tags : [flavor - 螞蟻族, travel - България (Bulgaria)]
+tags : [flavor - 螞蟻族, travel-保加利亞]
 ---
 
 下午茶時間（啦啦啦）  

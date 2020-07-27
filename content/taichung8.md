@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day8：宮原眼科'
 date: 2014-09-07T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day8.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 由日本眼科醫生宮原武熊在1927年所開設  

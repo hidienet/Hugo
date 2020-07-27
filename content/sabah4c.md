@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day4：Kinabalu Park'
 date: 2013-12-31T13:30:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day4kinabalu-park.html" ]
-tags : [travel - Malaysia・Sabah]
+tags : [travel-馬來西亞-沙巴]
 ---
 
 去沙巴都蠻「辛苦」，又玩水又要遊山  

@@ -3,7 +3,7 @@ title: '[seoul time] Day3：JILSIRU（질시루）'
 date: 2014-10-24T16:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day3jilsiru.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
+tags : [travel-南韓-首爾, flavor - 螞蟻族]
 ---
 
 睡到差不多上三竿的時間  

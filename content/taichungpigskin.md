@@ -3,7 +3,7 @@ title: '[臺中怒食遊] 購物篇：炸豬皮'
 date: 2014-09-03T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/blog-post.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 經過幾次都被這個景象吸引  

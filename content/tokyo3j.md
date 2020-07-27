@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day3：船橋屋 天ぷら'
 date: 2013-11-01T12:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3.html" ]
-tags : [flavor - 行膳積腹, travel-日本-東京箱根]
+tags : [flavor - 行膳積腹, travel-日本-東京御殿場箱根]
 ---
 
 完了銀座行程，買物到達失心瘋的程度  

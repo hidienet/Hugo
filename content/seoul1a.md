@@ -3,7 +3,7 @@ title: '[seoul time] Day1：東大門之倒瀉籮蟹'
 date: 2014-10-19T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day1.html" ]
-tags : [travel - 남한・서울 (首爾)]
+tags : [travel-南韓-首爾]
 ---
 
 漫步東大門  

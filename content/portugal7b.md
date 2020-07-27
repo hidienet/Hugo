@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day7：Igreja Monumento de São Francisco'
 date: 2018-04-03T09:33:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day7igreja-monumento-de-sao-francisco.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 佢個樣係黑麻麻咁  

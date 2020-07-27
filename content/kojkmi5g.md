@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 5：グリコ アイスの実  白
 date: 2017-03-09T10:04:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-5_9.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 螞蟻族, travel-日本-鹿兒島宮崎]
 ---
 
 因為[擒晚個蜜柑味](https://hidie.net/kojkmi4d/)實在太太太好食  

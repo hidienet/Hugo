@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day12：DINO'
 date: 2014-06-05T13:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day12dino.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 雖然餐廳位於公園中間不是在海邊  

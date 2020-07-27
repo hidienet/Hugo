@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day3：La Fenêtre Soleil'
 date: 2014-04-06T16:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day3la-fenetre-soleil.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 下午茶時間當然要多hea就有多hea  

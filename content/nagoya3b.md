@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day3：いちじく、もも@丸栄百貨店 B1'
 date: 2015-10-02T16:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day3-b1.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [travel-日本-名古屋]
 ---
 
 我不會說我在日本不會逛街的  

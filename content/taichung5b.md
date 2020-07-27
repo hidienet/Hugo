@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：鹿港阿道 特大魷魚'
 date: 2014-08-26T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day5_48.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 一朝早當然要吃炸物（咦？）  

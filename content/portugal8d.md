@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day8：Quinta do Bomfim - Symington Family Estates'
 date: 2018-04-23T09:32:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day8quinta-do-bomfim-symington-family.html" ]
-tags : [flavor - 飲！, travel - Portugal]
+tags : [flavor - 飲！, travel-葡萄牙]
 ---
 
 嚟Pinhão梗係為咗酒莊啦  

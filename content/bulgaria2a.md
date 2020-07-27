@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day2：айран балкан'
 date: 2014-05-12T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day2.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 到保加利亞當然會有很多乳酪  

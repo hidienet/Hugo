@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day11：KALISTO'
 date: 2014-06-03T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day11kalisto.html" ]
-tags : [flavor - 螞蟻族, travel - България (Bulgaria)]
+tags : [flavor - 螞蟻族, travel-保加利亞]
 ---
 
 因為逛完小島之後  

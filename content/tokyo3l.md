@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day3：Wa・Bi・Sa 手だてプリン'
 date: 2013-11-01T19:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3wabisa.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+tags : [flavor - 螞蟻族, travel-日本-東京箱根]
 ---
 
 回到酒店繼續宵夜時段⋯⋯  

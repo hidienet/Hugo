@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：鹿港鎮早市攤販集中市場'
 date: 2014-08-26T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day5_26.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 一早就去看看當地的早市場  

@@ -3,7 +3,7 @@ title: '西貢西貢食食貢（6D5N）'
 date: 2014-04-12T12:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/6d5n.html" ]
-tags : [lifestyle - 逃離852, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [lifestyle - 逃離852, travel-越南-西貢]
 ---
 
 「放幾日假去邊？」  

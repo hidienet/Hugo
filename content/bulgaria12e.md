@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day12：Pizza Da Vinci (2nd round)'
 date: 2014-06-05T20:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day12pizza-da-vinci-2nd-round.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 [就腳又不錯吃](https://hidie.net/bulgaria11h/)，食多round是不無道理的  

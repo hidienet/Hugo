@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day10：Manteigaria'
 date: 2018-05-10T09:15:00.000+08:00
 draft: false
 aliases: [ "/2018/05/day10manteigaria.html" ]
-tags : [flavor - 螞蟻族, travel - Portugal]
+tags : [flavor - 螞蟻族, travel-葡萄牙]
 ---
 
 放低完行裝又係周圍兜吓

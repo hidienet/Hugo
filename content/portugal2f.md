@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：Café Santiago - Francesinhas'
 date: 2017-11-22T09:25:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2cafe-santiago-francesinhas.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 嚟Porto一定要食Francesinhas  

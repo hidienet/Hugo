@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day5：ほづみ亭 - 宇和島鯛飯、宇和�
 date: 2020-04-23T10:22:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day5_23.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [flavor - 行膳積腹, travel-日本-四國]
 ---
 
 行完山就到食晏時間  

@@ -10,58 +10,58 @@ tags : [amusement - exhibition, amusement - zene]
 而如果將肉眼睇唔到嘅作品  
 以有形嘅實體去呈現呢？  
 
-[![](https://c1.staticflickr.com/1/818/40094502995_35ed9cb98c_z.jpg)](https://c1.staticflickr.com/1/818/40094502995_35ed9cb98c_z.jpg)
+![](/images/notatingbeautythatmoves.jpg)
 
 咁就入去睇吓啦！  
 
-[![](https://c1.staticflickr.com/1/821/39178908830_30318de495_z.jpg)](https://c1.staticflickr.com/1/821/39178908830_30318de495_z.jpg)
+![](/images/notatingbeautythatmoves1.jpg)
 
 展覽係以古典至現代嘅作曲家  
 佢哋嘅記譜模式引伸出唔同媒介嘅作品  
 
-[![](https://c1.staticflickr.com/1/818/39178901890_f85fe9dc27_z.jpg)](https://c1.staticflickr.com/1/818/39178901890_f85fe9dc27_z.jpg)
+![](/images/notatingbeautythatmoves2.jpg)
 
 譜模  
 
-[![](https://c1.staticflickr.com/5/4784/40094497765_9d196ca8eb_z.jpg)](https://c1.staticflickr.com/5/4784/40094497765_9d196ca8eb_z.jpg)
+![](/images/notatingbeautythatmoves3.jpg)
 
 出到嚟就係一幅幅完美嘅樂章  
 
-[![](https://c1.staticflickr.com/1/816/39178900220_61098355ec_z.jpg)](https://c1.staticflickr.com/1/816/39178900220_61098355ec_z.jpg)
+![](/images/notatingbeautythatmoves4.jpg)
 
 用筆去記錄指揮嘅動作  
 
-[![](https://c1.staticflickr.com/1/811/40094502005_1f5b2bb0a4_z.jpg)](https://c1.staticflickr.com/1/811/40094502005_1f5b2bb0a4_z.jpg)
+![](/images/notatingbeautythatmove5s.jpg)
 
 展品嚟自世界各地、唔同時代  
 
-[![](https://c1.staticflickr.com/1/818/40094501575_94559fe21a_z.jpg)](https://c1.staticflickr.com/1/818/40094501575_94559fe21a_z.jpg)
+![](/images/notatingbeautythatmoves6.jpg)
 
 無聲嘅投射video  
 
-[![](https://c1.staticflickr.com/1/804/39178903830_07c59ff588_z.jpg)](https://c1.staticflickr.com/1/804/39178903830_07c59ff588_z.jpg)
+![](/images/notatingbeautythatmoves7.jpg)
 
 好跳脫  
 
-[![](https://c1.staticflickr.com/1/804/39178903030_789f01137a_z.jpg)](https://c1.staticflickr.com/1/804/39178903030_789f01137a_z.jpg)
+![](/images/notatingbeautythatmoves8.jpg)
 
 好似棋盤咁呀哈哈  
 
-[![](https://c1.staticflickr.com/1/820/40094498545_9b0508e3d0_z.jpg)](https://c1.staticflickr.com/1/820/40094498545_9b0508e3d0_z.jpg)
+![](/images/notatingbeautythatmoves9.jpg)
 
 用歌詞去形容樂器  
 
-[![](https://c1.staticflickr.com/1/820/39178906930_86a3bee950_z.jpg)](https://c1.staticflickr.com/1/820/39178906930_86a3bee950_z.jpg)
+![](/images/notatingbeautythatmoves10.jpg)
 
 响亡父嘅100張樂譜上面畫畫  
 成就咗兩代人嘅跨時空創作  
 
-[![](https://c1.staticflickr.com/5/4779/39178906130_1436213d99_z.jpg)](https://c1.staticflickr.com/5/4779/39178906130_1436213d99_z.jpg)
+![](/images/notatingbeautythatmoves11.jpg)
 
 全部36樣作品嘅詳細資料都响場刊度搵到  
 左邊，係現場演奏節目表  
 
-[![](https://c1.staticflickr.com/5/4772/40094500305_57f2d35620_z.jpg)](https://c1.staticflickr.com/5/4772/40094500305_57f2d35620_z.jpg)
+![](/images/notatingbeautythatmoves12.jpg)
 
 今個黃昏係香港小交響樂團嘅演出：  
 The Strings Aligned  
@@ -69,13 +69,13 @@ The Strings Aligned
 （Dmitri Shostakovich）  
 深沉啲嘅樂章  
 
-[![](https://c1.staticflickr.com/1/802/39178904760_3ef7791b2d_z.jpg)](https://c1.staticflickr.com/1/802/39178904760_3ef7791b2d_z.jpg)
+![](/images/notatingbeautythatmoves13.jpg)
 
 另一首係String Quartet No 12 in F, OP 96, "American"  
 （Antonín Dvořák）  
 呢隻就開心愉快嘅  
 
-[![](https://c1.staticflickr.com/5/4777/40094499695_2e99bc148b_z.jpg)](https://c1.staticflickr.com/5/4777/40094499695_2e99bc148b_z.jpg)
+![](/images/notatingbeautythatmoves14.jpg)
 
 有香港小交響樂團就有葉詠詩啦～  
 佢話聽日嘅The Wind Rises都會好精彩  

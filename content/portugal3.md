@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：Porto ↔ Vila Nova de Gaia'
 date: 2017-07-26T09:31:00.000+08:00
 draft: false
 aliases: [ "/2017/07/day3porto-vila-nova-de-gaia.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 今日嘅行程係：PORT！PORT！！PORT！！！（一齊大叫）  

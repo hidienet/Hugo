@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：hana bank - 街拍 & leaflet'
 date: 2014-11-03T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-hana-bank-leaflet.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 瘋狂的影了博物館後  

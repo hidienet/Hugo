@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day9：Bufete Marina'
 date: 2018-04-25T09:35:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day9bufete-marina.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 一朝早，去邊都好啦  

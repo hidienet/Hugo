@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day1：台湾ラーメン 味仙'
 date: 2015-09-29T12:30:00.000+08:00
 draft: false
 aliases: [ "/2015/09/go-go-nagoya-day1.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 搭乘下午飛機，黃昏落機  

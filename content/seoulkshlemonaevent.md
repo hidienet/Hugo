@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：lemona event（見真人！）'
 date: 2014-10-19T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-lemona-event.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 一早明白世界上是沒有甚麼偶遇  

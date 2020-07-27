@@ -3,7 +3,7 @@ title: '[seoul time] Day7：明洞餃子 명동교자 - 饅頭만두、刀切麵
 date: 2014-11-03T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-day7.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾)]
 ---
 
 除了炸醬麵外  

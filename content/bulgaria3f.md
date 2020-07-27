@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day3：在攤檔市場買的大大個粉紅番�
 date: 2014-05-16T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day3.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 在[balkan bites](https://hidie.net/bulgaria2f/)時真的有特別留心聽講  

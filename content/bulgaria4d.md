@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Free Plovdiv Tour'
 date: 2014-05-18T22:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/free-plovdiv-tour.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 來一次Plovdiv精華建築歷史元補  

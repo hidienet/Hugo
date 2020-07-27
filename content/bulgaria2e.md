@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day2：orient express'
 date: 2014-05-13T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day2orient-express.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 有人又喊肚餓  

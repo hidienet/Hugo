@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：Feira de Barcelos'
 date: 2018-01-30T21:20:00.000+08:00
 draft: false
 aliases: [ "/2018/01/day5feira-de-barcelos.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 一落車即刻行去 **Feira de Barcelos**  

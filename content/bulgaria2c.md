@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：從centralni hali到古羅馬遺跡'
 date: 2014-05-12T20:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/centralni-hali.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 Centralni Hali是中央街市  

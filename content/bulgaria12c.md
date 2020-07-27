@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Primorski Park'
 date: 2014-06-05T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/primorski-park.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 飲飽食醉散步去  

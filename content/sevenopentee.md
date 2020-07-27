@@ -3,7 +3,7 @@ title: '[臺中怒食遊] 購物篇：7-11 OPEN小將 x 清境 tee'
 date: 2014-08-23T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/7-11-open-x-tee.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港, glamorous - 裝身]
+tags : [travel - 臺灣清境鹿港, glamorous - 裝身]
 ---
 
 在全台灣最高海拔的7-11...  

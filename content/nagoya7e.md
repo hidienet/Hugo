@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day7：覚王山吉芋 - 吉芋花火、べっ甲芋
 date: 2015-10-29T21:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day7_29.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
+tags : [travel-日本-名古屋, flavor - 螞蟻族]
 ---
 
 食碗麵做晚餐果然係滿足唔到旅行胃食mode全開嘅我  

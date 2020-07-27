@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day9：bread house (пекарна за када
 date: 2014-05-29T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day9bread-house.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 好像幾天沒有吃早餐了  

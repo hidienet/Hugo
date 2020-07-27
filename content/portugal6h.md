@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day6：Bistrô - YOURS GuestHouse'
 date: 2018-03-28T09:50:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day6bistro-yours-guesthouse.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 返到Porto再散吓步  

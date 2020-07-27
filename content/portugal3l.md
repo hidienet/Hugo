@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：Taberna d''Avó'
 date: 2017-12-12T09:41:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day3taberna-davo.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 過咗個黃昏，即係又到咗美妙嘅晚飯時間喇  

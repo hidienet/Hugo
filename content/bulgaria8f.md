@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Tsarevets'
 date: 2014-05-26T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/tsarevets.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 Veliko Turnovo作為保加利亞第二帝國的首都（1185-1396）  

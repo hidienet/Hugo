@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day8：Restaurante Churrasqueira Brasil'
 date: 2018-04-24T09:38:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day8restaurante-churrasqueira-brasil.html" ]
-tags : [flavor - 行膳積腹, travel - Portugal]
+tags : [flavor - 行膳積腹, travel-葡萄牙]
 ---
 
 舟車勞頓完有啲攰  

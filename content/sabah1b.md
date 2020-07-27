@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day1：完全征服味蕾的海鮮餐！！！'
 date: 2013-12-28T20:30:00.000+08:00
 draft: false
 aliases: [ "/2013/12/day1.html" ]
-tags : [flavor - 行膳積腹, travel - Malaysia・Sabah]
+tags : [flavor - 行膳積腹, travel-馬來西亞-沙巴]
 ---
 
 臨海的海鮮真的甚麼都生猛甚麼都好吃（超大心）  

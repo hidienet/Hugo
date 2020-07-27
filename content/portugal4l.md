@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Antunes'
 date: 2018-01-03T09:28:00.000+08:00
 draft: false
 aliases: [ "/2018/01/day4antunes.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 食完tea，再行吓行吓shopping吓  

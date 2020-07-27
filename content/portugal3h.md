@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：Cálem & Offley'
 date: 2017-12-07T09:22:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day3calem-offley.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 除咗TAYLOR'S，香港常見嘅port仲有Cálem & Offley  

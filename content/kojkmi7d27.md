@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：仙巌園 磯工芸館'
 date: 2017-06-01T09:10:00.000+08:00
 draft: false
 aliases: [ "/2017/06/happy-days-day-7.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 真係唔買都睇吓～  

@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day5：安東廣場、安東市場'
 date: 2014-04-09T19:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day5.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 朋友嘛，知道你去旅行的話  

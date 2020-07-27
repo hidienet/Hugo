@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day4：My Cafè & Bar'
 date: 2014-05-19T11:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day4my-cafe-bar.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 因為午餐太飽，但不吃點東西又不行  

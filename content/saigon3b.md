@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day3：Chả cá Lã Vọng'
 date: 2014-04-06T15:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day3cha-ca-la-vong.html" ]
-tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 行膳積腹, travel-越南-西貢]
 ---
 
 又熱又累，要吃好東西才能對得住自己  

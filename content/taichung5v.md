@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：鹿港隨手影'
 date: 2014-09-01T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day5_1.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 今天走了很多路，除了一些特定景點外  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day2：Fettuccine Maretti Funghissime'
 date: 2014-05-14T18:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day2fettuccine-maretti-funghissime.html" ]
-tags : [travel - България (Bulgaria), flavor - 小食部]
+tags : [travel-保加利亞, flavor - 小食部]
 ---
 
 宵夜零食時段（嘻嘻）  

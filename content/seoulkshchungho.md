@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：청호나이스 ChungHo - whi caffe'
 date: 2014-10-22T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-chungho-whi-caffe.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 地鐵影燈箱不好拍呢（扁嘴）  

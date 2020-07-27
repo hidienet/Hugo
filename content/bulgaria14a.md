@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：漫步Sofia'
 date: 2014-06-08T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/sofia.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 原本五點九才是下火車時間  

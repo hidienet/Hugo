@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Nessebar Old Town'
 date: 2014-06-02T16:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/nessebar-old-town.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 從Varna到Nessebar old town  

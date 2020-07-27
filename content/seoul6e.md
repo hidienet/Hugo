@@ -3,7 +3,7 @@ title: '[seoul time] Day6：hite max all malt beer'
 date: 2014-11-02T15:00:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-day6hite-max-all-malt-beer.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 飲！]
+tags : [travel-南韓-首爾, flavor - 飲！]
 ---
 
 之前喝那個超君子的[dry finish](https://hidie.net/hitebeer/)  

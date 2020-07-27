@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day10：harmonica - organic ayran from cow milk'
 date: 2014-06-01T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day10harmonica-organic-ayran-from-cow.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 有少少餓加上好口乾  

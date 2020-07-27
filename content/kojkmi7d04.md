@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：仙巌園 x 桜島'
 date: 2017-04-20T09:13:00.000+08:00
 draft: false
 aliases: [ "/2017/04/happy-days-day-7-x.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 庭院嘅「假山」係桜島喎  

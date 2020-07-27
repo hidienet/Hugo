@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Rilski Manastir'
 date: 2014-05-20T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/rilski-manastir.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 來到Balkan Peninsula中最大的修道院  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day8：旭堂の元祖ぼうしパン'
 date: 2020-05-24T16:35:00.001+08:00
 draft: false
 aliases: [ "/2020/05/day8_9.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 小食部]
+tags : [travel-日本-四國, flavor - 小食部]
 ---
 
 上機前都食返少少嘢先  

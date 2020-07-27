@@ -3,7 +3,7 @@ title: '沙巴密密食（5D4N）'
 date: 2014-01-01T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/5d4n.html" ]
-tags : [lifestyle - 逃離852, travel - Malaysia・Sabah]
+tags : [lifestyle - 逃離852, travel-馬來西亞-沙巴]
 ---
 
 除了吃，還是吃  

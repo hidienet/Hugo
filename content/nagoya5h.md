@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day5：ぴよりん'
 date: 2015-10-16T18:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day5_16.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
+tags : [travel-日本-名古屋, flavor - 螞蟻族]
 ---
 
 吃了難吃得死去活來的[山本屋本店](https://hidie.net/nagoya5g/)後  

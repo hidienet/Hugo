@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day3：Port Guy Tour 3 - Augusto''s'
 date: 2017-12-08T09:36:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day3port-guy-tour-3-augustos.html" ]
-tags : [flavor - 飲！, travel - Portugal]
+tags : [flavor - 飲！, travel-葡萄牙]
 ---
 
 飲完幾杯就行出河邊吹下風行吓  

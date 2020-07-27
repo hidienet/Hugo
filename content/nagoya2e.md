@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day2：俺の 杏仁豆腐'
 date: 2015-10-01T23:39:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day2_1.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
+tags : [travel-日本-名古屋, flavor - 螞蟻族]
 ---
 
 繼續邪惡的宵夜時間  

@@ -3,7 +3,7 @@ title: '臺中怒食遊 +清境 & 鹿港（8D7N）'
 date: 2014-09-08T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/8d7n.html" ]
-tags : [lifestyle - 逃離852, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [lifestyle - 逃離852, travel - 臺灣清境鹿港]
 ---
 
 清境食・避暑  

@@ -3,7 +3,7 @@ title: '[seoul time] Day5：caffé bene - 咖啡冰 커피빙수'
 date: 2014-10-30T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day5caffe-bene.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
+tags : [travel-南韓-首爾, flavor - 螞蟻族]
 ---
 
 好大的一杯，忍不住拿來玩...  

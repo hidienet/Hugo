@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day6：東華麵茶 麵茶剉冰'
 date: 2014-09-03T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day6_3.html" ]
-tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 螞蟻族, travel - 臺灣清境鹿港]
 ---
 
 「看誰笑到最後？！」  

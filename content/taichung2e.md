@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day2：清境農場 午飯時間'
 date: 2014-08-20T12:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day2_48.html" ]
-tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 行膳積腹, travel - 臺灣清境鹿港]
 ---
 
 清境農場分了兩區  

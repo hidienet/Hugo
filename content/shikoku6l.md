@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day6：明神丸 - 藁焼きタタキ'
 date: 2020-05-05T15:26:00.002+08:00
 draft: false
 aliases: [ "/2020/05/day6_5.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [flavor - 行膳積腹, travel-日本-四國]
 ---
 
 入到嚟[ひろめ市場](https://hidie.net/shikoku6k/)...  

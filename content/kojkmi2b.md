@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 2：霧島神宮（高千穗牧場
 date: 2017-01-12T09:30:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-2-x.html" ]
-tags : [flavor - 飲！, flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 飲！, flavor - 螞蟻族, travel-日本-鹿兒島宮崎]
 ---
 
 去霧島唔係唔行吓霧島神宮呀嘛？  

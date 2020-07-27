@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Veliko Tarnovo - street art'
 date: 2014-05-26T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/veliko-tarnovo-street-art.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 其實不只sofia有很多street art  

@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day7：Ice Lover'
 date: 2018-04-16T09:31:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day7ice-lover.html" ]
-tags : [flavor - 螞蟻族, travel - Portugal]
+tags : [flavor - 螞蟻族, travel-葡萄牙]
 ---
 
 返到嚟São Bento唔早唔晏  

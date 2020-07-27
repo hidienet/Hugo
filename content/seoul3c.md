@@ -3,7 +3,7 @@ title: '[seoul time] Day3：鳳雛炖雞 봉추찜닭'
 date: 2014-10-24T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day3.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾]
 ---
 
 全店就只有這炖雞一味  

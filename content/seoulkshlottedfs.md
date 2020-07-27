@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：lotte - duty free style magazine, LOTZINE, c
 date: 2014-10-24T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-lotte-duty-free-style.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 免費的「手信」，cheap飯必入的東西（哈）  

@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：NATA Lisboa'
 date: 2018-01-31T19:20:00.000+08:00
 draft: false
 aliases: [ "/2018/01/day5nata-lisboa.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, flavor - 螞蟻族, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, flavor - 螞蟻族, travel-葡萄牙]
 ---
 
 終於响葡萄牙第一次食到葡撻（感動）  

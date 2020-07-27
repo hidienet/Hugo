@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day4：Dayana'
 date: 2014-05-18T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day4dayana.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 在Plovdiv旅客中心的小姐介紹的餐館  

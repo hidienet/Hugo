@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day8：壺屋 稲荷寿し'
 date: 2015-10-30T15:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day8_30.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 唔夠時間慢慢坐低食late lunch  

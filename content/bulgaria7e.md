@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Veliko Tarnovo old town'
 date: 2014-05-24T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/veliko-tarnovo-old-town.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 天氣好又食得飽，就在附近閒逛  

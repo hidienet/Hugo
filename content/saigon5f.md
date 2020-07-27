@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day5：Trung Nguyên'
 date: 2014-04-11T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day5trung-nguyen.html" ]
-tags : [flavor - 飲！, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 飲！, travel-越南-西貢]
 ---
 
 要hea嘆越南啡～  

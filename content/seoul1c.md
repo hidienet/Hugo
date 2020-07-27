@@ -3,7 +3,7 @@ title: '[seoul time] Day1：롯데제과 설레임 (Lotte Seolleim)'
 date: 2014-10-20T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day1-lotte-seolleim.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현, flavor - 螞蟻族]
+tags : [travel-南韓-首爾, collections - 김수현, flavor - 螞蟻族]
 ---
 
 韓國人很喜歡吃冰品  

@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day5：wrap & roll'
 date: 2014-04-11T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day5wrap-roll.html" ]
-tags : [flavor - 行膳積腹, travel - Việt Nam・Sài Gòn (saigon)]
+tags : [flavor - 行膳積腹, travel-越南-西貢]
 ---
 
 大型連鎖店不一定不好吃就是  

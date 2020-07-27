@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day13：Bistro Europe'
 date: 2014-06-06T20:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day13bistro-europe.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 去旅行時能暴飲暴食真的“巧膠扇”  

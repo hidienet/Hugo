@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day3：Mezzacorona Lagrein Rosato Trentino DOC'
 date: 2014-05-17T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day3mezzacorona-lagrein-rosato-trentino.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 原本是想一直試保加利亞的酒  

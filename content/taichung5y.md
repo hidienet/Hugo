@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：晚餐麵麵食'
 date: 2014-09-02T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day5_52.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 夜市沒有東西吸引胃部  

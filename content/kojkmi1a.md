@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 1：霧島TAXI GO！！！'
 date: 2017-01-04T11:44:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-1taxi-go.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 「我响日本搭的士呀！」   

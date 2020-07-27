@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day8：Porto ↔ Pinhão'
 date: 2017-08-02T09:30:00.000+08:00
 draft: false
 aliases: [ "/2017/08/day8porto-pinhao.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 一早就搭幾粒鐘火車（呵欠）  

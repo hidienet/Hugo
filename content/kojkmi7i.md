@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：かごっまふるさと屋台
 date: 2017-06-08T09:27:00.000+08:00
 draft: false
 aliases: [ "/2017/06/happy-days-day-7_8.html" ]
-tags : [travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [travel-日本-鹿兒島宮崎]
 ---
 
 夠鐘食飯又啱啱咁近中央駅  

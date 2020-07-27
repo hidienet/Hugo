@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：鹿港文武廟'
 date: 2014-08-29T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day5_29.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 「屎坑關刀」，拜拜啦～  

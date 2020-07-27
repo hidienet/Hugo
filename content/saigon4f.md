@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day4：day tour - 現製椰子糖'
 date: 2014-04-08T12:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day4day-tour_2217.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 最後一個行程，都是吃的  

@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day4：day tour - 午飯怪怪魚'
 date: 2014-04-07T16:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day4day-tour_7.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 午飯，是這條湄公河獨有的怪怪魚  

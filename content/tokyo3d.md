@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day3：築地市場'
 date: 2013-10-30T16:00:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day3_30.html" ]
-tags : [travel-日本-東京箱根]
+tags : [travel-日本-東京御殿場箱根]
 ---
 
 最怕行wet market  

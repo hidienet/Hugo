@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day3：新宿西口思い出横丁'
 date: 2013-11-01T16:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3_1.html" ]
-tags : [travel-日本-東京箱根]
+tags : [travel-日本-東京御殿場箱根]
 ---
 
 在船橋屋吃不夠，要來吃串燒跟喝啤酒  

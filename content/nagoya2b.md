@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day2：HINANO GARDEN 〜TAHITIAN BEER&GRILL 〜 '
 date: 2015-10-01T12:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day2hinano-garden-tahitian.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 逛完街，就要大吃一場補充體力！  

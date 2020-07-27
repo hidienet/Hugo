@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day1：Ristorante Piazza Italia'
 date: 2014-05-11T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day1_11.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 「第一餐居然是意大利菜？」  

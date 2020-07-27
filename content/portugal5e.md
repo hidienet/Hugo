@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：Barcelos walking'
 date: 2018-03-05T09:27:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day5barcelos-walking_5.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 除咗雞之外，Barcelos呢度都仲有嘢睇吓嘅...  

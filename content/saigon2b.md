@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：胡志明市博物館'
 date: 2014-04-02T15:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2_2.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 在Bảo tàng Thành phố Hồ Chí Minh (city museum) 快速地認識這地方（惡補）  

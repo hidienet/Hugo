@@ -3,7 +3,7 @@ title: '[seoul time] Day7：參雞湯 삼계탕、排骨湯 갈비탕'
 date: 2014-11-04T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-day7_4.html" ]
-tags : [flavor - 行膳積腹, travel - 남한・서울 (首爾)]
+tags : [flavor - 行膳積腹, travel-南韓-首爾]
 ---
 
 一般來說，在機場吃的都是比較難吃  

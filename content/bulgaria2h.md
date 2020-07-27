@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day2：Hadzhidraganovite izbi'
 date: 2014-05-14T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day2hadzhidraganovite-izbi.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 昨天在一直Vitosha一直找不到吃的  

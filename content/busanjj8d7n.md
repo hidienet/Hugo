@@ -3,7 +3,7 @@ title: '明明遊慶州 偏向釜山行（8D7N）'
 date: 2014-01-22T12:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/8d7n.html" ]
-tags : [lifestyle - 逃離852, travel - 남한・부산、경주 (釜山、慶州)]
+tags : [lifestyle - 逃離852, travel-南韓-慶州釜山]
 ---
 
 連不太能吃辣的我  

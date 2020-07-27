@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Arbanassi'
 date: 2014-05-27T17:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/arbanassi.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 真的要周圍逛逛幫助消化  

@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 8：ステーキハウス和牛門
 date: 2017-06-19T09:32:00.000+08:00
 draft: false
 aliases: [ "/2017/06/happy-days-day-8_19.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 行膳積腹, travel-日本-鹿兒島宮崎]
 ---
 
 前兩日食完個普普通通嘅燴[鹿児島黒毛和牛](https://hidie.net/kojkmi6m/)  

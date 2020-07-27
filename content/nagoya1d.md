@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] KIRIN アルカリイオンの水'
 date: 2015-09-30T09:20:00.000+08:00
 draft: false
 aliases: [ "/2015/09/go-go-nagoya-kirin.html" ]
-tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 飲！, travel-日本-名古屋]
 ---
 
 因為好想大口大口地喝清水  

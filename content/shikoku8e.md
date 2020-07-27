@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day8：日曜市 戰利品們！'
 date: 2020-05-21T10:45:00.067+08:00
 draft: false
 aliases: [ "/2020/05/day8_21.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [travel-日本-四國]
 ---
 
 响[日曜市](https://hidie.net/shikoku8b/)買嘅全部都係食嘅  

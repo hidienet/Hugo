@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day5：宵夜（+ MAVRUD ）'
 date: 2014-05-22T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day5mabpya.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 雖然剛在Pub Crawl喝喝喝  

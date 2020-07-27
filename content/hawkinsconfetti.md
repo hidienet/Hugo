@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] HAWKINS ホーキンス ジュートスリッポン 
 date: 2015-09-30T21:00:00.000+08:00
 draft: false
 aliases: [ "/2015/09/go-go-nagoya-hawkins-confetti-hw20059.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, glamorous - 裝身]
+tags : [travel-日本-名古屋, glamorous - 裝身]
 ---
 
 當在韓國買了又平又好著的made in Korea鞋  

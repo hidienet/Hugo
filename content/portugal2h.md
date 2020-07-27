@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：Olá Porto'
 date: 2017-11-24T09:17:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2ola-porto.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 飲飽食醉就响Porto市中心遊遊蕩蕩  

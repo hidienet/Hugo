@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day9：It''s Fruit Time'
 date: 2018-05-02T09:30:00.000+08:00
 draft: false
 aliases: [ "/2018/05/day9its-fruit-time.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 街市未開啫，超市照常營業...  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：有花有山有建築'
 date: 2014-05-15T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/blog-post_15.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 雖然保加利亞是出產玫瑰花  

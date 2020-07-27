@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 7：仙巌園 御殿'
 date: 2017-05-08T10:00:00.000+08:00
 draft: false
 aliases: [ "/2017/05/happy-days-day-7_8.html" ]
-tags : [flavor - 螞蟻族, flavor - 飲！, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 螞蟻族, flavor - 飲！, travel-日本-鹿兒島宮崎]
 ---
 
 呢張「入場卷」係加多少少銀両嘅「御殿共通券」  

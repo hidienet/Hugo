@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day8：まるは食堂'
 date: 2015-11-04T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/11/go-go-nagoya-day8_4.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 好爽咁浸完個溫泉，又開始餓餓地  

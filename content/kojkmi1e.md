@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 1：失眠和菓子'
 date: 2017-01-10T11:03:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-1_10.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 螞蟻族, travel-日本-鹿兒島宮崎]
 ---
 
 十一二點舒舒服服咁去瞓  

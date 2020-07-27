@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 4：黒豚料理 あぢもり'
 date: 2017-02-09T09:56:00.000+08:00
 draft: false
 aliases: [ "/2017/02/happy-days-day-4_9.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 行膳積腹, travel-日本-鹿兒島宮崎]
 ---
 
 去鹿児島唔係唔食黒豚呀化？  

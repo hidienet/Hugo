@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day4：星乃珈琲店'
 date: 2015-10-04T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day4.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 到名古屋就是要吃早餐！  

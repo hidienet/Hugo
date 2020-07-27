@@ -3,7 +3,7 @@ title: '[seoul time] Day1：miss & mr potato'
 date: 2014-10-20T18:00:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day1miss-mr-potato.html" ]
-tags : [travel - 남한・서울 (首爾)]
+tags : [travel-南韓-首爾]
 ---
 
 沒甚麼，只是在lotte card art center門前  

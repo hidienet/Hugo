@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day16：Lisboa（...Oriente）'
 date: 2017-08-14T09:06:00.000+08:00
 draft: false
 aliases: [ "/2017/08/day16lisboaoriente.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 今日晏一晏先起身  

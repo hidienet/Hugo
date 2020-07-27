@@ -3,7 +3,7 @@ title: '[seoul time] 김수현篇：피죤 실크키스 (섬유유연제) pigeon
 date: 2014-11-05T10:30:00.001+08:00
 draft: false
 aliases: [ "/2014/11/seoul-time-pigeon.html" ]
-tags : [travel - 남한・서울 (首爾), collections - 김수현]
+tags : [travel-南韓-首爾, collections - 김수현]
 ---
 
 12-13的柔順劑代言  

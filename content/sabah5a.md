@@ -3,7 +3,7 @@ title: '[沙巴密密食] Day5：印度印度高高高（roti pisang/ tisu + teh
 date: 2014-01-01T00:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day5roti-pisang-tisu-teh-tarik.html" ]
-tags : [travel - Malaysia・Sabah]
+tags : [travel-馬來西亞-沙巴]
 ---
 
 5～ 4～ 3～ 2～ 1～ happy new year！  

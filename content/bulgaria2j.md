@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day2：Targovishte 2012 Muscat Ottonel'
 date: 2014-05-14T22:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day2targovishte-2012-muscat-ottonel.html" ]
-tags : [flavor - 飲！, travel - България (Bulgaria)]
+tags : [flavor - 飲！, travel-保加利亞]
 ---
 
 Muscat Ottonel是保加利亞種的提子  

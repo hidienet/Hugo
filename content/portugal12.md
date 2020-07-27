@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day12：Lisboa  (～Belém)'
 date: 2017-08-08T09:57:00.000+08:00
 draft: false
 aliases: [ "/2017/08/day12lisboa-belem.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 晨七咁早落樓去「把撚」  

@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day10：Палавия Джак again'
 date: 2014-06-01T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day10-again.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 逛了一天街，就在apartment附近吃  

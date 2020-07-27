@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day2：手打ちうどん 鶴丸'
 date: 2020-04-06T10:13:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day2_6.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [flavor - 行膳積腹, travel-日本-四國]
 ---
 
 擒晚食唔到，今晚終於等到佢開舖yeah  

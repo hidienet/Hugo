@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：Muralhas do Olival'
 date: 2017-11-20T09:40:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2muralhas-do-olival.html" ]
-tags : [flavor - 行膳積腹, travel - Portugal]
+tags : [flavor - 行膳積腹, travel-葡萄牙]
 ---
 
 同民宿嘅屋主拎完鎖匙就一齊再向上行  

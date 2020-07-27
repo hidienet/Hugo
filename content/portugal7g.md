@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day7：Oceano Atlântico（Santa Clara）'
 date: 2018-04-12T09:17:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day7oceano-atlanticosanta-clara.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 特登搭車過嚟Porto嘅邊皮  

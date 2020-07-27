@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 遊覽篇：Veliko Tarnovo - curtain wall art'
 date: 2014-05-26T16:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/veliko-tarnovo-curtain-wall-art.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 除了現代的street art外  

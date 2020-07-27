@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day11：Pizza Da Vinci'
 date: 2014-06-04T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day11pizza-da-vinci.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 在坐完這回程又兩個小時的車後  

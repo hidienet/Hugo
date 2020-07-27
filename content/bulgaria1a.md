@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day1：儀仗隊'
 date: 2014-05-11T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day1.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 雖然折騰了十七小時的航程  

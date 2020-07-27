@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day14：Café Ma Baker'
 date: 2014-06-08T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day14cafe-ma-baker.html" ]
-tags : [flavor - 行膳積腹, travel - България (Bulgaria)]
+tags : [flavor - 行膳積腹, travel-保加利亞]
 ---
 
 今天的早餐也是食包包  

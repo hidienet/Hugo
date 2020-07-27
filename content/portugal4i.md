@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Metro do Porto (& Andante)'
 date: 2017-12-28T09:21:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day4metro-do-porto-andante.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 頭先用腳行嚟Casa da Música  

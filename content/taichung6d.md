@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day6：無餓不坐麵線糊'
 date: 2014-09-03T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day6_61.html" ]
-tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 行膳積腹, travel - 臺灣清境鹿港]
 ---
 
 [不喜歡麵線](https://hidie.net/taipei2a/)的我  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day4：讃岐うどん 上原屋本店'
 date: 2020-04-14T11:02:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day4.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [flavor - 行膳積腹, travel-日本-四國]
 ---
 
 先由瓦町搭去**栗林**  

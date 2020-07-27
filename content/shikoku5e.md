@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day5：一六本舗 宇和島店 - 一六タル�
 date: 2020-04-22T10:10:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day5_22.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知, flavor - 螞蟻族]
+tags : [travel-日本-四國, flavor - 螞蟻族]
 ---
 
 上宇和島城前就先再食少少嘢  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day6：とさけんぴ'
 date: 2020-05-07T10:15:00.002+08:00
 draft: false
 aliases: [ "/2020/05/day6_7.html" ]
-tags : [travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [travel-日本-四國]
 ---
 
 响[情報交流館](https://hidie.net/shikoku6n/)行返出嚟  

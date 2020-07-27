@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day2：閒逛－濱城市場、市政宮'
 date: 2014-04-02T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day2.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 酒店包早餐，所以就食少少水果才出發  

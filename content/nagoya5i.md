@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day5：一升びん 松阪牛焼肉'
 date: 2015-10-19T18:00:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day5_67.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 行膳積腹, travel-日本-名古屋]
 ---
 
 原本今晚想去[李昇](http://www.shoya.com/)吃飛驒牛  

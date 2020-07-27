@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day6：アピタ Apita'
 date: 2015-10-23T15:50:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-apita.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [travel-日本-名古屋]
 ---
 
 住在栄，走上街已是一大跳百貨公司街  

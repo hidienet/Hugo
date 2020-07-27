@@ -3,7 +3,7 @@ title: '東京箱根食買浸 (6D5N)'
 date: 2013-11-04T21:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/6d5n.html" ]
-tags : [lifestyle - 逃離852, travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根]
+tags : [lifestyle - 逃離852, travel-日本-東京御殿場箱根]
 ---
 
 東京喪吃買物失心瘋  

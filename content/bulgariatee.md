@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] 購物篇：Veliko Tarnovo old town tee'
 date: 2014-05-29T13:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/veliko-tarnovo-old-town-tee.html" ]
-tags : [travel - България (Bulgaria), glamorous - 裝身]
+tags : [travel-保加利亞, glamorous - 裝身]
 ---
 
 old town那麼漂亮，怎樣才可以帶走？  

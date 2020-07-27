@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Restaurante Snoopy'
 date: 2017-12-27T09:24:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day4restaurante-snoopy.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel - Portugal]
+tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
 ---
 
 食晏時間梗係繼續食葡國菜啦！  

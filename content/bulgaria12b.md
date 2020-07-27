@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day12：Graffiti Cafe'
 date: 2014-06-04T21:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day12graffiti-cafe.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 用餐時間～  

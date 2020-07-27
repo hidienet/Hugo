@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day10：Amorino Chiado'
 date: 2018-05-11T09:14:00.000+08:00
 draft: false
 aliases: [ "/2018/05/day10amorino-chiado.html" ]
-tags : [flavor - 螞蟻族, travel - Portugal]
+tags : [flavor - 螞蟻族, travel-葡萄牙]
 ---
 
 逛逛吓，又搵個地方坐低食吓雪糕飲吓咖啡先...  

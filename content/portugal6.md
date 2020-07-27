@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day6：Porto ↔ Guimarães'
 date: 2017-07-31T09:48:00.000+08:00
 draft: false
 aliases: [ "/2017/07/day6porto-guimaraes.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 今日去睇千年古都 － Guimarães  

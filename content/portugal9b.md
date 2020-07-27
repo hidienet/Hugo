@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day9：Bus Route 500 - Rio Douro'
 date: 2018-04-26T09:31:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day9bus-route-500-rio-douro-x-oceano.html" ]
-tags : [travel - Portugal]
+tags : [travel-葡萄牙]
 ---
 
 今日唔係搭火車去遠征  

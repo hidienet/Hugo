@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day4：げんき100ばい！アンパンマン�
 date: 2020-04-15T15:51:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day4100.html" ]
-tags : [flavor - 行膳積腹, travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知]
+tags : [flavor - 行膳積腹, travel-日本-四國]
 ---
 
 同細路「爭返嚟」嘅弁当特別好食（ROAR！）  

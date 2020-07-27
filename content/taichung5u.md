@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：發記粉粿冰'
 date: 2014-09-01T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/day5.html" ]
-tags : [flavor - 螞蟻族, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 螞蟻族, travel - 臺灣清境鹿港]
 ---
 
 熱賣超過50年的粉粿冰  

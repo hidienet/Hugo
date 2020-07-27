@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day5：阿振肉包 古早味肉包'
 date: 2014-08-30T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day5_30.html" ]
-tags : [flavor - 行膳積腹, travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [flavor - 行膳積腹, travel - 臺灣清境鹿港]
 ---
 
 這個這個肉包，就是連不喜歡吃中式鹹包的鄙人  

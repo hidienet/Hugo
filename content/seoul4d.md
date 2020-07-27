@@ -3,7 +3,7 @@ title: '[seoul time] Day4：오리온 슈폰 ORION chouffon fresh milk & vanilla
 date: 2014-10-28T20:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/seoul-time-day4-orion-chouffon-fresh.html" ]
-tags : [travel - 남한・서울 (首爾), flavor - 螞蟻族]
+tags : [travel-南韓-首爾, flavor - 螞蟻族]
 ---
 
 ふわふわ的一點甜  

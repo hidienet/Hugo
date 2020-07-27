@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day5：吉原雀 和菓子'
 date: 2015-10-12T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/10/go-go-nagoya-day5_10.html" ]
-tags : [travel - 日本（中部東海道）・ 尾張愛知名古屋, flavor - 螞蟻族]
+tags : [travel-日本-名古屋, flavor - 螞蟻族]
 ---
 
 掃街掃著和菓子！  

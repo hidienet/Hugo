@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 3：FamilyMart - くちどけ贅�
 date: 2017-01-26T10:00:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-3familymart.html" ]
-tags : [flavor - 螞蟻族, travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎]
+tags : [flavor - 螞蟻族, travel-日本-鹿兒島宮崎]
 ---
 
 係就係食牛食到好飽  

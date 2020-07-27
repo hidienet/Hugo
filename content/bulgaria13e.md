@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day13：Бистро Цветното'
 date: 2014-06-07T15:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day13.html" ]
-tags : [travel - България (Bulgaria)]
+tags : [travel-保加利亞]
 ---
 
 在Varna的最後一餐  

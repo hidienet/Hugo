@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day4：day tour - 音樂、馬車與蜜糖'
 date: 2014-04-08T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day4day-tour_8.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 完全「蜂」「馬」牛不相及嗎？  

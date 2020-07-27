@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] 綾鷹（あやたか）'
 date: 2015-09-29T21:30:00.000+08:00
 draft: false
 aliases: [ "/2015/09/go-go-nagoya-day1_29.html" ]
-tags : [flavor - 飲！, travel - 日本（中部東海道）・ 尾張愛知名古屋]
+tags : [flavor - 飲！, travel-日本-名古屋]
 ---
 
 食完甜的就飲返啖茶  

@@ -3,7 +3,7 @@ title: '[臺中怒食遊] Day3：日出@合歡山'
 date: 2014-08-21T14:00:00.000+08:00
 draft: false
 aliases: [ "/2014/08/day3.html" ]
-tags : [travel - 臺灣・臺中、南投清境、彰化鹿港]
+tags : [travel - 臺灣清境鹿港]
 ---
 
 摸黑起來，超睏（釘書釘眼）  

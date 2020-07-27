@@ -3,7 +3,7 @@ title: '[西貢西貢食食貢] Day5：海鮮商行157'
 date: 2014-04-10T19:30:00.000+08:00
 draft: false
 aliases: [ "/2014/04/day5157.html" ]
-tags : [travel - Việt Nam・Sài Gòn (saigon)]
+tags : [travel-越南-西貢]
 ---
 
 近海的地方就有新鮮的海鮮  

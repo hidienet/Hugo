@@ -25,4 +25,4 @@ tags : [flavor - 螞蟻族]
 不需要從沖縄托回來 XD  
   
   
-閱讀：[\[琉球戀吃活樂遊\] Day4：塩屋 雪塩ソフトクリーム](https://hidie.net/okinawa4d/)
+延伸閱讀：[\[琉球戀吃活樂遊\] Day4：塩屋 雪塩ソフトクリーム](https://hidie.net/okinawa4d/)

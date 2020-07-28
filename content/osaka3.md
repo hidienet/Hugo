@@ -6,7 +6,7 @@ aliases: [ "/2017/09/day3.html" ]
 tags : [travel-日本-奈良大阪]
 ---
 
-為咗隻牛買咗個遊客版1-day pass  
+為咗隻牛買咗個[遊客版1-day pass](https://hidie.net/osaka3a/)  
 既然買咗pass咪去多個地方囉  
   
 地下鉄：日本橋 → **動物園前**  
@@ -15,9 +15,9 @@ tags : [travel-日本-奈良大阪]
 嚟得呢邊梗係唔係食串カツだるま啦  
 一來佢周街都有二來要食間再好食啲嘅  
 
-[![](https://c1.staticflickr.com/5/4350/36332499460_45a29f37ab_z.jpg)](https://c1.staticflickr.com/5/4350/36332499460_45a29f37ab_z.jpg)
+![](/images/osaka3b.jpg)
 
-@**八重勝**  
+@[八重勝](https://hidie.net/osaka3b/)  
 啱啱好時間去到就開門  
 隊都唔使排就入到去有位坐得食  
 樣樣都好吸引  

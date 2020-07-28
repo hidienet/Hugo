@@ -9,15 +9,15 @@ tags : [flavor - 螞蟻族, travel - 臺灣清境鹿港]
 RoooRoo什倆漉餅行  
 其實是與老店玉珍齋系出同源的餅技  
 
-[![](/images/taichung6h1.jpg)
+![](/images/taichung6h1.jpg)
 
 看似包裝高級卻簡約...  
 
-[![](/images/taichung6h.jpg)
+![](/images/taichung6h.jpg)
 
 裡面就看到色彩繽紛中風濃厚的藝術畫  
 
-[![](/images/taichung6h2.jpg)
+![](/images/taichung6h2.jpg)
 
 （打開了一千層包裝之後）  
 一小盒裡面兩舊  

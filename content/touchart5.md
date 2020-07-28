@@ -13,39 +13,39 @@ tags : [amusement - exhibition]
 失明人士又會點去欣賞藝術品呢？  
 今次就從佢哋角度出發去接觸藝術～  
 
-[![](https://c1.staticflickr.com/1/794/40879204481_5cbc9f3f9c_z.jpg)](https://c1.staticflickr.com/1/794/40879204481_5cbc9f3f9c_z.jpg)
+![](/images/touchart5.jpg)
 
 場地，就係响呢個倉裡面  
 
-[![](https://c1.staticflickr.com/1/792/39985589115_b8cdcf4e44_z.jpg)](https://c1.staticflickr.com/1/792/39985589115_b8cdcf4e44_z.jpg)
+![](/images/touchart5a.jpg)
 
 缺少咗一種感覺（視覺）之下  
 會令觸覺聽覺甚至嗅覺更敏銳  
 視障人士同其他人一樣  
 生命都係需要**水**、**呼吸**、**食**、**溫度**同**關係**呢五種元素  
 
-[![](https://c1.staticflickr.com/1/800/39985588145_71de421b27_z.jpg)](https://c1.staticflickr.com/1/800/39985588145_71de421b27_z.jpg)
+![](/images/touchart5b.jpg)
 
 唔係只係我睇到呢份嘢㗎  
 場刊有大字版 & 點字版本嘅  
 
-[![](https://c1.staticflickr.com/1/818/39985587715_a70a7336b6_z.jpg)](https://c1.staticflickr.com/1/818/39985587715_a70a7336b6_z.jpg)
+![](/images/touchart5c.jpg)
 
 counter係放物資等嘅集合處  
 佢嘅身後面仲係個展館  
 
-[![](https://c1.staticflickr.com/1/783/40171257624_2b0eac7115_z.jpg)](https://c1.staticflickr.com/1/783/40171257624_2b0eac7115_z.jpg)
+![](/images/touchart5d.jpg)
 
 「**通達藝術欣賞**」  
 除咗一般認知嘅觸感書  
 有點字同凸起嘅圖畫  
 展出嘅書有嚟自美國韓國同日本  
 
-[![](https://c1.staticflickr.com/5/4783/39069670370_76f54ee34f_z.jpg)](https://c1.staticflickr.com/5/4783/39069670370_76f54ee34f_z.jpg)
+![](/images/touchart5e.jpg)
 
 而呢度就講解咗視障人士係點感受藝術  
 
-[![](https://c1.staticflickr.com/5/4774/40879204101_1c2c85d0a4_z.jpg)](https://c1.staticflickr.com/5/4774/40879204101_1c2c85d0a4_z.jpg)
+![](/images/touchart5f.jpg)
 
 好喇，戴住眼罩拎埋白杖  
 就由視障嘅導賞員帶入藝術倉喇！  
@@ -104,7 +104,7 @@ B場（五套藝術品）
 每場一粒鐘，响導賞員指示下重見光明。  
   
 
-[![](https://c1.staticflickr.com/1/810/40837714272_98715a22b6_z.jpg)](https://c1.staticflickr.com/1/810/40837714272_98715a22b6_z.jpg)
+![](/images/touchart5g.jpg)
 
 非！常！值！得！去，真心推介！  
 展埋今個星期咋，要去就報名啦

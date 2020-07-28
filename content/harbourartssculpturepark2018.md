@@ -9,14 +9,14 @@ tags : [amusement - exhibition]
 藝術唔遙遠㗎  
 只要肯行出去就連維港都有啦！  
 
-[![](https://c1.staticflickr.com/5/4792/39833132165_07faf7c22e_z.jpg)](https://c1.staticflickr.com/5/4792/39833132165_07faf7c22e_z.jpg)
+![](/images/hasp18z1.jpg)
 
 無人話過藝術品一定要擺响館裡面嘅  
 而家一件二件廿一件藝術雕塑  
 （updated：展展吓多咗件，total廿二件）  
 就擺晒响海濱長廊到藝術中心一帶  
 
-[![](https://c1.staticflickr.com/5/4788/38918190260_11683f1d4b_z.jpg)](https://c1.staticflickr.com/5/4788/38918190260_11683f1d4b_z.jpg)
+![](/images/hasp18z2.jpg)
 
 **Ernest and Ruth, 2015**  
 **（Hank Wills Thomas）**  
@@ -26,7 +26,7 @@ tags : [amusement - exhibition]
 （可以响裡面隨便坐呀瞓呀彈都得）  
 會唔會諗到自己平日所講嘅言論意味住啲咩？  
 
-[![](https://c1.staticflickr.com/5/4793/40728349881_1a9c4b7d3a_z.jpg)](https://c1.staticflickr.com/5/4793/40728349881_1a9c4b7d3a_z.jpg)
+![](/images/hasp18z3.jpg)
 
 **Truth Bubble Sign Tree, 2015**  
 **（Hank Wills Thomas**）  
@@ -36,14 +36,14 @@ tags : [amusement - exhibition]
 但其實唔同角度睇棵樹  
 句對話係可以有唔同嘅理解方法嘅  
 
-[![](https://c1.staticflickr.com/1/819/41094515692_0cd92ef51b_z.jpg)](https://c1.staticflickr.com/1/819/41094515692_0cd92ef51b_z.jpg)
+![](/images/hasp18z4.jpg)
 
 **Flow, 2017**  
 **（Tony Oursler）**  
 呢件作品係投影嘅  
 夜晚7點先有，唯有搵日天黑先嚟睇啦～  
 
-[![](https://c1.staticflickr.com/5/4772/26857049848_034d1e3c19_z.jpg)](https://c1.staticflickr.com/5/4772/26857049848_034d1e3c19_z.jpg)
+![](/images/hasp18z5.jpg)
 
 **Time Needle (A Time Capsule of Some Day), 2018**  
 **（黃榮法）**  
@@ -55,7 +55,7 @@ tags : [amusement - exhibition]
 時間係咪都RIP  
 擺個碑响度都啱吖  
 
-[![](https://c1.staticflickr.com/5/4778/40728348971_d0b0ca8f90_z.jpg)](https://c1.staticflickr.com/5/4778/40728348971_d0b0ca8f90_z.jpg)
+![](/images/hasp18z6.jpg)
 
 **心遊素園之魅麗, 2014**  
 **（鄭國谷）**  
@@ -64,7 +64,7 @@ tags : [amusement - exhibition]
 好似啲凳度雕住句咁：  
 「不用說話 用心去體會～」  
 
-[![](https://c1.staticflickr.com/5/4801/25858179057_f280caaece_z.jpg)](https://c1.staticflickr.com/5/4801/25858179057_f280caaece_z.jpg)
+![](/images/hasp18z7.jpg)
 
 **\[\[ x \]\], 2018**  
 **（何冠廷）**  
@@ -72,17 +72,17 @@ tags : [amusement - exhibition]
 用扭曲嘅線條响掙扎中釋放能量  
 ...都幾抽象喎，邊x度睇㗎其實？  
 
-[![](https://c1.staticflickr.com/5/4785/40019268014_25af1c2128_z.jpg)](https://c1.staticflickr.com/5/4785/40019268014_25af1c2128_z.jpg)
+![](/images/hasp18z8.jpg)
 
 **The Memories from The Tower of Light, 2017**  
 **（王志勇）**  
-即係之前[光 · 影 · 香港夜 | Lumieres Hong Kong](http://www.hidie.net/2017/11/lumieres-hong-kong.html)  
+即係之前[光 · 影 · 香港夜 | Lumieres Hong Kong](https://hidie.net/lumiereshk/)  
 擺响1881嗰舊嘢嘅日光版本  
 聽講啲燈會唔同上次  
 不過就上次點睇都睇唔到個構圖嘅經驗  
 唔會再等夜晚嚟睇多次  
 
-[![](https://c1.staticflickr.com/5/4789/40019268694_461a9713ae_z.jpg)](https://c1.staticflickr.com/5/4789/40019268694_461a9713ae_z.jpg)
+![](/images/hasp18z9.jpg)
 
 **45度假石山, 2014**  
 **（展望）**  
@@ -93,7 +93,7 @@ tags : [amusement - exhibition]
 哇頂石山喎大佬跌落嚟隻雀咪變屎餅？  
 殘唔殘忍啲呀老細？！  
 
-[![](https://c1.staticflickr.com/5/4798/40729477811_f40d73327b_z.jpg)](https://c1.staticflickr.com/5/4798/40729477811_f40d73327b_z.jpg)
+![](/images/hasp18z10.jpg)
 
 **Pumpkin: big, 2018**  
 **（草間彌生）**  
@@ -120,7 +120,7 @@ tags : [amusement - exhibition]
 睇唔到直島南瓜 x 瀨戶內海  
 睇到南瓜 x 維港都幾好吖  
 
-[![](https://c1.staticflickr.com/5/4779/40696134972_d75668e21e_z.jpg)](https://c1.staticflickr.com/5/4779/40696134972_d75668e21e_z.jpg)
+![](/images/hasp18z11.jpg)
 
 **Davz VI, 2016**  
 **（Anthony Gormley）**  
@@ -134,7 +134,7 @@ tags : [amusement - exhibition]
 從腳起將身體同頭轉咗90度  
 反映佢畏畏縮縮帶著恐懼嘅感覺  
 
-[![](https://c1.staticflickr.com/5/4800/26867628748_a5bf7d19ff_z.jpg)](https://c1.staticflickr.com/5/4800/26867628748_a5bf7d19ff_z.jpg)
+![](/images/hasp18z12.jpg)
 
 **Truisms: Don't Place Too Much Trust in Experts**  
 **常理：不要太相信專家, 2013**  
@@ -144,7 +144,7 @@ tags : [amusement - exhibition]
 見到嘅係中文翻譯版  
 （全部句子其實總共超過250句）  
 
-[![](https://c1.staticflickr.com/5/4777/26867628418_b017fb99b4_z.jpg)](https://c1.staticflickr.com/5/4777/26867628418_b017fb99b4_z.jpg)
+![](/images/hasp18z13.jpg)
 
 **Truisms: Freedom is a Luxury Not a Necessity**  
 **常理： 自由是奢侈品而非必需品, 2013**  
@@ -155,31 +155,31 @@ tags : [amusement - exhibition]
 呢個area係有班後生仔女影pre-wedding photo  
 啊！真係自由可貴呀  
 
-[![](https://c1.staticflickr.com/5/4776/26867627408_b4f77a54fe_z.jpg)](https://c1.staticflickr.com/5/4776/26867627408_b4f77a54fe_z.jpg)
+![](/images/hasp18z14.jpg)
 
 **Truisms: Money Creates Taste**  
 **常理：金錢造就品味, 2013**  
 **Jenny Holzer**  
 （頂！啲人整到好污糟呀！）  
 
-[![](https://c1.staticflickr.com/5/4772/26867627878_c0affae096_z.jpg)](https://c1.staticflickr.com/5/4772/26867627878_c0affae096_z.jpg)
+![](/images/hasp18z15.jpg)
 
 面對著繁榮嘅尖沙咀  
 果真品味係用錢堆砌出嚟嘅？  
 
-[![](https://c1.staticflickr.com/5/4801/26867626998_f0edd1fcdd_z.jpg)](https://c1.staticflickr.com/5/4801/26867626998_f0edd1fcdd_z.jpg)
+![](/images/hasp18z16.jpg)
 
 **Truisms: Solitude is Enriching**  
 **常理：孤獨讓人感到充實, 2013**  
 **Jenny Holzer**  
 
-[![](https://c1.staticflickr.com/5/4778/26867628058_99b4b8f6d2_z.jpg)](https://c1.staticflickr.com/5/4778/26867628058_99b4b8f6d2_z.jpg)
+![](/images/hasp18z17.jpg)
 
 無其他人煩擾  
 就更容易填滿自己 (心靈)  
   
 
-[![](https://c1.staticflickr.com/5/4783/26868092698_3a11b5af10_z.jpg)](https://c1.staticflickr.com/5/4783/26868092698_3a11b5af10_z.jpg)
+![](/images/hasp18z18.jpg)
 
 **A Moment Without You, 2017**  
 **Tracey Emin**  
@@ -196,7 +196,7 @@ tags : [amusement - exhibition]
 吖... 呢件睇到想喊  
 好掛住一個已經自由自在嘅人  
 
-[![](https://c1.staticflickr.com/5/4791/40739312781_eb16ea4902_z.jpg)](https://c1.staticflickr.com/5/4791/40739312781_eb16ea4902_z.jpg)
+![](/images/hasp18z19.jpg)
 
 **Paradigm (solid), 2014**  
 **Conrad Shawcross**  
@@ -208,19 +208,19 @@ tags : [amusement - exhibition]
 佢暫時整咗個最大嘅Paradigm係14米嘅  
 擺咗响倫頓黃十字Francis Crick Institute  
 
-[![](https://c1.staticflickr.com/5/4791/39844277875_5f3e0843a1_z.jpg)](https://c1.staticflickr.com/5/4791/39844277875_5f3e0843a1_z.jpg)
+![](/images/hasp18z20.jpg)
 
 **Untitled, 2017**  
 **Bosco Sodi**  
 釉面嘅金石，唔同角度唔同光度  
 睇落啲金都會唔同  
 
-[![](https://c1.staticflickr.com/5/4793/40739312431_f8347f7d39_z.jpg)](https://c1.staticflickr.com/5/4793/40739312431_f8347f7d39_z.jpg)
+![](/images/hasp18z21.jpg)
 
 呢件嘢冇主題要自己領悟  
 啲金响門常開下散落一地囉...  
 
-[![](https://c1.staticflickr.com/5/4794/40739813131_5678ef2e42_z.jpg)](https://c1.staticflickr.com/5/4794/40739813131_5678ef2e42_z.jpg)
+![](/images/hasp18z22.jpg)
 
 **Gardenfork (magenta), 2017**  
 **Michael Craig-Martin**  
@@ -228,7 +228,7 @@ tags : [amusement - exhibition]
 但係以平面立體繪圖做出嚟  
 即係繪畫雕塑品  
 
-[![](https://c1.staticflickr.com/5/4792/40697159332_6c0a51a6aa_z.jpg)](https://c1.staticflickr.com/5/4792/40697159332_6c0a51a6aa_z.jpg)
+![](/images/hasp18z23.jpg)
 
 **White Horse, 2013**  
 **Mark Wallinger**  
@@ -237,12 +237,12 @@ tags : [amusement - exhibition]
 啲肌肉紋路血管筋位都好細緻  
 因為佢係由純種賽馬為模型  
 
-[![](https://c1.staticflickr.com/5/4794/40697159732_e760168323_z.jpg)](https://c1.staticflickr.com/5/4794/40697159732_e760168323_z.jpg)
+![](/images/hasp18z24.jpg)
 
 講階級呀，人同馬都係㗎  
 純種先俾入閘㗎（門常開喎...）  
 
-[![](https://c1.staticflickr.com/5/4790/40739811441_1925d49316_z.jpg)](https://c1.staticflickr.com/5/4790/40739811441_1925d49316_z.jpg)
+![](/images/hasp18z25.jpg)
 
 **Before Collapse, 2018**  
 **（曾敏富）**  
@@ -256,7 +256,7 @@ tags : [amusement - exhibition]
 碳塗層會隨時間剝落  
 唔知最後會崩壞到咩地步呢？  
 
-[![](https://c1.staticflickr.com/5/4778/40739810401_622fc0b454_z.jpg)](https://c1.staticflickr.com/5/4778/40739810401_622fc0b454_z.jpg)
+![](/images/hasp18z26.jpg)
 
 **Asteroids & Comets, 2017**  
 **（黃國才）**  
@@ -264,7 +264,7 @@ tags : [amusement - exhibition]
 可以由遠睇亦可以坐入去  
 俾星體包圍住嚟再觀天 (星)  
 
-[![](https://c1.staticflickr.com/5/4777/40697158532_52bd55be3a_z.jpg)](https://c1.staticflickr.com/5/4777/40697158532_52bd55be3a_z.jpg)
+![](/images/hasp18z27.jpg)
 
 然而呢輯作品裡面  
 最三尖八角最具攻擊性嘅星體  
@@ -276,7 +276,7 @@ tags : [amusement - exhibition]
 政治審查完肯肯定冇可能俾佢擺啦  
 好彩Arts Centre係私人機構啫！  
 
-[![](https://c1.staticflickr.com/5/4788/26868914128_032d24a431_z.jpg)](https://c1.staticflickr.com/5/4788/26868914128_032d24a431_z.jpg)
+![](/images/hasp18z28.jpg)
 
 **Bearlike Construction, 2012**  
 **김홍석**  
@@ -285,7 +285,7 @@ tags : [amusement - exhibition]
 咁佢仲係唔係污糟嘅垃圾袋？  
 between，佢係空心銅像。  
 
-[![](https://c1.staticflickr.com/5/4787/26868913708_ffd2ae889e_z.jpg)](https://c1.staticflickr.com/5/4787/26868913708_ffd2ae889e_z.jpg)
+![](/images/hasp18z29.jpg)
 
 **Hong Kong Blues, 2018**  
 **Rasheed Araeen**  
@@ -296,7 +296,7 @@ between，佢係空心銅像。
 吖？咁呢件嘢爬唔爬得上去㗎呢？  
 睇落有啲似攀爬架嘛...  
 
-[![](https://c1.staticflickr.com/5/4795/40697503662_c0a8c3e19a_z.jpg)](https://c1.staticflickr.com/5/4795/40697503662_c0a8c3e19a_z.jpg)
+![](/images/hasp18z30.jpg)
 
 **The Dappled Light of the Sun I, 2015**  
 **Conrad Shawcross**  
@@ -305,7 +305,7 @@ between，佢係空心銅像。
 再用三套三腳架支撐住  
 從而形成動感  
 
-[![](https://c1.staticflickr.com/1/884/41094515192_fa3f0c679c_z.jpg)](https://c1.staticflickr.com/1/884/41094515192_fa3f0c679c_z.jpg)
+![](/images/hasp18z31.jpg)
 
 **清幽翠綠, 2018**  
 **高倩彤**  
@@ -315,7 +315,7 @@ between，佢係空心銅像。
 幾好笑吖，後面真係一片綠  
 然後同我講佢係清幽翠綠（笑）  
 
-[![](https://c1.staticflickr.com/5/4775/26868913198_d474020b78_z.jpg)](https://c1.staticflickr.com/5/4775/26868913198_d474020b78_z.jpg)
+![](/images/hasp18z32.jpg)
 
 雖然啲作品係可以自己參透  
 去心領神會吓件嘢嘅意思  

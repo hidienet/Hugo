@@ -3,7 +3,7 @@ title: '[大阪，美味しいね～] Day2：天ぷら定食 まきの'
 date: 2020-08-03T14:30:00.000+08:00
 draft: false
 images: ["/images/osaka2l.jpg"]
-tags : [travel-日本-奈良大阪]
+tags : [flavor - 行膳積腹, travel-日本-奈良大阪]
 ---
 
 yeah！到咗食晚飯嘅時間  

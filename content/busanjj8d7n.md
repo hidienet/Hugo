@@ -40,6 +40,7 @@ day 4
 [매실마을（maesil maeul plum wine）](https://hidie.net/busanjj4a/)  
 [食 － 자갈치시장 札嘎其市場](https://hidie.net/busanjj4b/)  
 [逛 － 자갈치시장 札嘎其市場](https://hidie.net/busanjj4c/)  
+[남포동 국제시장（南浦洞 國際市場）](https://hidie.net/busanjj4d/)  
 [남해집 돼지국밥（豬肉湯飯）](https://hidie.net/busanjj4e/)  
 [오미자차 (五味子茶)](https://hidie.net/busanjj4f/)  
 [호두과자、델리만쥬（hodugwaja、deli manjoo）](https://hidie.net/busanjj4g/)  
@@ -82,7 +83,6 @@ day 8
 番外  
 [sarangchae guesthouse（사랑채）](https://hidie.net/busanjj3c/)  
 [椰菜花？](https://hidie.net/busanjj4p/)  
-[남포동 국제시장（南浦洞 國際市場）](https://hidie.net/busanjj4d/)  
 [daiso zoo world （18+）XDDD](https://hidie.net/busanjj5c/)  
 [行街@남포동（南浦洞）](https://hidie.net/busanjj7d/)  
   

@@ -1,5 +1,5 @@
 ---
-title: '[大阪，美味しいね～] Day3：八重勝'
+title: '[大阪，美味しいね～] Day3：八重勝 - 串カツ、どて焼'
 date: 2020-08-04T14:30:00.000+08:00
 draft: false
 images: ["/images/osaka3b.jpg"]

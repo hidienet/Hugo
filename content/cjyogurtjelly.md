@@ -27,6 +27,6 @@ tangerine也是一舊舊果肉在中
 而是買看似更香濃味美的sweety系列的pudding  
 但為甚麼最後入手的是它？  
 
-![](/images/cjyogurtjelly.jpg)
+![](/images/cjyogurtjelly1.jpg)
 
 這就是原因습니다（噗）

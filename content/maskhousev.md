@@ -35,7 +35,7 @@ tags : [glamorous - 保養おたく, glamorous - 面膜魂]
 整個位置的脂肪都減少  
 小不點說這樣的我太瘦了  
 瘦得看到咀嚼肌那邊得骨頭太明顯 XD  
-好吧！下次買HEADrang試試  
+好吧！下次買[HEADrang](https://hidie.net/sptnewface/)試試  
 我不想箍走我的爆牙呢～  
   
 回正題：這塊mask很好用  

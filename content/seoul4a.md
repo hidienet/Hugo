@@ -41,7 +41,7 @@ tags : [flavor - 行膳積腹, travel-南韓-首爾]
 鮮香濃辣又嫩滑，加埋隻雞蛋湯底更濃稠  
 超惹味的，好讚耶～（拇指）  
 
-![](/images/seoul4a2.jpg)
+![](/images/seoul4a3.jpg)
 
 附送的前菜有這碟OK韌而味道不錯的煎餅  
 

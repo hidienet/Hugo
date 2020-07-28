@@ -8,7 +8,7 @@ tags : [travel-南韓-首爾, collections - 김수현]
 
 好想上六樓上六樓上六樓上六樓（無限loop）  
 
-[![](https://2.bp.blogspot.com/-8_NdTX6x2JU/XE2QmZtJOaI/AAAAAAAAHd0/kIEDLEitP9EOXoPXlCM4QRRFh8sdyfqXgCLcBGAs/s640/15445286850_4063ac5f0f_z.jpg)](https://2.bp.blogspot.com/-8_NdTX6x2JU/XE2QmZtJOaI/AAAAAAAAHd0/kIEDLEitP9EOXoPXlCM4QRRFh8sdyfqXgCLcBGAs/s1600/15445286850_4063ac5f0f_z.jpg)
+![](/images/seoulkshkeyeast.jpg)
 
 我・不・是・私・生・飯  
   

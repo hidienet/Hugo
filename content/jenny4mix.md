@@ -62,9 +62,4 @@ tags : [flavor - 螞蟻族]
 實在太美妙了，很喜歡這禮物  
 謝謝謝謝～
 
-  
-
-  
-
-延伸閱讀：[jenny bakery - pineapple rolls](https://hidie.net/jennysrolls/)  
-（為甚麼每次的jenny都是人家送的呢？哈）
+（為甚麼每次的[jenny](https://hidie.net/jennysrolls/)都是人家送的呢？哈）

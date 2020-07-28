@@ -71,6 +71,7 @@ day 7
 [허심청（虛心廳）](https://hidie.net/busanjj7a/)  
 [냉면（冷麵）](https://hidie.net/busanjj7b/)  
 [士多啤梨again x 蜜柑](https://hidie.net/busanjj7c/)  
+[行街@남포동（南浦洞）](https://hidie.net/busanjj7d/)  
 [maeil 순두유 － 最愛的豆漿之一！](https://hidie.net/busanjj7e/)  
 [콩불（豆火）－ 食鐵板芽菜食到一肚火](https://hidie.net/busanjj7f/)  
 [cass draft beer](https://hidie.net/busanjj7g/)  
@@ -84,7 +85,6 @@ day 8
 [sarangchae guesthouse（사랑채）](https://hidie.net/busanjj3c/)  
 [椰菜花？](https://hidie.net/busanjj4p/)  
 [daiso zoo world （18+）XDDD](https://hidie.net/busanjj5c/)  
-[行街@남포동（南浦洞）](https://hidie.net/busanjj7d/)  
   
 buy buy 割(わり) busan  
 （面膜就不記錄在這裡，因為實在太多）  

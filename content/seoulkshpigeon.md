@@ -8,7 +8,7 @@ tags : [travel-南韓-首爾, collections - 김수현]
 
 12-13的柔順劑代言  
 
-[![](https://2.bp.blogspot.com/-AbJyP0-0qlo/XE2uljn8LNI/AAAAAAAAHqE/fzdBuwiGDCwYc5AQmkZxhc2T4HPc1e1wgCLcBGAs/s640/15501639918_6445295e91_z.jpg)](https://2.bp.blogspot.com/-AbJyP0-0qlo/XE2uljn8LNI/AAAAAAAAHqE/fzdBuwiGDCwYc5AQmkZxhc2T4HPc1e1wgCLcBGAs/s1600/15501639918_6445295e91_z.jpg)
+![](/images/seoulkshpigeon.jpg)
 
 而這張舊代言的poster  
 是在lemona event時有個飯送的  

@@ -6,7 +6,7 @@ images: ["/images/osaka1h.jpg"]
 tags : [travel-日本-奈良大阪]
 ---
  
-行夠喇今日，返apartment食車厘子～
+行夠喇今日，返apartment食車厘子～ 
 
 ![](/images/osaka1h.jpg)
 

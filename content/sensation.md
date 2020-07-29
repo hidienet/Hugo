@@ -3,7 +3,7 @@ title: '[tools] sensation - blemish thermal clearing device'
 date: 2014-07-04T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/07/tools-sensation-blemish-thermal.html" ]
-tags : [glamorous - 保養おたく]
+tags : [glamorous - 保養おたく, glamorous - 機電工程]
 ---
 
 雖然是乾性皮膚，但偶爾也會有出粒粒的時候  

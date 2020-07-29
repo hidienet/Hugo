@@ -6,6 +6,6 @@ aliases: [ "/2015/03/365-day79.html" ]
 tags : [collections - zaku]
 ---
 
-![](/images/zaku079z.jpg)
+![](/images/zaku079.jpg)
 
 小號的俗稱，乃音域最高的銅管樂器。

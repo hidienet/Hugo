@@ -3,7 +3,7 @@ title: '[tools] DHC pretico'
 date: 2014-07-06T09:00:00.000+08:00
 draft: false
 aliases: [ "/2014/07/tools-dhc-pretico.html" ]
-tags : [glamorous - 保養おたく]
+tags : [glamorous - 保養おたく, glamorous -機電工程]
 ---
 
 哈哈哈，小小的豆子好可愛（心）  

@@ -3,7 +3,7 @@ title: '[tools] takeshobo コロコロ美顔エステ'
 date: 2014-07-01T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/07/tools-takeshobo.html" ]
-tags : [glamorous - 保養おたく]
+tags : [glamorous - 保養おたく, glamorous - 機電工程]
 ---
 
 瘦面其中一項神器：「face碌」！  

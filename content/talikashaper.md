@@ -3,7 +3,7 @@ title: '[nail] talika - nail shaper'
 date: 2014-02-23T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/02/nail-talika-nail-shaper.html" ]
-tags : [glamorous - 蛋臉以外]
+tags : [glamorous - 蛋臉以外, glamorous - 機電工程]
 ---
 
 指甲面平滑，塗指甲油就更加輕鬆  

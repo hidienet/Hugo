@@ -3,7 +3,7 @@ title: '香港潑水節巴士巡遊 + 記者招待會 @D2 place'
 date: 2018-04-01T21:33:00.001+08:00
 draft: false
 aliases: [ "/2018/04/d2-place.html" ]
-tags : [lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 過日晨]
 ---
 
 香港潑水節轉咗場去D2  

@@ -6,7 +6,7 @@ aliases: [ "/2019/12/b.html" ]
 tags : [lifestyle - 急救箱]
 ---
 
-平時會戴住個[口罩](https://www.hidie.net/2019/10/3m-nexcare.html)出街  
+平時會戴住個[口罩](https://hidie.net/mmmnexcare/)出街  
 除咗防曬仲係為咗減低鼻敏感嘅機會  
 因為响街一拉低個罩nude咗個鼻  
 就覺得鼻仔開始塞塞哋再耐啲會打乞嗤流鼻水  

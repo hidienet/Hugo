@@ -51,7 +51,7 @@ YES！繼續搵食去～
 [![](https://c1.staticflickr.com/5/4615/39761012332_1f85acb8e4_z.jpg)](https://c1.staticflickr.com/5/4615/39761012332_1f85acb8e4_z.jpg)
 
 响諗住搭JR出走小倉之際  
-就撞到**小倉十日ゑびす祭『宝恵かご道中』**嘅一行隊伍  
+就撞到 **小倉十日ゑびす祭『宝恵かご道中』** 嘅一行隊伍  
 
 [![](https://c1.staticflickr.com/5/4659/39761011482_44761f50ea_z.jpg)](https://c1.staticflickr.com/5/4659/39761011482_44761f50ea_z.jpg)
 

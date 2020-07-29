@@ -3,7 +3,7 @@ title: '[tools] hitachi face crie NC-550'
 date: 2014-02-28T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/02/tools-hitachi-face-crie-nc-550.html" ]
-tags : [glamorous - 保養おたく]
+tags : [glamorous - 保養おたく, glamorous -機電工程]
 ---
 
 用過一部好用的機就不會想換  

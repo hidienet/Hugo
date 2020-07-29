@@ -3,7 +3,7 @@ title: '[tools] 헤드랑 | spt new-face Headrang'
 date: 2020-04-01T22:27:00.000+08:00
 draft: false
 aliases: [ "/2020/04/tools-spt-new-face-headrang.html" ]
-tags : [glamorous - 保養おたく]
+tags : [glamorous - 保養おたく, glamorous -機電工程]
 ---
 
 買咗佢幾年用吓又停吓咁  

@@ -9,7 +9,7 @@ tags : [glamorous - 秀色可餐]
 如果怕皮膚粗糙的話  
 就喝枝維他命B吧～  
 
-![](/cjinnerb.jpg)
+![](images/cjinnerb.jpg)
 
 維他命B能使皮膚平滑之餘  
 也能改善痘痘問題  

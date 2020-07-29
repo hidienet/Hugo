@@ -6,7 +6,7 @@ aliases: [ "/2019/01/bhc.html" ]
 tags : [flavor - 行膳積腹, flavor - 飲！]
 ---
 
-去首爾嗰陣都有食過呢間炸雞  
+去首爾嗰陣都有食過[呢間](https://hidie.net/seoul6g/)炸雞  
 不過當時就唔覺得非常驚艷  
 
 ![](/images/bhc.jpg)
@@ -54,4 +54,4 @@ set裡面嘅salad
 唔會太好飲亦唔會好差咁囉  
 飲有氣嘅嘢配炸嘢都算OK嘅...  
   
-延伸閱讀：[\[seoul time\] Day6：BHC치킨](https://hidie.net/seoul6g/)
+

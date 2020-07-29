@@ -3,7 +3,7 @@ title: '香港潑水節 泰國時裝show & water angel 選美比賽'
 date: 2018-04-07T22:59:00.001+08:00
 draft: false
 aliases: [ "/2018/04/show-water-angel.html" ]
-tags : [lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 過日晨]
 ---
 
 睇show唔影嘢  

@@ -56,16 +56,11 @@ tags : [travel-日本-奈良大阪]
 
 ![](/images/nara3f.jpg)
 
-晚餐食Michelin奈良唯一一間三星嘅餐廳
-
-（YES！Michelin again～）
-
-係食懷石料理 @[和 やまむら]()
-
-真正嘅色香味俱全
-
-食得到嘅匠人匠心；感受到嘅貼心服務
-
+晚餐食Michelin奈良唯一一間三星嘅餐廳  
+（YES！Michelin again～）  
+係食懷石料理 @[和 やまむら](https://hidie.net/nara3f/)  
+真正嘅色香味俱全  
+食得到嘅匠人匠心；感受到嘅貼心服務  
 太完美喇實在（感動）
 
 喔！今日三餐都食飯～（飯桶無誤）  

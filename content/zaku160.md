@@ -9,4 +9,4 @@ tags : [collections - zaku]
 ![](/images/zaku160.jpg)
 
 最愛焦脆的餃子皮（心）    
-記得要配[辣油](https://hidie.net/zaku097/l)。
+記得要配[辣油](https://hidie.net/zaku097/)。

@@ -15,7 +15,7 @@ tags : [flavor - 小食部]
 香甜味美，完全濃縮嘅日向夏味  
 甜中帶微苦好好食  
 
-![](/images/miyazakipeel.jpg)
+![](/images/miyazakipeel1.jpg)
 
 **日向夏ピールオランジェット**  
 呢隻個面仲有黑朱古力粉包住  

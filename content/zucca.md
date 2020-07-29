@@ -10,8 +10,8 @@ tags : [lifestyle - zakka]
 
 ![](/images/zucca.jpg)
 
-之前嫌[ECO Can plus](http://www.hidie.net/2015/06/eco-can-plus-city-super-x-eva-armisen.html)漏水兼唔係黑色  
-好啦買咗個[:chocoolate保溫杯](http://www.hidie.net/2017/09/chocoolate.html)都唔夠兩年  
+之前嫌[ECO Can plus](https://hidie.net/ecocanplus/)漏水兼唔係黑色  
+好啦買咗個[:chocoolate保溫杯](https://hidie.net/chocoolate/)都唔夠兩年  
 就覺得自己造成嘅風霜痕跡刮到佢一條條個面唔再黑  
 然後當然就會一堆藉口嫌棄佢
 

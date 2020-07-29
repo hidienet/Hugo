@@ -3,7 +3,7 @@ title: '不貧窮藝術節 X 微批 X Sample「書寫自己、吃掉他者──
 date: 2018-05-04T23:41:00.002+08:00
 draft: false
 aliases: [ "/2018/05/x-x-sample.html" ]
-tags : [lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 過日晨]
 ---
 
 食物同文學，感覺上冇乜交集  

@@ -23,5 +23,5 @@ tags : [amusement - TV]
 雖然結局都預咗係喊晒口人生大哲理嗰啲  
 但係無損成套劇嘅張力呀  
 加上去班房裡面有片寄涼太、古川毅、鈴木仁喎  
-（已經未計[新八](https://www.hidie.net/2017/09/blog-post.html)阿SIR喇）  
+（已經未計[新八](https://hidie.net/gintama/)阿SIR喇）  
 如果當年同班嘅有咁高質真係日日返學都願啊～

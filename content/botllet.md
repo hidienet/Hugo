@@ -3,7 +3,7 @@ title: 'KOKUBO BotLLet ボトレット携帯用おしり洗浄具'
 date: 2020-02-05T20:32:00.002+08:00
 draft: false
 aliases: [ "/2020/02/kokubo-botllet.html" ]
-tags : [lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 過日晨]
 ---
 
 啦啦啦硬係有人要搶呢樣搶嗰樣  

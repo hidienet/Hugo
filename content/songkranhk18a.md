@@ -3,7 +3,7 @@ title: '香港潑水節 泰國新年市集 @D2 place'
 date: 2018-04-06T22:22:00.000+08:00
 draft: false
 aliases: [ "/2018/04/d2-place_6.html" ]
-tags : [flavor - 小食部, lifestyle - 嗨啲的極樂世界]
+tags : [flavor - 小食部, lifestyle - 過日晨]
 ---
 
 今年嘅香港潑水節同泰國嘅一樣玩三日  

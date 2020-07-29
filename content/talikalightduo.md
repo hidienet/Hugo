@@ -3,7 +3,7 @@ title: '[tools] talika - light duo'
 date: 2014-07-03T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/07/tools-talika-light-duo.html" ]
-tags : [glamorous - 保養おたく]
+tags : [glamorous - 保養おたく, glamorous - 機電工程]
 ---
 
 掌心般大的飛碟～  

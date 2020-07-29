@@ -6,6 +6,6 @@ aliases: [ "/2015/06/365-day164hihi.html" ]
 tags : [collections - zaku]
 ---
 
-![](/images/zaku164z.jpg)
+![](/images/zaku164.jpg)
 
 我跳break dance之嘛...

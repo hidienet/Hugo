@@ -3,7 +3,7 @@ title: '聖基道愛心朱古力'
 date: 2014-12-19T16:00:00.000+08:00
 draft: false
 aliases: [ "/2014/12/blog-post_19.html" ]
-tags : [lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 過日晨]
 ---
 
 今年P送的聖誕禮物，一定要記錄下來（！）  

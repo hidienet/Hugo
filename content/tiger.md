@@ -3,7 +3,7 @@ title: 'comment allez-vous?'
 date: 2014-03-06T09:00:00.002+08:00
 draft: false
 aliases: [ "/2014/03/comment-allez-vous.html" ]
-tags : [lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 過日晨]
 ---
 
 “comment allez-vous?”（how are you?）  

@@ -8,7 +8,7 @@ tags : [lifestyle - zakka, lifestyle - rosy rosy]
 
 超輕柔的玫瑰味飛天豬（飄～）  
 
-![](/imagesunicharmrosejpg)
+![](/images/unicharmrose.jpg)
 
 不是濃烈香豔的玫瑰氣味  
 護墊散發著嬰兒般的淡玫瑰味  

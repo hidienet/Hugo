@@ -8,12 +8,12 @@ tags : [travel-日本-奈良大阪, flavor - 螞蟻族]
 
 嘆返個滑滑嘅下午茶先...  
 
-![](/imiages/nara2f.jpg)
+![](/images/nara2f.jpg)
 
 **大仏プリン**（大佛pudding）  
 襯返奈良呢個佛寺地域嘛  
 
-![](/imiages/nara2f1.jpg)
+![](/images/nara2f1.jpg)
 
 肉眼睇都睇得出嘅滑溜  
 起泡都冇呀靚到吖～  

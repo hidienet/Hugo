@@ -12,18 +12,14 @@ tags : [travel-日本-小倉關門長門]
 
 [![](https://c1.staticflickr.com/5/4627/39016424104_9bae9b0672_z.jpg)](https://c1.staticflickr.com/5/4627/39016424104_9bae9b0672_z.jpg)
 
-無計啦，要嚟呢條**千畳敷**啊
-
-就算唔揸車都要搭的士
-
+無計啦，要嚟呢條**千畳敷**啊  
+就算唔揸車都要搭的士  
 仲未計搭的士前仲要轉幾輪車喎
 
 [![](https://c1.staticflickr.com/5/4625/39016423294_7daaab3675_z.jpg)](https://c1.staticflickr.com/5/4625/39016423294_7daaab3675_z.jpg)
 
-拎咗租車之後
-
-先响車上食七仔買嘅**おむすび**
-
+拎咗租車之後  
+先响車上食七仔買嘅**おむすび**  
 （同用擒日隻酒杯分大盒牛奶嚟飲）
 
 [![](https://c1.staticflickr.com/5/4701/39016422384_aa5dde14f6_z.jpg)](https://c1.staticflickr.com/5/4701/39016422384_aa5dde14f6_z.jpg)

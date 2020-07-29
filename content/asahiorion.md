@@ -10,8 +10,8 @@ tags : [flavor - 飲！]
 
 ![](/images/asahiorion.jpg)
 
-甜甜的orion啤酒  
-加上asahi的微甘味  
+甜甜的[orion](https://hidie.net/okinawaorion/)啤酒  
+加上[asahi](https://hidie.net/asahibeer/)的微甘味  
 悶・氣・全・消（yeah～）
 
   

@@ -3,7 +3,7 @@ title: '[tools] charm - 無限亮眼微整筆'
 date: 2014-07-05T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/07/tools-charm.html" ]
-tags : [glamorous - 保養おたく]
+tags : [glamorous - 保養おたく, glamorous - 機電工程]
 ---
 
 用「眼碌碌」碌到眼仔碌碌  

@@ -3,7 +3,7 @@ title: '「我就是這樣活過來。」'
 date: 2015-03-25T20:20:00.000+08:00
 draft: false
 aliases: [ "/2015/03/blog-post_25.html" ]
-tags : [lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 過日晨]
 ---
 
 這陣兒過著搬屋搬廠搬寫字樓的日子  

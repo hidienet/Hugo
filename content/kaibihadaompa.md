@@ -3,7 +3,7 @@ title: '[tools] KAI - bi-hada ompaホルダー'
 date: 2014-07-08T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/07/tools-kai-bi-hada-ompa.html" ]
-tags : [glamorous - 保養おたく, glamorous -機電工程]
+tags : [glamorous - 保養おたく, glamorous - 機電工程]
 ---
 
 如果要在最短的時間除毛  

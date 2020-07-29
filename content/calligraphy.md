@@ -3,7 +3,7 @@ title: '咁啱兜過一個書法學會嘅展覽…'
 date: 2018-05-22T11:55:00.000+08:00
 draft: false
 aliases: [ "/2018/05/blog-post_22.html" ]
-tags : [amusement - exhibition, lifestyle - 嗨啲的極樂世界]
+tags : [amusement - exhibition, lifestyle - 過日晨]
 ---
 
 自細唔鍾意寫毛筆字  

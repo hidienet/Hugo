@@ -46,16 +46,11 @@ tags : [travel-日本-奈良大阪]
 所以揀咗**梅ととろろご飯** @**Goryo**  
 味道唔錯，感覺食完腸胃同皮膚都好啲  
   
+[![](/images/kix0.jpg)
+
 慢慢嘆完急急腳check-in  
 點知班機要delay  
 多咗粒幾鐘逛多陣...  
-
-[![](/images/kix0.jpg)
-
-Nintendo (Super Mario) @KIX  
-空港到着有好多裝飾同裝置  
-仲有扇仔派（嘻嘻）  
-  
   
 日本呀，I'll be back～！！！  
 

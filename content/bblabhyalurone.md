@@ -24,7 +24,7 @@ tags : [glamorous - 保養おたく]
 皮膚差的時候更可以吸飽一枝，用量超多  
 但為了皮膚，豪氣地用吧用吧（躲在被單裡哭）
 
-![](/images/bblabhyalurone.jpg)
+![](/images/bblabhyalurone1.jpg)
 
 其實胎盤素原液也不錯  
 不是人的胎盤啦  

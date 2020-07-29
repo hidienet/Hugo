@@ -3,7 +3,7 @@ title: '[tools] brtc - smart artist auto pat'
 date: 2014-07-09T08:00:00.000+08:00
 draft: false
 aliases: [ "/2014/07/tools-brtc-smart-artist-auto-pat.html" ]
-tags : [glamorous - 保養おたく, glamorous - 畫皮？, glamorous -機電工程]
+tags : [glamorous - 保養おたく, glamorous - 畫皮？, glamorous - 機電工程]
 ---
 
 震震 震震震震～ 個妝就好貼  

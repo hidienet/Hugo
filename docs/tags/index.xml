@@ -7,7 +7,7 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Mon, 27 Jul 2020 07:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Wed, 29 Jul 2020 18:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
@@ -15,9 +15,36 @@
     <item>
       <title>travel-日本-奈良大阪</title>
       <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</link>
-      <pubDate>Mon, 27 Jul 2020 07:30:00 +0800</pubDate>
+      <pubDate>Wed, 29 Jul 2020 18:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>flavor - 小食部</title>
+      <link>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</link>
+      <pubDate>Wed, 29 Jul 2020 14:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>flavor - 螞蟻族</title>
+      <link>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</link>
+      <pubDate>Wed, 29 Jul 2020 07:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>flavor - 行膳積腹</title>
+      <link>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</link>
+      <pubDate>Tue, 28 Jul 2020 10:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</guid>
       <description></description>
     </item>
     
@@ -27,24 +54,6 @@
       <pubDate>Sun, 26 Jul 2020 09:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/collections-%E5%8F%AF%E6%84%9B%E3%81%84/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - 小食部</title>
-      <link>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</link>
-      <pubDate>Sun, 26 Jul 2020 09:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - 螞蟻族</title>
-      <link>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</link>
-      <pubDate>Sun, 26 Jul 2020 09:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</guid>
       <description></description>
     </item>
     
@@ -85,15 +94,6 @@
     </item>
     
     <item>
-      <title>flavor - 行膳積腹</title>
-      <link>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</link>
-      <pubDate>Fri, 24 Jul 2020 07:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</guid>
-      <description></description>
-    </item>
-    
-    <item>
       <title>flavor - say cheese</title>
       <link>https://hidie.net/tags/flavor-say-cheese/</link>
       <pubDate>Tue, 14 Jul 2020 14:30:00 +0800</pubDate>
@@ -130,11 +130,11 @@
     </item>
     
     <item>
-      <title>travel - 日本（四国南海道）・ 讚岐香川、阿波徳島、伊予愛媛、土佐高知</title>
-      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC%E5%9B%9B%E5%9B%BD%E5%8D%97%E6%B5%B7%E9%81%93-%E8%AE%9A%E5%B2%90%E9%A6%99%E5%B7%9D%E9%98%BF%E6%B3%A2%E5%BE%B3%E5%B3%B6%E4%BC%8A%E4%BA%88%E6%84%9B%E5%AA%9B%E5%9C%9F%E4%BD%90%E9%AB%98%E7%9F%A5/</link>
+      <title>travel-日本-四國</title>
+      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%9B%9B%E5%9C%8B/</link>
       <pubDate>Mon, 25 May 2020 10:38:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC%E5%9B%9B%E5%9B%BD%E5%8D%97%E6%B5%B7%E9%81%93-%E8%AE%9A%E5%B2%90%E9%A6%99%E5%B7%9D%E9%98%BF%E6%B3%A2%E5%BE%B3%E5%B3%B6%E4%BC%8A%E4%BA%88%E6%84%9B%E5%AA%9B%E5%9C%9F%E4%BD%90%E9%AB%98%E7%9F%A5/</guid>
+      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%9B%9B%E5%9C%8B/</guid>
       <description></description>
     </item>
     
@@ -153,6 +153,15 @@
       <pubDate>Sun, 12 Apr 2020 20:57:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/lifestyle-%E6%B8%AF%E5%A5%B3%E6%B8%AF%E6%97%85/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>glamorous - 機電工程</title>
+      <link>https://hidie.net/tags/glamorous-%E6%A9%9F%E9%9B%BB%E5%B7%A5%E7%A8%8B/</link>
+      <pubDate>Wed, 01 Apr 2020 22:27:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/glamorous-%E6%A9%9F%E9%9B%BB%E5%B7%A5%E7%A8%8B/</guid>
       <description></description>
     </item>
     
@@ -229,11 +238,11 @@
     </item>
     
     <item>
-      <title>lifestyle - 嗨啲的極樂世界</title>
-      <link>https://hidie.net/tags/lifestyle-%E5%97%A8%E5%95%B2%E7%9A%84%E6%A5%B5%E6%A8%82%E4%B8%96%E7%95%8C/</link>
+      <title>lifestyle - 過日晨</title>
+      <link>https://hidie.net/tags/lifestyle-%E9%81%8E%E6%97%A5%E6%99%A8/</link>
       <pubDate>Wed, 05 Feb 2020 20:32:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/lifestyle-%E5%97%A8%E5%95%B2%E7%9A%84%E6%A5%B5%E6%A8%82%E4%B8%96%E7%95%8C/</guid>
+      <guid>https://hidie.net/tags/lifestyle-%E9%81%8E%E6%97%A5%E6%99%A8/</guid>
       <description></description>
     </item>
     
@@ -346,11 +355,11 @@
     </item>
     
     <item>
-      <title>travel - Portugal</title>
-      <link>https://hidie.net/tags/travel-portugal/</link>
+      <title>travel-葡萄牙</title>
+      <link>https://hidie.net/tags/travel-%E8%91%A1%E8%90%84%E7%89%99/</link>
       <pubDate>Thu, 17 May 2018 09:29:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-portugal/</guid>
+      <guid>https://hidie.net/tags/travel-%E8%91%A1%E8%90%84%E7%89%99/</guid>
       <description></description>
     </item>
     
@@ -472,11 +481,11 @@
     </item>
     
     <item>
-      <title>travel - 日本（九州西海道）・ 大隅薩摩鹿児島と日向宮崎</title>
-      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC%E4%B9%9D%E5%B7%9E%E8%A5%BF%E6%B5%B7%E9%81%93-%E5%A4%A7%E9%9A%85%E8%96%A9%E6%91%A9%E9%B9%BF%E5%85%90%E5%B3%B6%E3%81%A8%E6%97%A5%E5%90%91%E5%AE%AE%E5%B4%8E/</link>
+      <title>travel-日本-鹿兒島宮崎</title>
+      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E9%B9%BF%E5%85%92%E5%B3%B6%E5%AE%AE%E5%B4%8E/</link>
       <pubDate>Wed, 28 Jun 2017 09:39:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC%E4%B9%9D%E5%B7%9E%E8%A5%BF%E6%B5%B7%E9%81%93-%E5%A4%A7%E9%9A%85%E8%96%A9%E6%91%A9%E9%B9%BF%E5%85%90%E5%B3%B6%E3%81%A8%E6%97%A5%E5%90%91%E5%AE%AE%E5%B4%8E/</guid>
+      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E9%B9%BF%E5%85%92%E5%B3%B6%E5%AE%AE%E5%B4%8E/</guid>
       <description></description>
     </item>
     
@@ -508,11 +517,11 @@
     </item>
     
     <item>
-      <title>travel - 日本（中部東海道）・ 尾張愛知名古屋</title>
-      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC%E4%B8%AD%E9%83%A8%E6%9D%B1%E6%B5%B7%E9%81%93-%E5%B0%BE%E5%BC%B5%E6%84%9B%E7%9F%A5%E5%90%8D%E5%8F%A4%E5%B1%8B/</link>
+      <title>travel-日本-名古屋</title>
+      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%90%8D%E5%8F%A4%E5%B1%8B/</link>
       <pubDate>Thu, 05 Nov 2015 16:30:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC%E4%B8%AD%E9%83%A8%E6%9D%B1%E6%B5%B7%E9%81%93-%E5%B0%BE%E5%BC%B5%E6%84%9B%E7%9F%A5%E5%90%8D%E5%8F%A4%E5%B1%8B/</guid>
+      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%90%8D%E5%8F%A4%E5%B1%8B/</guid>
       <description></description>
     </item>
     
@@ -580,11 +589,11 @@
     </item>
     
     <item>
-      <title>travel - 남한・서울 (首爾)</title>
-      <link>https://hidie.net/tags/travel-%EB%82%A8%ED%95%9C%EC%84%9C%EC%9A%B8-%E9%A6%96%E7%88%BE/</link>
+      <title>travel-南韓-首爾</title>
+      <link>https://hidie.net/tags/travel-%E5%8D%97%E9%9F%93-%E9%A6%96%E7%88%BE/</link>
       <pubDate>Fri, 07 Nov 2014 10:30:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-%EB%82%A8%ED%95%9C%EC%84%9C%EC%9A%B8-%E9%A6%96%E7%88%BE/</guid>
+      <guid>https://hidie.net/tags/travel-%E5%8D%97%E9%9F%93-%E9%A6%96%E7%88%BE/</guid>
       <description></description>
     </item>
     
@@ -598,11 +607,11 @@
     </item>
     
     <item>
-      <title>travel - 臺灣・臺中、南投清境、彰化鹿港</title>
-      <link>https://hidie.net/tags/travel-%E8%87%BA%E7%81%A3%E8%87%BA%E4%B8%AD%E5%8D%97%E6%8A%95%E6%B8%85%E5%A2%83%E5%BD%B0%E5%8C%96%E9%B9%BF%E6%B8%AF/</link>
+      <title>travel - 臺灣清境鹿港</title>
+      <link>https://hidie.net/tags/travel-%E8%87%BA%E7%81%A3%E6%B8%85%E5%A2%83%E9%B9%BF%E6%B8%AF/</link>
       <pubDate>Mon, 08 Sep 2014 10:00:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-%E8%87%BA%E7%81%A3%E8%87%BA%E4%B8%AD%E5%8D%97%E6%8A%95%E6%B8%85%E5%A2%83%E5%BD%B0%E5%8C%96%E9%B9%BF%E6%B8%AF/</guid>
+      <guid>https://hidie.net/tags/travel-%E8%87%BA%E7%81%A3%E6%B8%85%E5%A2%83%E9%B9%BF%E6%B8%AF/</guid>
       <description></description>
     </item>
     
@@ -616,11 +625,11 @@
     </item>
     
     <item>
-      <title>travel - България (Bulgaria)</title>
-      <link>https://hidie.net/tags/travel-%D0%B1%D1%8A%D0%BB%D0%B3%D0%B0%D1%80%D0%B8%D1%8F-bulgaria/</link>
+      <title>travel-保加利亞</title>
+      <link>https://hidie.net/tags/travel-%E4%BF%9D%E5%8A%A0%E5%88%A9%E4%BA%9E/</link>
       <pubDate>Mon, 09 Jun 2014 10:00:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-%D0%B1%D1%8A%D0%BB%D0%B3%D0%B0%D1%80%D0%B8%D1%8F-bulgaria/</guid>
+      <guid>https://hidie.net/tags/travel-%E4%BF%9D%E5%8A%A0%E5%88%A9%E4%BA%9E/</guid>
       <description></description>
     </item>
     
@@ -643,11 +652,11 @@
     </item>
     
     <item>
-      <title>travel - Việt Nam・Sài Gòn (saigon)</title>
-      <link>https://hidie.net/tags/travel-vi%E1%BB%87t-nams%C3%A0i-g%C3%B2n-saigon/</link>
+      <title>travel-越南-西貢</title>
+      <link>https://hidie.net/tags/travel-%E8%B6%8A%E5%8D%97-%E8%A5%BF%E8%B2%A2/</link>
       <pubDate>Sat, 12 Apr 2014 12:30:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-vi%E1%BB%87t-nams%C3%A0i-g%C3%B2n-saigon/</guid>
+      <guid>https://hidie.net/tags/travel-%E8%B6%8A%E5%8D%97-%E8%A5%BF%E8%B2%A2/</guid>
       <description></description>
     </item>
     
@@ -661,29 +670,20 @@
     </item>
     
     <item>
-      <title>travel - 남한・부산、경주 (釜山、慶州)</title>
-      <link>https://hidie.net/tags/travel-%EB%82%A8%ED%95%9C%EB%B6%80%EC%82%B0%EA%B2%BD%EC%A3%BC-%E9%87%9C%E5%B1%B1%E6%85%B6%E5%B7%9E/</link>
-      <pubDate>Wed, 22 Jan 2014 12:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/travel-%EB%82%A8%ED%95%9C%EB%B6%80%EC%82%B0%EA%B2%BD%EC%A3%BC-%E9%87%9C%E5%B1%B1%E6%85%B6%E5%B7%9E/</guid>
-      <description></description>
-    </item>
-    
-    <item>
       <title>travel-南韓-慶州釜山</title>
       <link>https://hidie.net/tags/travel-%E5%8D%97%E9%9F%93-%E6%85%B6%E5%B7%9E%E9%87%9C%E5%B1%B1/</link>
-      <pubDate>Wed, 22 Jan 2014 04:45:00 +0800</pubDate>
+      <pubDate>Wed, 22 Jan 2014 12:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/travel-%E5%8D%97%E9%9F%93-%E6%85%B6%E5%B7%9E%E9%87%9C%E5%B1%B1/</guid>
       <description></description>
     </item>
     
     <item>
-      <title>travel - Malaysia・Sabah</title>
-      <link>https://hidie.net/tags/travel-malaysiasabah/</link>
+      <title>travel-馬來西亞-沙巴</title>
+      <link>https://hidie.net/tags/travel-%E9%A6%AC%E4%BE%86%E8%A5%BF%E4%BA%9E-%E6%B2%99%E5%B7%B4/</link>
       <pubDate>Wed, 01 Jan 2014 15:30:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-malaysiasabah/</guid>
+      <guid>https://hidie.net/tags/travel-%E9%A6%AC%E4%BE%86%E8%A5%BF%E4%BA%9E-%E6%B2%99%E5%B7%B4/</guid>
       <description></description>
     </item>
     
@@ -706,11 +706,11 @@
     </item>
     
     <item>
-      <title>travel - 日本（関東東海道）・ 武藏東京と駿河静岡御殿場と相模神奈川箱根</title>
-      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC%E9%96%A2%E6%9D%B1%E6%9D%B1%E6%B5%B7%E9%81%93-%E6%AD%A6%E8%97%8F%E6%9D%B1%E4%BA%AC%E3%81%A8%E9%A7%BF%E6%B2%B3%E9%9D%99%E5%B2%A1%E5%BE%A1%E6%AE%BF%E5%A0%B4%E3%81%A8%E7%9B%B8%E6%A8%A1%E7%A5%9E%E5%A5%88%E5%B7%9D%E7%AE%B1%E6%A0%B9/</link>
+      <title>travel-日本-東京御殿場箱根</title>
+      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E6%9D%B1%E4%BA%AC%E5%BE%A1%E6%AE%BF%E5%A0%B4%E7%AE%B1%E6%A0%B9/</link>
       <pubDate>Mon, 04 Nov 2013 21:00:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC%E9%96%A2%E6%9D%B1%E6%9D%B1%E6%B5%B7%E9%81%93-%E6%AD%A6%E8%97%8F%E6%9D%B1%E4%BA%AC%E3%81%A8%E9%A7%BF%E6%B2%B3%E9%9D%99%E5%B2%A1%E5%BE%A1%E6%AE%BF%E5%A0%B4%E3%81%A8%E7%9B%B8%E6%A8%A1%E7%A5%9E%E5%A5%88%E5%B7%9D%E7%AE%B1%E6%A0%B9/</guid>
+      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E6%9D%B1%E4%BA%AC%E5%BE%A1%E6%AE%BF%E5%A0%B4%E7%AE%B1%E6%A0%B9/</guid>
       <description></description>
     </item>
     

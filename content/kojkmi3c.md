@@ -30,35 +30,35 @@ tags : [flavor - 行膳積腹, travel-日本-鹿兒島宮崎]
   
 （哈～）  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c1.jpg)
 
 個景都係食正條大淀川  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c2.jpg)
 
 未坐低已經set好晒嘢  
 無電話所以無得打電話卜枱  
 擒日[親身](https://hidie.net/kojkmi2e/)走過嚟訂（順便行條河）  
 真係驚死無得食㗎話晒真係特登走嚟宮崎嘛  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c3.jpg)
 
 唔係lunch set包都會叫呢杯  
 **日向夏cocktail**，會比齋juice無咁甜  
 加上有酒精感覺上開心D（笑）  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c4.jpg)
 
 **季節の小鉢1品**  
 燒豆腐上面淋肉醬  
 一口KO咗，微微鹹軟軟地咁  
 無咩好特別嘅味道  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c5.jpg)
 
 煎呀煎，不過呢幾塊唔係牛...  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c6.jpg)
 
 **季節の前菜**  
 係salad上面嘅「卑勤」  
@@ -70,25 +70,25 @@ tags : [flavor - 行膳積腹, travel-日本-鹿兒島宮崎]
 不過夾埋一齊食就軟韌爽脆都有晒  
 右下角個櫻花鹽唔死鹹幾好味  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c7.jpg)
 
 登登登凳～  
 今餐嘅**A5牛**（上）同**入賞牛**（下）  
 A5 D油花已經好靚  
 隻入賞牛就更更更雪花  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c8.jpg)
 
 兩隻牛都有出世紙  
 A5有養殖地  
 入賞牛直頭放埋養父個名  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c9.jpg)
 
 **季節の焼野菜**  
 野菜有青椒同矮瓜  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c10.jpg)
 
 先食A5，鉄板焼A5牛中...  
 
@@ -96,35 +96,35 @@ A5有養殖地
 
 當然會有表演睇 :)  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c11.jpg)
 
 燒完就cut好  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c12.jpg)
 
 排好，上碟喇～  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c13.jpg)
 
 有得食喇！  
 食呢D牛嘅調味有鹽啦炸蒜片同蘿蔔蓉  
 仲有醋啦柚子胡椒わさび同豉油  
 set當然有白飯同味噌湯  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c14.jpg)
 
 **A5牛**：medium  
 牛肉入口油花熔化  
 肉質嫩滑，味香而唔臊  
 好嫩，真係好嫩...  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c15.jpg)
 
 除咗野菜仲有牛肥膏粒粒  
 係肥㗎喇不過我都啪晒入口  
 食嗰陣真係唔覺得漏喎  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c16.jpg)
 
 然後，到隻**入賞牛**：rare  
 之前食A5師傅問要幾成熟  
@@ -154,14 +154,14 @@ set當然有白飯同味噌湯
 入賞牛要食RARE  
 （真係極度重要，千祈唔好徙嘢！）  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c17.jpg)
 
 一般嚟講塊墊牛方包係食完牛就掉得  
 點知呢位師傅拎走去玩  
 仲加咗好多牛油（butter）一齊玩  
 一直响度壓呀壓咁壓扁佢...  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c18.jpg)
 
 **デザート**  
 再加D糖霜、花瓣、果jam同塊葉香草  
@@ -173,13 +173,13 @@ set當然有白飯同味噌湯
 太！好！食！喇！  
 飽呀但係所有嘢都清得晒！  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c19.jpg)
 
 個course係包**coffee**  
 呢杯齋啡微香帶甘苦  
 用嚟消滯唔錯  
 
-![](/images/kojkmi3c.jpg)
+![](/images/kojkmi3c20.jpg)
 
 送啡用嘅**糖漬日向夏柑皮**  
 白色係砂糖x白朱古力面  

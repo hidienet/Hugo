@@ -3,7 +3,7 @@ title: '[nail] 孖人牌 指甲鉗'
 date: 2014-07-13T11:30:00.000+08:00
 draft: false
 aliases: [ "/2014/07/nail.html" ]
-tags : [glamorous - 蛋臉以外]
+tags : [glamorous - 蛋臉以外, glamorous - 機電工程]
 ---
 
 任憑科技有多發達  

@@ -3,7 +3,7 @@ title: '#ddHK 設計#香港地 - #ddSnap #dd城市搜影'
 date: 2019-05-29T22:23:00.001+08:00
 draft: false
 aliases: [ "/2019/05/ddhk-ddsnap-dd.html" ]
-tags : [lifestyle - 攝 ‧ 時間, lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 攝 ‧ 時間, amusement - exhibition]
 ---
 
 個trip嘅副標題係：以鏡頭搜尋灣仔魅力影像

@@ -25,21 +25,21 @@ tags : [travel-日本-奈良大阪]
 個炸漿薄薄脆脆咁  
 裡面啲料新鮮（啱啱開舖就去好難唔鮮嘅）  
 
-[![](https://c1.staticflickr.com/5/4397/35893524024_c2151dd341_z.jpg)](https://c1.staticflickr.com/5/4397/35893524024_c2151dd341_z.jpg)
+![](/images/osaka3b0.jpg)
 
 除咗食串カツ  
-梗係唔會漏咗叫**どて焼**！  
+梗係唔會漏咗叫**どて焼き**！  
 
-[![](https://c1.staticflickr.com/5/4421/35893769154_dd92751c87_z.jpg)](https://c1.staticflickr.com/5/4421/35893769154_dd92751c87_z.jpg)
+![](/images/osaka3c1.jpg)
 
-（**通天閣**）  
+（[通天閣](https://hidie.net/osaka3c/)）  
 哎呀呀落雨呀  
 就算上去都無景好睇㗎啦  
 
-[![](https://c1.staticflickr.com/5/4386/35893768464_db6a19931b_z.jpg)](https://c1.staticflickr.com/5/4386/35893768464_db6a19931b_z.jpg)
+![](/images/osaka3d.jpg)
 
 返轉頭走啦去飲杯**ミックスジュース**  
-當然係元祖店嘅**千成屋珈琲**  
+當然係元祖店嘅[千成屋珈琲](https://hidie.net/osaka3d/)  
 買外賣唔响裡面用玻璃杯飲喇  
 响隔離陽春啲坐好飲完繼續移動  
 
@@ -108,8 +108,7 @@ tags : [travel-日本-奈良大阪]
   
   
   
-呢個旅程最後一晚响大阪喇  
-依然係食飽飽嘅～（笑）  
+一整天嘅行程係食飽飽嘅～（笑）  
 
   
 {{<osaka>}}

@@ -115,7 +115,7 @@ well，總共超過1000條嘅
 
 [![](https://c1.staticflickr.com/5/4764/24856173307_7b17cc1fbf_z.jpg)](https://c1.staticflickr.com/5/4764/24856173307_7b17cc1fbf_z.jpg)
 
-今晚食天ぷら @**天ぷら定食ふじしま **  
+今晚食天ぷら @**天ぷら定食ふじしま**  
 好好味嘅老店一間  
 
 [![](https://c1.staticflickr.com/5/4744/27946660809_72a0827af8_z.jpg)](https://c1.staticflickr.com/5/4744/27946660809_72a0827af8_z.jpg)

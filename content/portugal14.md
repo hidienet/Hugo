@@ -26,13 +26,9 @@ tags : [travel-葡萄牙]
 [![](https://c1.staticflickr.com/5/4384/36195990321_5ccdbca78b_z.jpg)](https://c1.staticflickr.com/5/4384/36195990321_5ccdbca78b_z.jpg)
 
 行到好攰要坐低食晏 @**Cultura Portuguesa Cafe**  
-
-嗱講真間嘢啲嘢食普普通通㗎啫
-
-然後行到好熱㗎嘛點知間嘢又無乜冷氣
-
-係啲凳坐得OK舒服嘅，that's all
-
+嗱講真間嘢啲嘢食普普通通㗎啫  
+然後行到好熱㗎嘛點知間嘢又無乜冷氣  
+係啲凳坐得OK舒服嘅，that's all  
   
 然後搭tram tram去第二度  
 

@@ -3,7 +3,7 @@ title: '[tools] Japan Gals diamond spot beau'
 date: 2014-07-02T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/07/tools-japan-gals-diamond-spot-beau.html" ]
-tags : [glamorous - 保養おたく, glamorous -機電工程]
+tags : [glamorous - 保養おたく, glamorous - 機電工程]
 ---
 
 去死皮，總是離不開化學性與物理性  

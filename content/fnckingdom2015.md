@@ -56,7 +56,7 @@ high到一整晚在跳在叫
 
 ＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝
 
-（[16/5](http://www.hidie.net/2015/05/live-2015-fnc-kingdom-in-hongkong-165.html)）  
+（[16/5](https://hidie.net/fnckingdom20150516/)）  
   
 第一隊出場是**N.Flying**  
 紅噹噹的火辣舞台唱出的《Bitter Sweet》  
@@ -348,7 +348,7 @@ Mochi Mochi Band，同2014年的演唱差不多是一樣的
 
 ＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝
 
-（[17/5](http://www.hidie.net/2015/05/live-2015-fnc-kingdom-in-hongkong-175.html)）  
+（[17/5](https://hidie.net/fnckingdom20150517/)）  
   
 第一隊出場也是**N.Flying**  
 《Bitter Sweet》rock show狀態登場！  
@@ -455,7 +455,7 @@ HIMHIM在上場完結是跟我說沒有這首歌；
   
 《Diamond Girl》、《Coffee Shop》、《I'm Sorry》  
 「미쳤어！」「완전히 미쳤어！！！」  
-叫到癲跳到癲，幸好有帶備[龍角散](http://www.hidie.net/2014/02/blog-post_26.html)  
+叫到癲跳到癲，幸好有帶備[龍角散](https://hidie.net/ryukakusan/)  
   
 再來韓文版的《Lady》  
 英語部分應援跟日文版一樣  

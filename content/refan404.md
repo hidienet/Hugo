@@ -3,7 +3,7 @@ title: 'refan - 404 eau de parfum'
 date: 2014-06-11T14:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/refan-404-eau-de-parfum.html" ]
-tags : [lifestyle - 嗨啲的極樂世界]
+tags : [lifestyle - 過日晨]
 ---
 
 有香氣的生活很好～  

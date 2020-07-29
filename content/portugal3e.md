@@ -8,7 +8,7 @@ tags : [travel-葡萄牙]
 
 終於到咗日上三竿煙消雲散時  
 
-![](/images/poetugal3e.jpg)
+![](/images/portugal3e.jpg)
 
 Gaia呢邊同對岸Porto  
 再加埋條Douro同Ponte D. Luís I  

@@ -8,14 +8,14 @@ tags : [flavor - 行膳積腹, flavor - 飲！]
 
 食嘢飲嘢，當然係要坐埋邊慢慢嘆啦~  
 
-![](/imgaes/dearcoffee1.jpg)
+![](/images/dearcoffee1.jpg)
 
 **caffè latte**  
 慢慢嘆得嘅梗係唔少得咖啡呢樣嘢  
 house blend嘅係混種咖啡  
 香醇唔點帶苦澀，配奶唔錯吖  
 
-![](/imgaes/dearcoffee2.jpg)
+![](/images/dearcoffee2.jpg)
 
 **bread combo with miso & pickles**  
 話晒呢度係bakery，叫返個包set先  
@@ -45,23 +45,23 @@ combo嘅包唔係自選嘅
 即係每個星期有咩靚料就整咩包嗰種  
 遇啱咩咪試咩囉…  
 
-![](/imgaes/dearcoffee.jpg)
+![](/images/dearcoffee.jpg)
 
 另外有叫**caffè latte macchiato**  
 未溝開嘅espresso更能帶出個啡味  
 
-![](/imgaes/dearcoffee3.jpg)
+![](/images/dearcoffee3.jpg)
 
 **magic**  
 豐腴嘅奶泡，唔會過於突出嘅啡味  
 所有嘢都好平衡  
 
-![](/imgaes/dearcoffee4.jpg)
+![](/images/dearcoffee4.jpg)
 
 要食得飽有包包都有**full breakfast**  
 有炒滑蛋薯餅濃郁味芝士腸凍火堆超新鮮生菜同加咗檸檬汁嘅鮮提子  
 
-![](/imgaes/dearcoffee5.jpg)
+![](/images/dearcoffee5.jpg)
 
 同**green breakfast**  
 啲肉轉做煎番茄同zucchini炒鮮菇  

@@ -3,7 +3,7 @@ title: '[smile] Oral-B pulsonic sonic toothbrush'
 date: 2014-11-22T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/11/smile-oral-b-pulsonic-sonic-toothbrush.html" ]
-tags : [glamorous - 蛋臉以外, glamorous -機電工程]
+tags : [glamorous - 蛋臉以外, glamorous - 機電工程]
 ---
 
 不能確定自己有多喜歡刷牙  

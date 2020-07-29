@@ -43,9 +43,9 @@ tags : [travel-日本-奈良大阪]
 買外賣唔响裡面用玻璃杯飲喇  
 响隔離陽春啲坐好飲完繼續移動  
 
-[![](https://c1.staticflickr.com/5/4407/35919260893_7d08d67e17_z.jpg)](https://c1.staticflickr.com/5/4407/35919260893_7d08d67e17_z.jpg)
+![](/images/osaka3e.jpg)
 
-（**阿倍野HARUKAS**）  
+（[阿倍野HARUKAS](https://hidie.net/osaka3e/)）  
 大雨又大霧，莫講話通天閣啦  
 就算上到**HARUKAS 300**都冇嘢好睇㗎啦  
 離開呢區喇～  
@@ -58,18 +58,18 @@ tags : [travel-日本-奈良大阪]
 跟住上樓上UNIQLO就覺得啲嘢好貴（！）  
 唔買喇，消耗完能量又去補充吓  
 
-[![](https://c1.staticflickr.com/5/4401/35894043464_80ef94631a_z.jpg)](https://c1.staticflickr.com/5/4401/35894043464_80ef94631a_z.jpg)
+![](/images/osaka3f.jpg)
 
-**いか焼き**  
+[阪神名物 いか焼き](https://hidie.net/osaka3f/)  
 嚟梅田一定要嚟**阪神百貨店**食  
 排少少隊但係條隊去得好快  
 熱到爆呀舊嘢  
 又香又軟得嚟韌韌嘅質地  
 真係好好好好食呀～～～～～  
 
-[![](https://c1.staticflickr.com/5/4383/35964691003_29006c600a_z.jpg)](https://c1.staticflickr.com/5/4383/35964691003_29006c600a_z.jpg)
+![](/images/osaka3g.jpg)
 
-**ひつまぶし** @**鰻萬**  
+**ひつまぶし** @[鰻萬](https://hidie.net/osaka3g/)  
 响由GU到食いか焼き嘅阪神百貨店期間  
 係要經過阪急百貨店  
 兜過嘅時間見到水牌有鰻魚飯食  
@@ -77,10 +77,10 @@ tags : [travel-日本-奈良大阪]
 襯過咗午市人流高峯期就唔駛排隊  
 入去坐低慢慢食  
 
-[![](https://c1.staticflickr.com/5/4405/35965071383_5481bc9759_z.jpg)](https://c1.staticflickr.com/5/4405/35965071383_5481bc9759_z.jpg)
+![](/images/osaka3h0.jpg)
 
 **ぐでらてアートほうじ茶**  
-@**ぐでたまかふぇ**  
+@[ぐでたまかふぇ](https://hidie.net/osaka3h/)  
 話說原本諗住食完頭先個飯後  
 唔到晚餐時間都唔！食！嘢！  
 不過做人呢家嘢真係話唔埋嘅  
@@ -89,7 +89,7 @@ tags : [travel-日本-奈良大阪]
 反正冇街要行冇嘢需要買  
 搵個地方坐下都好吖～  
 
-[![](https://c1.staticflickr.com/5/4439/36774178105_ca4e8becb8_z.jpg)](https://c1.staticflickr.com/5/4439/36774178105_ca4e8becb8_z.jpg)
+![](https://c1.staticflickr.com/5/4439/36774178105_ca4e8becb8_z.jpg)
 
 點解話要晚餐前唔食嘢？  
 因為今晚卜咗食**神戸牛焼きコース**（撒花）  
@@ -100,7 +100,7 @@ tags : [travel-日本-奈良大阪]
 同買張 1-day pass  
 但一切... 都係完全值得㗎！  
 
-[![](https://c1.staticflickr.com/5/4393/36605177692_32e49a5a8c_z.jpg)](https://c1.staticflickr.com/5/4393/36605177692_32e49a5a8c_z.jpg)
+![](https://c1.staticflickr.com/5/4393/36605177692_32e49a5a8c_z.jpg)
 
 哎吔，食得太太太多喇今日  
 宵夜食返最愛嘅**グリコ アイスの実**  

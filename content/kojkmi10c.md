@@ -8,12 +8,12 @@ tags : [travel-日本-鹿兒島宮崎]
 
 臨走都要無料足湯！  
   
-[![](/images/kojkmi10c.jpg)
+![](/images/kojkmi10c.jpg)
 
 有個假桜島噴出來嘅溫泉水  
 俾我再一次望住個桜島  
 
-[![](/images/kojkmi10c1.jpg)
+![](/images/kojkmi10c1.jpg)
 
 反正等過關條龍好長  
 一早排隊都冇意思  

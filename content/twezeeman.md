@@ -3,7 +3,7 @@ title: '[twezeezer] Tweezerman - Slant® Tweezer'
 date: 2013-10-25T11:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/twezeezer-tweezerman-slant-tweezer.html" ]
-tags : [glamorous - 保養おたく]
+tags : [glamorous - 保養おたく, glamorous - 機電工程]
 ---
 
 是這個紅圈標誌，心甘情願乖乖付錢就是    

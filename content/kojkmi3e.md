@@ -6,7 +6,7 @@ aliases: [ "/2017/01/happy-days-day-3again.html" ]
 tags : [flavor - 飲！, travel-日本-鹿兒島宮崎]
 ---
 
-係呀，又去浸溫泉喇～～～  
+係呀，又去[極楽湯](https://hidie.net/kojkmi2f/)浸溫泉喇～～～  
   
 鬼叫行一陣就到  
 鬼叫個限定養命酒湯好過癮  

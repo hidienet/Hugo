@@ -6,144 +6,122 @@ aliases: [ "/2015/03/discography-jung-yong-hwa-one-fine-day.html" ]
 tags : [amusement - zene]
 ---
 
-「소리질러～～～」
-
-唱歌好聽又靚仔仲要多才多藝
-
+「소리질러～～～」  
+唱歌好聽又靚仔仲要多才多藝  
 完全逃離不到「容議員」（同CNBLUE）的魔掌
 
-[![](https://farm9.staticflickr.com/8608/16198550134_a943fdb743_z.jpg)](https://farm9.staticflickr.com/8608/16198550134_a943fdb743_z.jpg)
+![](/images/jyhonefineday1.jpg)
 
-全世界最抵錫的HIMHIM幫我買了親筆簽名版
-
-在落單訂購至收到的時候
-
-加上現在打這個post的moment
-
-都依然超超超開心同興奮
-
+全世界最抵錫的HIMHIM幫我買了親筆簽名版  
+在落單訂購至收到的時候  
+加上現在打這個post的moment  
+都依然超超超開心同興奮  
 果然是one fine day，好多個one fine day！
 
 ![](/images/jyhonefineday.jpg)
 
-入手的是B版，A版白色tone也很漂亮
-
-很多「床照」，有點像鄭容和hologram第一集第一場景的樣子
-
-不過還是買我喜歡的黑色頹廢唯美tone
-
+入手的是B版，A版白色tone也很漂亮  
+很多「床照」，有點像鄭容和hologram第一集第一場景的樣子  
+不過還是買我喜歡的黑色頹廢唯美tone  
 （A版同special版也不錯，日文版歌曲又有分別，真懂搵錢）
 
-[![](https://farm9.staticflickr.com/8578/16634799749_b512f50f19_z.jpg)](https://farm9.staticflickr.com/8578/16634799749_b512f50f19_z.jpg)
+![](/images/jyhonefineday2.jpg)
 
 隨機的card仔，cute・到・爆～
 
-[![](https://farm8.staticflickr.com/7606/16819825111_d149d52e67_z.jpg)](https://farm8.staticflickr.com/7606/16819825111_d149d52e67_z.jpg)
+![](/images/jyhonefineday3.jpg)
 
 印刷簽名同親筆的分別（簽到手都斷...）
 
-[![](https://farm8.staticflickr.com/7585/16633521590_863ca66122_z.jpg)](https://farm8.staticflickr.com/7585/16633521590_863ca66122_z.jpg)
+![](/images/jyhonefineday4.jpg)
 
-終於看到碟的真身
-
+終於看到碟的真身  
 好修長的手指（大愛）
 
-[![](https://farm8.staticflickr.com/7649/16613610487_78f886f077_z.jpg)](https://farm8.staticflickr.com/7649/16613610487_78f886f077_z.jpg)
+![](/images/jyhonefineday5.jpg)
 
-其實全碟的歌已經在第一天單撈完
-
-而特意再買來收藏的話
-
-除了那個最不能抗拒親筆簽名
-
-不諱言是因為厚厚的寫真集
-
+其實全碟的歌已經在第一天單撈完  
+而特意再買來收藏的話  
+除了那個最不能抗拒親筆簽名  
+不諱言是因為厚厚的寫真集  
 （say one, two, one two three let's go～）
 
-[![](https://farm8.staticflickr.com/7640/16198566774_5d7c645491_z.jpg)](https://farm8.staticflickr.com/7640/16198566774_5d7c645491_z.jpg)
+![](/images/jyhonefineday6.jpg)
 
 焦點誤？ㅋㅋㅋ 
 
-[![](https://farm8.staticflickr.com/7594/16820905165_c318fd70f8_z.jpg)](https://farm8.staticflickr.com/7594/16820905165_c318fd70f8_z.jpg)
+![](/images/jyhonefineday7.jpg)
 
 這本有不少大頭照（著迷）
 
-[![](https://farm9.staticflickr.com/8634/16198559904_d55f3b7f55_z.jpg)](https://farm9.staticflickr.com/8634/16198559904_d55f3b7f55_z.jpg)
+![](/images/jyhonefineday8.jpg)
 
-邊看邊流口水，寫真集是印刷品
-
+邊看邊流口水，寫真集是印刷品  
 一直要抑壓自己不可以錫更不可以舐 ><
 
-[![](https://farm9.staticflickr.com/8664/16633349498_96a6393ce3_z.jpg)](https://farm9.staticflickr.com/8664/16633349498_96a6393ce3_z.jpg)
+![](/images/jyhonefineday9.jpg)
 
 續上，我・忍・得・好・辛・苦！！！
 
-[![](https://farm9.staticflickr.com/8741/16613605227_3c789ea987_z.jpg)](https://farm9.staticflickr.com/8741/16613605227_3c789ea987_z.jpg)
+![](/images/jyhonefineday10.jpg)
 
 連背則都天殺般吸引（心心眼）
 
-[![](https://farm8.staticflickr.com/7615/16198557034_472f8af06f_z.jpg)](https://farm8.staticflickr.com/7615/16198557034_472f8af06f_z.jpg)
+![](/images/jyhonefineday11.jpg)
 
 完全承受不起這眼神，心臟難以負荷...
 
-[![](https://farm9.staticflickr.com/8703/16200978543_612821bced_z.jpg)](https://farm9.staticflickr.com/8703/16200978543_612821bced_z.jpg)
+![](/images/jyhonefineday12.jpg)
 
-（左上）顯得腳短但很流行的褲
-
-（右上）把身型縮小了幾個碼的厚重又老土大樓
-
-（左下）洗濕了頭髮再瑟縮一角造型
-
-（右下）就像一個落泊的大叔
-
+（左上）顯得腳短但很流行的褲  
+（右上）把身型縮小了幾個碼的厚重又老土大樓  
+（左下）洗濕了頭髮再瑟縮一角造型  
+（右下）就像一個落泊的大叔  
 好吧！還是逃離不到像CNBLUE般的「風格」照片
 
-[![](https://farm8.staticflickr.com/7588/16613602847_be0b38555e_z.jpg)](https://farm8.staticflickr.com/7588/16613602847_be0b38555e_z.jpg)
+![](/images/jyhonefineday13.jpg)
 
 但覺得這次已比CNBLUE那些好很多很多很多  
 至少有這些孤獨又唯美的大頭照
 
-[![](https://farm9.staticflickr.com/8694/16819800932_e26cd3eaab_z.jpg)](https://farm9.staticflickr.com/8694/16819800932_e26cd3eaab_z.jpg)
+![](/images/jyhonefineday14.jpg)
 
-樣子 x 完美則顏，連手指都那麼好看
-
+樣子 x 完美則顏，連手指都那麼好看  
 手指同面型都很秀氣
 
-[![](https://farm8.staticflickr.com/7611/16795031606_0ba949c107_z.jpg)](https://farm8.staticflickr.com/7611/16795031606_0ba949c107_z.jpg)
+![](/images/jyhonefineday15.jpg)
 
 不同角度都能呈現帥氣的模樣
 
-[![](https://farm9.staticflickr.com/8652/16613608967_b620decc41_z.jpg)](https://farm9.staticflickr.com/8652/16613608967_b620decc41_z.jpg)
+![](/images/jyhonefineday16.jpg)
 
 容貌平和？但很令人心動喲
 
-[![](https://farm9.staticflickr.com/8718/16819831331_9a4bfa1cee_z.jpg)](https://farm9.staticflickr.com/8718/16819831331_9a4bfa1cee_z.jpg)
+![](/images/jyhonefineday17.jpg)
 
 要時刻提醒自己這是本寫真集，真的不容易！
 
-[![](https://farm9.staticflickr.com/8587/16633511540_b900ca7e72_z.jpg)](https://farm9.staticflickr.com/8587/16633511540_b900ca7e72_z.jpg)
+![](/images/jyhonefineday18.jpg)
 
 整本都是一個慘樣（心痛）
 
-[![](https://farm9.staticflickr.com/8750/16820895325_30c8dee2e5_z.jpg)](https://farm9.staticflickr.com/8750/16820895325_30c8dee2e5_z.jpg)
+![](/images/jyhonefineday19.jpg)
 
 落泊的小弟弟（摸頭）
 
-[![](https://farm8.staticflickr.com/7644/16613597297_1ccff74104_z.jpg)](https://farm8.staticflickr.com/7644/16613597297_1ccff74104_z.jpg)
+![](/images/jyhonefineday20.jpg)
 
 隔空感應到這失戀心酸的感覺（哭）  
 （上面兩張都拍得很好看）
 
-[![](https://farm8.staticflickr.com/7634/16820892125_ef01767c16_z.jpg)](https://farm8.staticflickr.com/7634/16820892125_ef01767c16_z.jpg)
+![](/images/jyhonefineday21.jpg)
 
 貫徹著迷離慘慘的風格（～close～）
 
   
 
-買的是album，當然歌是最重要的！
-
-（但容和的樣子也同樣重要，還有那個簽名...）
-
+買的是album，當然歌是最重要的！  
+（但容和的樣子也同樣重要，還有那個簽名...）  
 全碟10+1首歌均由他包辦作曲填詞  
 而只有2首並非是他編曲，好厲害的小伙子呢  
   
@@ -194,8 +172,7 @@ tags : [amusement - zene]
 「Hold me hold me please～」  
 是死拉住已分手伴侶的歌曲呢...  
   
-《마일리지》（Mileage）（with YDG）
-
+《마일리지》（Mileage）（with YDG）  
 （作曲：정용화(鄭容和)，填詞：정용화(鄭容和)/ YDG，編曲：정용화(鄭容和)/ 고진영）pop裡有rap，un un un的歌曲  
 每天很忙也要儲愛的Mileage  
 要在與容容朋友出去時使用喔  
@@ -242,7 +219,7 @@ tags : [amusement - zene]
 待在妳身邊令妳不會再感到孤單...  
 聽完這輕輕的曲，嘴角已不自覺向上揚了（sweet）  
   
-Goodnight Lover  
+《Goodnight Lover》  
 （作曲：정용화(鄭容和)，填詞：정용화(鄭容和)，編曲：정용화(鄭容和)/ 김재양）  
 輕快的曲調，心情也活躍起來  
 是時候去睡不要太晚睡  

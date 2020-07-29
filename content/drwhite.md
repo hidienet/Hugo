@@ -3,7 +3,7 @@ title: '[smile] DR. White - Ultra Magic Tooth Whitening System [Speedy formula]'
 date: 2014-07-07T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/07/smile-dr-white-ultra-magic-tooth.html" ]
-tags : [glamorous - 蛋臉以外, glamorous - 面膜魂]
+tags : [glamorous - 蛋臉以外, glamorous - 面膜魂, glamorous - 機電工程]
 ---
 
 極致的美白，豈能給黃黃的牙齒毀掉？  

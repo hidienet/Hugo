@@ -3,7 +3,7 @@ title: '包裝袋封口機'
 date: 2014-09-20T10:30:00.000+08:00
 draft: false
 aliases: [ "/2014/09/blog-post_20.html" ]
-tags : [lifestyle - 廚娘育成配件]
+tags : [lifestyle - 廚房play]
 ---
 
 一直都覺得這個東西很可愛  

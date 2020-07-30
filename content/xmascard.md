@@ -3,7 +3,7 @@ title: 'x''mas card'
 date: 2014-12-26T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/12/xmas-card.html" ]
-tags : [lifestyle - 過日晨]
+tags : [lifestyle - 生活與生存]
 ---
 
 在這個科技發達的時代...

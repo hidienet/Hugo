@@ -3,7 +3,7 @@ title: 'Kai Ice Cream Maker |【貝印】アイスクリームメーカー '
 date: 2017-08-20T11:30:00.000+08:00
 draft: false
 aliases: [ "/2017/08/kai-ice-cream-maker.html" ]
-tags : [lifestyle - 廚娘育成配件]
+tags : [lifestyle - 廚房play]
 ---
 
 好鍾意食雪糕嘛  

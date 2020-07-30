@@ -3,7 +3,7 @@ title: '농심 辛라면'
 date: 2015-01-25T23:00:00.000+08:00
 draft: false
 aliases: [ "/2015/01/blog-post_25.html" ]
-tags : [lifestyle - 過日晨]
+tags : [lifestyle - 生活與生存]
 ---
 
 宵夜，不健康  

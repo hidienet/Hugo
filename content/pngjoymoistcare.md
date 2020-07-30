@@ -3,7 +3,7 @@ title: 'P&G ジョイ コンパクト 食器用洗剤 モイストケア ロー�
 date: 2017-12-19T21:00:00.000+08:00
 draft: false
 aliases: [ "/2017/12/p.html" ]
-tags : [lifestyle - 廚娘育成配件, lifestyle - rosy rosy]
+tags : [lifestyle - 廚房play, lifestyle - rosy rosy]
 ---
 
 好想買panasonic部洗碗碟機呀  

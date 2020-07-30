@@ -3,7 +3,7 @@ title: '欅坂46 - 不協和音'
 date: 2018-09-27T15:18:00.000+08:00
 draft: false
 aliases: [ "/2018/09/46.html" ]
-tags : [amusement - zene, lifestyle - 過日晨]
+tags : [amusement - zene, lifestyle - 生活與生存]
 ---
 
 話說今日又到呢個blog嘅週年誌慶  

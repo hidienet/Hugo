@@ -3,7 +3,7 @@ title: '樂施會 - 謎玩社區遊戲創作室簡介會'
 date: 2018-05-25T22:18:00.000+08:00
 draft: false
 aliases: [ "/2018/05/blog-post_25.html" ]
-tags : [amusement - games, lifestyle - 過日晨]
+tags : [amusement - games, lifestyle - 生活與生存]
 ---
 
 作為唔識正確地運用腦袋嘅我  

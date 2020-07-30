@@ -3,7 +3,7 @@ title: '兌換星期五'
 date: 2019-09-27T13:00:00.000+08:00
 draft: false
 aliases: [ "/2019/09/blog-post_27.html" ]
-tags : [lifestyle - 過日晨]
+tags : [lifestyle - 生活與生存]
 ---
 
 今個周年誌慶撞正星期五  

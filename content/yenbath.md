@@ -3,7 +3,7 @@ title: 'バンダイ 泡入浴剤'
 date: 2015-02-25T21:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/blog-post_25.html" ]
-tags : [glamorous - 蛋臉以外, collections - 可愛い, lifestyle - 過日晨]
+tags : [glamorous - 蛋臉以外, collections - 可愛い, lifestyle - 生活與生存]
 ---
 
 財爺不會有甚麼好康  

@@ -3,7 +3,7 @@ title: 'newyork cheesecake @六月之星'
 date: 2015-06-02T00:27:00.000+08:00
 draft: false
 aliases: [ "/2015/06/newyork-cheesecake.html" ]
-tags : [flavor - say cheese, lifestyle - 過日晨]
+tags : [flavor - say cheese, lifestyle - 生活與生存]
 ---
 
 根據人以群分之解說  

@@ -3,7 +3,7 @@ title: '換機呀...'
 date: 2019-05-20T23:04:00.001+08:00
 draft: false
 aliases: [ "/2019/05/blog-post_82.html" ]
-tags : [lifestyle - 過日晨]
+tags : [lifestyle - 生活與生存]
 ---
 
 原先部電話仲差少少先到一歲生日快樂  

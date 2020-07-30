@@ -3,7 +3,7 @@ title: 'daiso 양은냄비16CM（韓國泡麵小金鍋）'
 date: 2014-11-19T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/daiso-16cm.html" ]
-tags : [lifestyle - 廚娘育成配件]
+tags : [lifestyle - 廚房play]
 ---
 
 港劇回家必答題：「你餓唔餓，我煮個麵你食？」  

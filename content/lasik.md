@@ -3,7 +3,7 @@ title: 'bye bye 四眼妹～'
 date: 2014-01-30T09:30:00.000+08:00
 draft: false
 aliases: [ "/2014/01/bye-bye.html" ]
-tags : [lifestyle - 過日晨]
+tags : [lifestyle - 生活與生存]
 ---
 
 那個四眼妹就是我自己   

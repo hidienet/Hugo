@@ -3,7 +3,7 @@ title: '[chocolate] chocolate x megahouse deco choco pot'
 date: 2014-02-14T15:00:00.000+08:00
 draft: false
 aliases: [ "/2014/02/chocolate-chocolate-x-megahouse-deco.html" ]
-tags : [lifestyle - 廚娘育成配件, made by H - 開伙]
+tags : [lifestyle - 廚房play, made by H - 開伙]
 ---
 
 朱古力朱古力朱古力  

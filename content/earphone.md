@@ -3,7 +3,7 @@ title: '耳筒依賴症'
 date: 2015-02-22T17:00:00.000+08:00
 draft: false
 aliases: [ "/2015/02/blog-post_22.html" ]
-tags : [lifestyle - zakka, lifestyle - 過日晨]
+tags : [lifestyle - zakka, lifestyle - 生活與生存]
 ---
 
 為求與現實世界隔絕  

@@ -3,7 +3,7 @@ title: '粉紅絲帶'
 date: 2014-10-18T15:02:00.001+08:00
 draft: false
 aliases: [ "/2014/10/blog-post_18.html" ]
-tags : [lifestyle - 過日晨]
+tags : [lifestyle - 生活與生存]
 ---
 
 身為女性，就要記住這條絲帶的意義  

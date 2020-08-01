@@ -1,5 +1,5 @@
 ---
-title: '[大阪，美味しいね～] Day3：ぐでたまかふぇ | gudetama café'
+title: '[大阪，美味しいね～] Day3：ぐでたまかふぇ | gudetama café OSAKA'
 date: 2020-08-07T07:30:00.000+08:00
 draft: false
 images: ["/images/osaka3h.jpg"]
@@ -14,7 +14,11 @@ tags : [travel-日本-奈良大阪, flavor - 螞蟻族, flavor - 飲！]
 反正冇街要行冇嘢需要買  
 搵個地方坐下都好吖～  
 
-![](/images/osaka3h.jpg)
+![](/images/osaka3h1.jpg)
+
+**ぐでたまかふぇ | gudetama café OSAKA**
+
+![](/images/osaka3h2.jpg)
 
 
   

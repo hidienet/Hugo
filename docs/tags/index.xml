@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Sat, 01 Aug 2020 14:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Sat, 01 Aug 2020 16:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>amusement - exhibition</title>
+      <link>https://hidie.net/tags/amusement-exhibition/</link>
+      <pubDate>Sat, 01 Aug 2020 16:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/amusement-exhibition/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 行膳積腹</title>
@@ -108,15 +117,6 @@
       <pubDate>Mon, 13 Jul 2020 18:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/amusement-films/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>amusement - exhibition</title>
-      <link>https://hidie.net/tags/amusement-exhibition/</link>
-      <pubDate>Thu, 09 Jul 2020 07:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/amusement-exhibition/</guid>
       <description></description>
     </item>
     

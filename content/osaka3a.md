@@ -8,18 +8,18 @@ tags : [travel-日本-奈良大阪]
 
 之前响大丸心斎橋店買  
 今日就一早拎嚟用  
-（今日先買嘅話大丸未開嘛）
+（今日先買嘅話大丸未開嘛）  
 
 ![](/images/osaka3a.jpg) 
 
 **OSAKA 1day pass**  
 一句講晒：1日內任搭大阪metro  
-（仲有啲入場優惠啦）
+（仲有啲入場優惠啦）  
 
 ![](/images/osaka3a1.jpg)
 
 本身為咗今晚隻牛而買呢個pass嘅  
-既然買咗pass咪去多個地方囉
+既然買咗pass咪去多個地方囉  
 
 ![](/images/osaka3a2.jpg)
 

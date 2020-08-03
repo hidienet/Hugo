@@ -1,5 +1,5 @@
 ---
-title: 'byebye火車模型～'
+title: '火車模型～'
 date: 2020-08-03T18:30:00.000+08:00
 draft: false
 images: ["/images/trainmodel.jpg"]

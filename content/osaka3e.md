@@ -6,7 +6,7 @@ images: ["/images/osaka3e.jpg"]
 tags : [travel-日本-奈良大阪]
 ---
 
-大雨又大霧，莫講話[通天閣](https://hidie.net/osaka3c/)啦
+大雨又大霧，莫講話[通天閣](https://hidie.net/osaka3c/)啦  
 
 ![](/images/osaka3e.jpg)
 

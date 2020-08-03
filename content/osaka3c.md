@@ -6,7 +6,7 @@ images: ["/images/osaka3c.jpg"]
 tags : [travel-日本-奈良大阪]
 ---
 
-食完串カツ就响通天閣前進
+食完[串カツ](https://hidie.net/osaka3b/)就响通天閣前進
 
 ![](/images/osaka3c.jpg)
 

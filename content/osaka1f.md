@@ -11,7 +11,7 @@ tags : [travel-日本-奈良大阪, flavor - 螞蟻族]
 
 ![](/images/osaka1f1.jpg)
 
-**チーズタルトかき氷** @**PABLO** 
+**チーズタルトかき氷** @**PABLO**  
 PABLO係食cheese tart嘅  
 而家咁熱梗係食刨冰啦  
 响撈埋嚟做瀨尿牛丸丫笨嘅情況下  
@@ -23,6 +23,6 @@ PABLO係食cheese tart嘅
 加埋平時cheese tart上面嘅杏jam  
 
 夠消暑唔錯唔錯  
-個tart味幾好，搵日再試吓個佢嘅真身先！  
+個tart味幾好，[搵日](https://hidie.net/osaka2h/)再試吓個佢嘅真身先！  
 
 {{<osaka>}}

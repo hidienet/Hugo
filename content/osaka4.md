@@ -46,7 +46,7 @@ tags : [travel-日本-奈良大阪]
 所以揀咗**梅ととろろご飯** @**Goryo**  
 味道唔錯，感覺食完腸胃同皮膚都好啲  
   
-[![](/images/kix0.jpg)
+![](/images/kix0.jpg)
 
 慢慢嘆完急急腳check-in  
 點知班機要delay  

@@ -1,7 +1,7 @@
 ---
 title: '[board game] Machi Koro | 街コロ'
 date: 2020-08-09T16:30:00.000+08:00
-draft: false
+draft: 
 images: ["/images/machikoro.jpg"]
 tags : [amusement - games]
 ---

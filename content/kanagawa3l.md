@@ -12,7 +12,7 @@ tags : [flavor - 螞蟻族, travel-日本-神奈川]
 
 **グリコ アイスの実**  
 今次係期間限定嘅**メロン**蜜瓜味   
-（[みかん](https://hidie.net/kojkmi4d/) | [白いカフェオレ](https://hidie.net/kojkmi5g/) | [マンごー](https://hidie.net/osaka3/) | [ぶどう&もも](https://hidie.net/hokkaido5/) 隻隻都好食）
+（[みかん](https://hidie.net/kojkmi4d/) | [白いカフェオレ](https://hidie.net/kojkmi5g/) | [マンごー](https://hidie.net/osaka3k/) | [ぶどう&もも](https://hidie.net/hokkaido5/) 隻隻都好食）
 
 ![](/images/kanagawa3l.jpg)
 

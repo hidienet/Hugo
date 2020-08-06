@@ -7,11 +7,11 @@ tags : [travel-日本-奈良大阪]
 ---
 
 又係執嘢走人嘅時候喇 TT  
-執執整整前要食生果（今朝係大大個**もも**）  
+執執整整前要食生果（今朝係大大個[もも](https://hidie.net/osaka4a/)）  
 
-[![](https://c1.staticflickr.com/5/4379/36605397932_0b1fe46953_z.jpg)](https://c1.staticflickr.com/5/4379/36605397932_0b1fe46953_z.jpg)
+![](/images/osaka4b.jpg)
 
-搞掂就行出去食鋪勁嘅 @**Eggs n' Things**  
+搞掂就行出去食鋪勁嘅 @[Eggs n' Things](https://hidie.net/osaka4b/)  
 （**パンケーキ ストロベリー ホイップクリームとマカダミアナッツ**）  
 好高好大但啲cream一啲都唔heavy  
 但係話食唔飽就呃你嘅  

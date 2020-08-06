@@ -42,7 +42,7 @@ R腳趾都冇人睇到啦呵呵呵
 **牧場サラダ**  
 呢兜先係沙律
 
-![](/images/osaka3i8.jpg)
+![](/images/osaka3i24.jpg)
 
 salad裡面都有牛牛粒呢！
 
@@ -63,79 +63,82 @@ salad裡面都有牛牛粒呢！
 
 ![](/images/osaka3i12.jpg)
 
-**神戸牛特撰**  
-
+**神戸牛特撰ヒウチ**  
 
 ![](/images/osaka3i13.jpg)
 
-
+啲雪花狀脂肪啊啊啊
 
 ![](/images/osaka3i14.jpg)
 
-
+差唔多食得喇
 
 ![](/images/osaka3i15.jpg)
 
-
+（前）**神戸牛上赤身**  
+（後）**ホルモン - ミノ | こてっちゃん(小腸)**  
 
 ![](/images/osaka3i16.jpg)
 
-
+燒吓...
 
 ![](/images/osaka3i17.jpg)
 
-
+...又翻一翻～
 
 ![](/images/osaka3i18.jpg)
 
-
+**焼き野菜**  
+かぼちゃ（南瓜）、淡路島産たまねぎ（洋蔥）、  
+とうもろこし（粟米）、なす（矮瓜）同エリンギ（菇）
 
 ![](/images/osaka3i19.jpg)
 
-
+**ねぎ巻カルビ | 神戸牛カルビ**
 
 ![](/images/osaka3i20.jpg)
 
-
+燒呀燒
 
 ![](/images/osaka3i21.jpg)
 
-
+塊ribs靚到吖...（兜緊啲口水）
 
 ![](/images/osaka3i22.jpg)
 
-
+卷住蔥嘅
 
 ![](/images/osaka3i23.jpg)
 
-
-
-![](/images/osaka3i24.jpg)
-
-
+求神拜佛啲蔥要熟啲（怕食辣生蔥）
 
 ![](/images/osaka3i25.jpg)
 
-
+飽得滯，變成「墊汁用」嘅飯  
+不過啲飯好香軟，有食嘅...
 
 ![](/images/osaka3i26.jpg)
 
-
+一！大！兜！牛肉味噌湯！
 
 ![](/images/osaka3i27.jpg)
 
-
+**デザート - ゆずシャーベット**  
+精神爽口嘅柚子  
+食完肥漏漏嘅牛肉搵佢解吓都唔錯
 
 ![](/images/osaka3i28.jpg)
 
-
+驗明正身嘅牌
 
 ![](/images/osaka3i29.jpg)
 
-
-
-
-
-
+臨走店家畀嘅香口膠  
+不過陣牛味依然久久不散呢哈哈哈  
+  
+  
+  
+  
+超～ 滿～ 足～（嗝）  
   
 {{<osaka>}}

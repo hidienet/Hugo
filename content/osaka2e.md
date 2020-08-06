@@ -3,7 +3,7 @@ title: '[大阪，美味しいね～] Day2：鳥吾郎'
 date: 2020-07-31T18:30:00.000+08:00
 draft: false
 images: ["/images/osaka2e.jpg"]
-tags : [travel-日本-奈良大阪, flavor - 行膳積腹]
+tags : [travel-日本-奈良大阪, flavor - 小食部]
 ---
 
 食完再再再走出apartment  

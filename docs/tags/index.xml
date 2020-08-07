@@ -7,10 +7,28 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Fri, 07 Aug 2020 07:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Fri, 07 Aug 2020 14:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>amusement - exhibition</title>
+      <link>https://hidie.net/tags/amusement-exhibition/</link>
+      <pubDate>Fri, 07 Aug 2020 14:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/amusement-exhibition/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>travel-日本-奈良大阪</title>
+      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</link>
+      <pubDate>Fri, 07 Aug 2020 14:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 螞蟻族</title>
@@ -27,15 +45,6 @@
       <pubDate>Fri, 07 Aug 2020 07:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E9%A3%B2/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>travel-日本-奈良大阪</title>
-      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</link>
-      <pubDate>Fri, 07 Aug 2020 07:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</guid>
       <description></description>
     </item>
     
@@ -63,15 +72,6 @@
       <pubDate>Mon, 03 Aug 2020 18:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/collections-%E5%8F%AF%E6%84%9B%E3%81%84/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>amusement - exhibition</title>
-      <link>https://hidie.net/tags/amusement-exhibition/</link>
-      <pubDate>Sat, 01 Aug 2020 16:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/amusement-exhibition/</guid>
       <description></description>
     </item>
     

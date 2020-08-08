@@ -19,7 +19,7 @@ tags : [lifestyle - 逃離852, travel-日本-奈良大阪]
   
 响難波南海電鉄落車就拖喼去apartment  
 
-![](/images/osaka1a.jpg)
+![](/images/osaka1a0.jpg)
 
 正呀今次，住响[黒門市場](https://hidie.net/osaka1a/)上蓋  
 冇咩嘅係超～ 方～ 便～ 囉～～～  

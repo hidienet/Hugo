@@ -8,7 +8,7 @@ tags : [travel-日本-奈良大阪]
 
 响難波南海電鉄落車就拖喼去apartment
 
-![](/images/osaka1a.jpg)
+![](/images/osaka1a0.jpg)
 
 正呀今次，住响黒門市場上蓋
 

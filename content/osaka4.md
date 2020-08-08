@@ -18,29 +18,29 @@ tags : [travel-日本-奈良大阪]
   
   
 
-[![](https://c1.staticflickr.com/5/4338/36378732250_df3a8bb815_z.jpg)](https://c1.staticflickr.com/5/4338/36378732250_df3a8bb815_z.jpg)
+![](/images/osaka4z.jpg)
 
 然後又兜兜吓～（唔駛跑嘅慢慢行都得）  
 
-[![](https://c1.staticflickr.com/5/4367/36933861032_85d7bfdc9f_z.jpg)](https://c1.staticflickr.com/5/4367/36933861032_85d7bfdc9f_z.jpg)
+![](/images/osaka4c1.jpg)
 
-臨上車前响難波食多轉居酒屋先 @**鶏家 六角鶏**  
+臨上車前响難波食多轉居酒屋先 @[鶏家 六角鶏](https://hidie.net/osaka4c/)  
 串串串鶏鶏鶏酒酒酒啦啦啦  
   
 南海電鉄：難波 → **関西空港**  
   
   
 
-[![](https://c1.staticflickr.com/5/4377/35941114844_2a984ddd8d_z.jpg)](https://c1.staticflickr.com/5/4377/35941114844_2a984ddd8d_z.jpg)
+![](/images/osaka4d.jpg)
 
-搭車期間食啲**番茄仔**先  
+搭車期間食啲[番茄仔](https://hidie.net/osaka4d/)先  
 又香又甜又juicy，正！  
-早少少去関西空港睇吓有咩買  
+早少少去[関西空港](https://hidie.net/osaka4e/)睇吓有咩買  
 點知都係冇咩啱買  
 （最後買咗一件同事式手信咁大把，响市區揀極都揀唔落手）  
 咁又去食嘢啦，唔好徙時間嘛...  
 
-[![](https://c1.staticflickr.com/5/4359/35941115614_a1efc5b385_z.jpg)](https://c1.staticflickr.com/5/4359/35941115614_a1efc5b385_z.jpg)
+![](/images/osaka4f.jpg)
 
 想食light啲嘅日食  
 所以揀咗**梅ととろろご飯** @**Goryo**  

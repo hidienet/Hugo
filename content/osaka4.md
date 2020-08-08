@@ -43,7 +43,7 @@ tags : [travel-日本-奈良大阪]
 ![](/images/osaka4f.jpg)
 
 想食light啲嘅日食  
-所以揀咗**梅ととろろご飯** @**Goryo**  
+所以揀咗**梅ととろろご飯** @[Goryo](http://hidie.net/osaka4f/)  
 味道唔錯，感覺食完腸胃同皮膚都好啲  
   
 ![](/images/kix0.jpg)

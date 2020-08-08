@@ -9,9 +9,8 @@ tags : [travel-日本-奈良大阪]
 緣份來到，就會猛咁食嘢  
 完全係佛系到爆嘅暴風吸食旅程
 
-[関西国際空港にゲーム体験スペース『Nintendo Check In』](https://hidie.net/kix/)  
-
 ### Day1：[奈良（興福寺五重塔、猿沢池）](https://hidie.net/nara1/)  
+[関西国際空港にゲーム体験スペース『Nintendo Check In』](https://hidie.net/kix/)  
 [志津香](https://hidie.net/nara1a/)  
 [興福寺](https://hidie.net/nara1b/)  
 [なら泉勇斎](https://hidie.net/nara1c/)  

@@ -1,8 +1,8 @@
 ---
-title: '[大阪，美味しいね～] Day4：Eggs n' Things'
-date: 2020-08-09T08:30:00.000+08:00
+title: '[大阪，美味しいね～] Day4：Eggs ’n Things（エッグスンシングス）'
+date: 2020-08-09T14:30:00.000+08:00
 draft: false
-images: ["/images/osaka4a.jpg"]
+images: ["/images/osaka4.jpg"]
 tags : [travel-日本-奈良大阪, flavor - 行膳積腹, flavor - 螞蟻族]
 ---
  
@@ -10,7 +10,7 @@ tags : [travel-日本-奈良大阪, flavor - 行膳積腹, flavor - 螞蟻族]
 
 ![](/images/osaka4b1.jpg)
 
-直奔去**アメリカ村**嚟到**Eggs n' Things**
+直奔去**アメリカ村**嚟到**Eggs 'n Things**
 
 ![](/images/osaka4b2.jpg)
 

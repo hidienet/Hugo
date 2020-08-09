@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Sat, 08 Aug 2020 14:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Sun, 09 Aug 2020 08:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>travel-日本-奈良大阪</title>
+      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</link>
+      <pubDate>Sun, 09 Aug 2020 08:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 螞蟻族</title>
@@ -18,15 +27,6 @@
       <pubDate>Sat, 08 Aug 2020 14:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>travel-日本-奈良大阪</title>
-      <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</link>
-      <pubDate>Sat, 08 Aug 2020 14:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</guid>
       <description></description>
     </item>
     

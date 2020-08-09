@@ -9,16 +9,16 @@ tags : [travel-泰國-曼谷]
 星期日，一早起身梗係去翟道翟啦～  
 出發前都食少少嘢先  
 
-![](https://c1.staticflickr.com/5/4416/36266917720_f027633cb3_z.jpg)
+![](/images/bangkok2a.jpg)
 
-响上BTS之前個站頭嘅車仔檔買嘅**豬肉丸串**  
+响上BTS之前個站頭嘅車仔檔買嘅[豬肉丸串](https://hidie.net/bangkok2a/)  
 OK啦都算有豬肉味  
 介乎扎肉嘅彈牙度  
 加埋泰式甜辣醬，好味  
 
-![](https://c1.staticflickr.com/5/4342/36524398691_bce4867140_z.jpg)
+![](/images/bangkok2b.jpg)
 
-响超市買埋枝**皇室牛奶**飲  
+响超市買埋枝[皇室牛奶](https://hidie.net/bangkok2b/)飲  
 嗱～ 咪以為泰國皇室只係出牛奶片同蜂蜜先得㗎  
 人哋出好多嘢㗎其實  
 好似呢隻牛奶咁  
@@ -29,14 +29,12 @@ OK啦都算有豬肉味
 結果就係甜到hihi  
 不過都俾我隊晒，飽飽  
   
-BTS：พญาไท (Phaya Thai) → **หมอชิต (Mo Chit)**  
-  
+BTS：พญาไท (Phaya Thai) → **หมอชิต (Mo Chit)**    
 \* 响หมอชิต (Mo Chit)落車穿公園行就會過少啲行車線  
   
+![](/images/bangkok2c.jpg)
 
-![](https://c1.staticflickr.com/5/4344/36493823152_bd9d074406_z.jpg)
-
-**จตุจักร (Jatujak)**  
+[จตุจักร (Jatujak)](https://hidie.net/bangkok2c/)  
 呃，早少少係少啲人  
 不過有啲舖未開  
 晏啲啲舖開就好多人同好熱  
@@ -51,9 +49,7 @@ BTS：พญาไท (Phaya Thai) → **หมอชิต (Mo Chit)**
 我係勁過個GPS！！！  
 可能呢啲就係女人為咗買嘢而爆出嚟嘅小宇宙啩，哈哈哈～  
   
-  
-
-![](https://c1.staticflickr.com/5/4344/35828366114_53f74bb7c9_z.jpg)
+![](/images/bangkok2c1.jpg)
 
 咁鬼熱當然唔會唔飲飲食食  
 一嚟就飲枝**熱情果汁**  
@@ -63,7 +59,7 @@ BTS：พญาไท (Phaya Thai) → **หมอชิต (Mo Chit)**
 但係晏啲行過其他檔見到啲價格有啲浮動  
 ... 見到啱就買啦  
 
-![](https://c1.staticflickr.com/5/4413/36493822712_fc788da33c_z.jpg)
+![](/images/bangkok2c2.jpg)
 
 行到攰坐低食晏  
 求其搵間啦其實無預好好食  
@@ -72,18 +68,18 @@ BTS：พญาไท (Phaya Thai) → **หมอชิต (Mo Chit)**
 麻麻地咋真係  
 九龍城嘅好食好多  
 
-![](https://c1.staticflickr.com/5/4370/36493823532_a60c9c4550_z.jpg)
+![](/images/bangkok2c4.jpg)
 
 熱到hihi梗係食雪糕  
 嚟翟道翟食雪糕又梗係會食**ไอศกรีมบ้านแพ้ว (Cocojj)**  
 可以揀三種topping嘅椰子雪糕  
 好椰子好消暑好好味  
 
-![](https://c1.staticflickr.com/5/4331/36267207340_31c6a83730_z.jpg)
+![](/images/bangkok2c5.jpg)
 
 杯**椰水**先解渴呀老細！  
 
-![](https://c1.staticflickr.com/5/4426/36267206780_65bf0a75c3_z.jpg)
+![](/images/bangkok2c6.jpg)
 
 悶熱嘅天氣真係好難頂  
 行到終於頂唔順要走  
@@ -96,15 +92,15 @@ BTS：หมอชิต (Mo Chit) → **พญาไท (Phaya Thai)**
 返酒店開行冷氣瞓覺，Zzz...  
   
 瞓醒就慢慢行～ 去～ เซ็นทรัลเวิลด์ (CentralWorld) 嗰邊  
-但係响The Platinum Fashion Mall前做緊food fair  
+但係响The Platinum Fashion Mall前做緊[food fair](https://hidie.net/bangkok2e/)  
 無理由唔買嘢食㗎？  
 
-![](https://c1.staticflickr.com/5/4426/35854180453_b5076e2eae_z.jpg)
+![](/images/bangkok2e.jpg)
 
 先食呢隻好好味嘅**ไส้กรอกอีสาน (Sai Krok Isan)**  
 炸酸腸真係幾時都咁好食  
 
-![](https://c1.staticflickr.com/5/4409/35828632834_07e16336ab_z.jpg)
+![](/images/bangkok2e2.jpg)
 
 同埋"又"食**豬肉丸串**喇  
 今次有埋**牛丸**嘅  
@@ -112,9 +108,9 @@ BTS：หมอชิต (Mo Chit) → **พญาไท (Phaya Thai)**
 但同時又唔會搇咗陣牛同豬嘅味  
 唔同嘅唔同嘅...  
 
-![](https://c1.staticflickr.com/5/4349/36267646970_7675982ecd_z.jpg)
+![](/images/bangkok2f.jpg.jpg)
 
-**ร้านแหลมเจริญ ซีฟู๊ด สาขา เซ็นทรัลเวิลด์ (Laem Charoen Seafood)**  
+[ร้านแหลมเจริญ ซีฟู๊ด สาขา เซ็นทรัลเวิลด์ (Laem Charoen Seafood)](https://hidie.net/bangkok2f/)  
 終於去到**เซ็นทรัลเวิลด์ (CentralWorld)**  
 原本完全無idea㗎  
 但係見人等我又等吓囉  
@@ -124,10 +120,10 @@ BTS：หมอชิต (Mo Chit) → **พญาไท (Phaya Thai)**
 之後先發現原來嚟之前已經shotlist咗呢間嘢 XD  
 係咪都會嚟食咁樣，哈哈  
 
-![](https://c1.staticflickr.com/5/4399/36267727430_6f20bcf38c_z.jpg)
+![](/images/bangkok2g.jpg)
 
 食完晚飯（走飯）再去食甜品  
-**After You**嘅芒果時令限定：  
+[After You](https://hidie.net/bangkok2g/)嘅芒果時令限定：  
 **MANGO STICKY RICE KAKIGŌRI**  
 貴就貴咗啲但係真係好好食  
 當造嘅芒果真係無敵！  

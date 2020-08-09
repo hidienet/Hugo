@@ -8,7 +8,7 @@ tags : [travel-泰國-曼谷]
 
 咁鬼熱，搵個就算唔係只係買嘢都可以留一日嘅商場先～  
 
-![](https://c1.staticflickr.com/5/4426/36663911455_574ed2ba1b_z.jpg)
+![](/images/bangkok3a0.jpg)
 
 酒店有免費篤篤車去BTS站  
 連幾分鐘腳骨力都慳番  
@@ -17,7 +17,7 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
   
   
 
-![](https://c1.staticflickr.com/5/4408/35854665743_09b3af4b6f_z.jpg)
+![](/images/bangkok3a.jpg)
 
 **เทอร์มินอล 21 อโศก (Terminal 21)**  
 以機場做主題  
@@ -37,14 +37,14 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
 就好自然無做任何資料搜集  
 見到乜睇啱乜就食乜啦咁  
 
-![](https://c1.staticflickr.com/5/4408/36525752461_bdcb4626b4_z.jpg)
+![](images/bangkok3b.jpg)
 
 **ร้านส้มตำหมื่นล้าน (MEAUN-LAN)**  
 求其入㗎咋  
 點知啲嘢咁鬼好食㗎啫  
 呵呵呵呵呵呵呵～  
 
-![](https://c1.staticflickr.com/5/4431/35855024683_476b8df76a_z.jpg)
+![](images/bangkok3c.jpg)
 
 食完行陣又食過  
 小食時間就試**ชาตรามือ (ChaTraMue)** 嘅**奶茶雪糕**  
@@ -55,20 +55,20 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
 嗱～ 呢隻雪糕好濃滑好香同好好食  
 唔食係堅走寶嗰隻，就咁。  
 
-![](https://c1.staticflickr.com/5/4383/36617972276_b21807d812_z.jpg)
+![](images/bangkok3d.jpg)
 
 然後又行吓行吓咁...  
 再坐低食個tea @**C・O・D・E**  
 芒果當造嗰陣唔食芒果會被雷劈㗎！  
 
-![](https://c1.staticflickr.com/5/4422/36664699535_f6e9c49c48_z.jpg)
+![](images/bangkok3e.jpg)
 
 又再行啦，咁做人呢家嘢真係會攰㗎嘛  
 今鑊唔係食嘢喇，去！揼！骨！  
 商場頂層係**Let's Relax Spa**  
 乾淨服務好又唔貴，爽呀～  
 
-![](https://c1.staticflickr.com/5/4394/36268837800_4a4805ca32_z.jpg)
+![](images/bangkok3f.jpg)
 
 咁揼完骨個人放鬆晒就會有餓意嘅（咦？）  
 唯有食晚飯啦哈哈哈  

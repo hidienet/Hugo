@@ -37,7 +37,7 @@ tags : [travel-日本-奈良大阪]
 又香又甜又juicy，正！  
 早少少去[関西空港](https://hidie.net/osaka4e/)睇吓有咩買  
 點知都係冇咩啱買  
-（最後買咗一件同事式手信咁大把，响市區揀極都揀唔落手）  
+（最後買咗一件[同事式手信](https://hidie.net/tsujiriyatsuhashi/)咁大把，响市區揀極都揀唔落手）  
 咁又去食嘢啦，唔好徙時間嘛...  
 
 ![](/images/osaka4f.jpg)

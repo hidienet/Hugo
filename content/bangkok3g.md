@@ -1,6 +1,6 @@
 ---
 title: '[趁熱食，曼谷！] Day3：Terminal 21 買物篇'
-date: 2020-08-17T08:30:00.000+08:00
+date: 2020-08-17T14:30:00.000+08:00
 draft: false
 images: ["/images/bangkok3g.jpg"]
 tags : [travel-泰國-曼谷]

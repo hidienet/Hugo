@@ -3,7 +3,7 @@ title: '[趁熱食，曼谷！] Day3：Moom Muum Park'
 date: 2020-08-17T08:30:00.000+08:00
 draft: false
 images: ["/images/bangkok3f.jpg"]
-tags : [travel-泰國-曼谷]
+tags : [travel-泰國-曼谷, flavor - 行膳積腹]
 ---
    
 咁[揼完骨](https://hidie.net/bangkok3e/)個人放鬆晒就會有餓意嘅（咦？）  

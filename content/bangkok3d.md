@@ -1,6 +1,6 @@
 ---
 title: '[趁熱食，曼谷！] Day3：C・O・D・E - Summer Mango Roti Sizzling'
-date: 2020-08-16T07:30:00.000+08:00
+date: 2020-08-16T14:30:00.000+08:00
 draft: false
 images: ["/images/bangkok3d.jpg"]
 tags : [travel-泰國-曼谷, flavor - 螞蟻族]

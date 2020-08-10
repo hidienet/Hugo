@@ -19,7 +19,7 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
 
 ![](/images/bangkok3a.jpg)
 
-**เทอร์มินอล 21 อโศก (Terminal 21)**  
+[เทอร์มินอล 21 อโศก (Terminal 21)](https://hidie.net/bangkok3a/)  
 以機場做主題  
 唔同樓層就唔同城市  
 個裝飾係幾靚嘅  
@@ -39,7 +39,7 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
 
 ![](images/bangkok3b.jpg)
 
-**ร้านส้มตำหมื่นล้าน (MEAUN-LAN)**  
+[ร้านส้มตำหมื่นล้าน (MEAUN-LAN)](https://hidie.net/bangkok3b/)  
 求其入㗎咋  
 點知啲嘢咁鬼好食㗎啫  
 呵呵呵呵呵呵呵～  
@@ -47,7 +47,7 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
 ![](images/bangkok3c.jpg)
 
 食完行陣又食過  
-小食時間就試**ชาตรามือ (ChaTraMue)** 嘅**奶茶雪糕**  
+小食時間就試[ชาตรามือ (ChaTraMue)](https://hidie.net/bangkok3c/) 嘅**奶茶雪糕**  
 老老竇竇泰式嘢飲真係好甜  
 呢隻奶茶係滑嘅不過都離唔開好甜同好L甜之間  
 而雪糕就凍啲嘛所以就算糖嘅份量係一樣  
@@ -58,21 +58,21 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
 ![](images/bangkok3d.jpg)
 
 然後又行吓行吓咁...  
-再坐低食個tea @**C・O・D・E**  
+再坐低食個tea @[C・O・D・E](https://hidie.net/bangkok3d/)  
 芒果當造嗰陣唔食芒果會被雷劈㗎！  
 
 ![](images/bangkok3e.jpg)
 
 又再行啦，咁做人呢家嘢真係會攰㗎嘛  
 今鑊唔係食嘢喇，去！揼！骨！  
-商場頂層係**Let's Relax Spa**  
+商場頂層係[Let's Relax Spa](https://hidie.net/bangkok3e/)  
 乾淨服務好又唔貴，爽呀～  
 
 ![](images/bangkok3f.jpg)
 
 咁揼完骨個人放鬆晒就會有餓意嘅（咦？）  
 唯有食晚飯啦哈哈哈  
-間嘢叫**Moom Muum Park**  
+間嘢叫[Moom Muum Park](https://hidie.net/bangkok3f/)  
 唔算平但係好高質素囉  
 份量又唔細喎食到肚脹脹  
   

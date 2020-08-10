@@ -7,7 +7,7 @@ tags : [travel-泰國-曼谷]
 ---
 
 瞓飽先醒有啲餓  
-唯有出門前啪返幾粒新鮮車厘茄  
+唯有出門前啪返幾粒新鮮[車厘茄](https://hidie.net/bangkok4a/)  
 然後就出發，去食嘢～
 
   
@@ -16,17 +16,15 @@ BTS：พญาไท (Phaya Thai) → **อนุสาวรีย์ชัย
 
   
 
-![](https://c1.staticflickr.com/5/4405/36496420552_ef7a3661f9_z.jpg)
+![](/images/bangkok4a0.jpg)
 
-出咗BTS一直响天橋圍住嚟行
-
+出咗BTS一直响天橋圍住嚟行  
 直至見到條河先好落橋  
 千祈千祈唔好patpat痕一早落呀！
 
-![](https://c1.staticflickr.com/5/4401/36666419065_05a20877c4_z.jpg)
+![](/images/bangkok4b.jpg)
 
-**ร้านสุดยอดก๋วยเตี๋ยวเรือป๋ายักษ์ (The Bestof Noodle Boat)**
-
+[ร้านสุดยอดก๋วยเตี๋ยวเรือป๋ายักษ์ (The Bestof Noodle Boat)](https://hidie.net/bangkok4b/)  
 （↑ 個英文照牌匾抄㗎啫）  
 早咗少少得兩三枱食緊  
 係就係唔駛迫  
@@ -36,7 +34,7 @@ BTS：พญาไท (Phaya Thai) → **อนุสาวรีย์ชัย
 **船麵 (河)** 好好食，絕對唔可以錯過  
 特登嚟都係咁話！
 
-![](https://c1.staticflickr.com/5/4432/35856903273_d88bfec309_z.jpg)
+![](/images/bangkok4a3.jpg)
 
 （**อนุสาวรีย์ชัยสมรภูมิ 勝利紀念碑**）  
 呢度冇嘢睇冇嘢買得個碑  

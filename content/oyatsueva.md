@@ -1,6 +1,6 @@
 ---
 title: 'ベビースタードデカイラーメン - 麺類補完計画'
-date: 2020-08-10T16:30:00.000+08:00
+date: 2020-08-12T16:30:00.000+08:00
 draft: false
 images: ["/images/oyatsueva.jpg"]
 tags : [flavor - 小食部]

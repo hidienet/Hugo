@@ -1,5 +1,5 @@
 ---
-title: '糖宮甜品專門店 Dessert Palace'
+title: '[糖水] 糖宮甜品專門店 Dessert Palace'
 date: 2020-05-03T21:47:00.000+08:00
 draft: false
 aliases: [ "/2020/05/dessert-palace.html" ]

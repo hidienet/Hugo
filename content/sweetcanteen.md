@@ -1,9 +1,9 @@
 ---
-title: '大飯糖甜品小食屋'
+title: '[糖水] 大飯糖甜品小食屋'
 date: 2020-05-01T19:56:00.001+08:00
 draft: false
 aliases: [ "/2020/05/blog-post.html" ]
-tags : [flavor - 行膳積腹, flavor - 螞蟻族]
+tags : [flavor - 螞蟻族]
 ---
 
 冬菇亭內cozy裝修嘅食店  

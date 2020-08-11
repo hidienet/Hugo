@@ -1,5 +1,5 @@
 ---
-title: '辻利 宇治抹茶の生八ッ橋'
+title: '[生菓子] 辻利 宇治抹茶の生八ッ橋'
 date: 2020-08-11T17:30:00.000+08:00
 draft: false
 images: ["/images/tsujiriyatsuhashi.jpg"]

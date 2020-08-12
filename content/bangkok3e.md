@@ -6,7 +6,7 @@ images: ["/images/bangkok3e.jpg"]
 tags : [travel-泰國-曼谷]
 ---
    
-行行重行行嘅行街version
+行行重行行嘅行街version  
 咁做人呢家嘢咁行法真係會攰㗎嘛...  
 
 ![](/images/bangkok3e.jpg)

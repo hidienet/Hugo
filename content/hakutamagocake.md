@@ -1,5 +1,5 @@
 ---
-title: '[菓子] 箱根 黒たまご饅頭'
+title: '[和菓子] 箱根 黒たまご饅頭'
 date: 2013-11-09T15:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/blog-post_3259.html" ]

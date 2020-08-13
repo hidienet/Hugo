@@ -1,5 +1,5 @@
 ---
-title: '[coffee] キリン - FIRE 燻製珈琲black'
+title: '[高馡] キリン - FIRE 燻製珈琲black'
 date: 2015-05-25T07:00:00.000+08:00
 draft: false
 aliases: [ "/2015/05/coffee-fire-black.html" ]

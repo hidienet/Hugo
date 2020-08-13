@@ -1,5 +1,5 @@
 ---
-title: '[coffee] AGF〈ブレンディ〉ボトルコーヒーソルティ微糖'
+title: '[高馡] AGF〈ブレンディ〉ボトルコーヒーソルティ微糖'
 date: 2015-07-27T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/07/coffee-agf.html" ]

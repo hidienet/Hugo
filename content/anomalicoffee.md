@@ -1,5 +1,5 @@
 ---
-title: '[coffee] Anomali Coffee - aceh gayo organic'
+title: '[高馡] Anomali Coffee - aceh gayo organic'
 date: 2013-10-02T09:00:00.000+08:00
 draft: false
 aliases: [ "/2013/10/coffee-anomali-coffee-aceh-gayo-organic.html" ]

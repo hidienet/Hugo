@@ -1,5 +1,5 @@
 ---
-title: 'lotte即沖杯湯 x3'
+title: '[soup] lotte即沖杯湯 x3'
 date: 2014-02-10T13:30:00.000+08:00
 draft: false
 aliases: [ "/2014/02/lotte-x3.html" ]

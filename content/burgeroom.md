@@ -3,7 +3,7 @@ title: '[burger] burgeroom - foie gras beef burger'
 date: 2013-10-11T20:00:00.000+08:00
 draft: false
 aliases: [ "/2013/10/burger-burgeroom-foie-gras-beef-burger.html" ]
-images: [/images/burgeroom.jpg]
+images: ["/images/burgeroom.jpg"]
 tags : [flavor - 行膳積腹]
 ---
 

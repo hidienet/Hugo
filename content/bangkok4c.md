@@ -1,5 +1,5 @@
 ---
-title: '[趁熱食，曼谷！] Day4：Thai新鮮車厘茄'
+title: '[趁熱食，曼谷！] Day4：สยามเซ็นเตอร์ (Siam Center)'
 date: 2020-08-19T08:30:00.000+08:00
 draft: false
 images: ["/images/bangkok4.jpg"]

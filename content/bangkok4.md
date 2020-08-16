@@ -44,9 +44,9 @@ BTS：พญาไท (Phaya Thai) → **อนุสาวรีย์ชัย
 
 BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monument) → **สยาม (Siam)**
 
-![](https://c1.staticflickr.com/5/4414/36666498195_3f221fcaf6_z.jpg)
+![](/images/bangkok4c.jpg)
 
-**สยามเซ็นเตอร์ (Siam Center)**  
+[สยามเซ็นเตอร์ (Siam Center)](https://hidie.net/bangkok4c/)  
 啲人話呢度好好行好好買啦  
 不過行街買嘢呢家嘢真係好個人  
 對我嚟講呢個商圈嘅舖頭  
@@ -54,7 +54,7 @@ BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monu
 就係啲貴得嚟識條鐵嘅design嘢  
 購物零意欲，去搵嘢食啦咁！
 
-![](https://c1.staticflickr.com/5/4378/36527996211_dfcaa63fee_z.jpg)
+![](/images/bangkok4d.jpg)
 
 **ส้มตำนัว (Som Tam Nua)**  
 去泰國就一定要食**ส้มตำ (青木瓜沙律)**  

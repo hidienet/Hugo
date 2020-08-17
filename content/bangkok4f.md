@@ -1,5 +1,5 @@
 ---
-title: '[趁熱食，曼谷！] Day4：'
+title: '[趁熱食，曼谷！] Day4：BIG C'
 date: 2020-08-20T08:30:00.000+08:00
 draft: false
 images: ["/images/bangkok4f.jpg"]

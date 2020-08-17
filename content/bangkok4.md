@@ -62,9 +62,9 @@ BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monu
 又唔想用腦諗揀邊間嘅話  
 就嚟呢度啦，完。  
 
-![](https://c1.staticflickr.com/5/4353/36270735830_e9fcec3495_z.jpg)
+![](/images/bangkok4e.jpg)
 
-再兜兩兜之後走去食甜品 @**Mango Tango**  
+再兜兩兜之後走去食甜品 @[Mango Tango](https://hidie.net/bangkok4e/)  
 係貴嘅，泰國物價嚟講就少少唔值  
 好食嘅不過唔一定要嚟呢間食  
 即係「可以嚟試但唔係必試」咁  
@@ -74,14 +74,14 @@ BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monu
 啱啱食飽嘢又未想坐低食嘢飲嘢  
 唔知做咩好連揼骨都無興趣  
 商場就唔想逛喇  
-好彩，呢個世界仲有**BIG C**  
+好彩，呢個世界仲有[BIG C](https://hidie.net/bangkok4f/)  
 唔食嘢啫，可以買嘢返香港食㗎嘛  
   
   
 
-![](https://c1.staticflickr.com/5/4428/36666965585_3936da1f3c_z.jpg)
+![](/images/bangkok4g.jpg)
 
-今晚好豪氣咁食泰國連續N年獲選最佳餐廳嘅**Nara**  
+今晚好豪氣咁食泰國連續N年獲選最佳餐廳嘅[Nara](https://hidie.net/bangkok4g/)  
 痴線㗎！間嘢啲嘢食真係超好食！  
 比平時啲係貴少少  
 話晒响Grand Haytt食個飯喎  

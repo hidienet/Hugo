@@ -2,7 +2,7 @@
 title: '[趁熱食，曼谷！] Day5：肉鬆糯米飯'
 date: 2020-08-22T13:30:00.000+08:00
 draft: false
-images: ["/images/bangkok5.jpg"]
+images: ["/images/bangkok5d.jpg"]
 tags : [travel-泰國-曼谷, flavor - 行膳積腹]
 ---
 

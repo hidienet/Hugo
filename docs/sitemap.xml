@@ -3,22 +3,32 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
+    <loc>https://hidie.net/superfruitdurian/</loc>
+    <lastmod>2020-08-18T19:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</loc>
+    <lastmod>2020-08-18T19:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/</loc>
+    <lastmod>2020-08-18T19:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/</loc>
+    <lastmod>2020-08-18T19:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/bangkok4b/</loc>
     <lastmod>2020-08-18T13:30:00+08:00</lastmod>
   </url>
   
   <url>
     <loc>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</loc>
-    <lastmod>2020-08-18T13:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/</loc>
-    <lastmod>2020-08-18T13:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/</loc>
     <lastmod>2020-08-18T13:30:00+08:00</lastmod>
   </url>
   
@@ -3979,11 +3989,6 @@
   
   <url>
     <loc>https://hidie.net/bonnemamanmarron/</loc>
-    <lastmod>2017-10-19T11:27:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</loc>
     <lastmod>2017-10-19T11:27:00+08:00</lastmod>
   </url>
   

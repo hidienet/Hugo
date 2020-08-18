@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 18 Aug 2020 13:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Tue, 18 Aug 2020 19:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>flavor - 揀飲宅食</title>
+      <link>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</link>
+      <pubDate>Tue, 18 Aug 2020 19:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 行膳積腹</title>
@@ -432,15 +441,6 @@
       <pubDate>Fri, 20 Oct 2017 20:50:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/collections-mini/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - 揀飲宅食</title>
-      <link>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</link>
-      <pubDate>Thu, 19 Oct 2017 11:27:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</guid>
       <description></description>
     </item>
     

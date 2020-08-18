@@ -56,7 +56,7 @@ BTS：อนุสาวรีย์ชัยสมรภูมิ (Victory Monu
 
 ![](/images/bangkok4d.jpg)
 
-**ส้มตำนัว (Som Tam Nua)**  
+[ส้มตำนัว (Som Tam Nua)](https://hidie.net/bangkok4d/)  
 去泰國就一定要食**ส้มตำ (青木瓜沙律)**  
 如果成個trip只可以食一次  
 又唔想用腦諗揀邊間嘅話  

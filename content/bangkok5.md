@@ -30,7 +30,7 @@ hea住去旅行就梗係瞓到自然醒㗎啦
 
 ![](/images/bangkok5c.jpg)
 
-係喎仲未食[ข้าวขาหมู (滷豬手飯)](https://hidie.net/bangkok5c/)  
+係喎仲未食[ข้าวขาหมู (滷豬腳飯)](https://hidie.net/bangkok5c/)  
 見到仲唔拿拿臨食咩  
 仲有**脆豬肉飯**，一箭雙鵰yeah  
 

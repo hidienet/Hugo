@@ -37,14 +37,14 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
 就好自然無做任何資料搜集  
 見到乜睇啱乜就食乜啦咁  
 
-![](images/bangkok3b.jpg)
+![](/images/bangkok3b.jpg)
 
 [ร้านส้มตำหมื่นล้าน (MEAUN-LAN)](https://hidie.net/bangkok3b/)  
 求其入㗎咋  
 點知啲嘢咁鬼好食㗎啫  
 呵呵呵呵呵呵呵～  
 
-![](images/bangkok3c.jpg)
+![](/images/bangkok3c.jpg)
 
 食完行陣又食過  
 小食時間就試[ชาตรามือ (ChaTraMue)](https://hidie.net/bangkok3c/) 嘅**奶茶雪糕**  
@@ -55,20 +55,20 @@ BTS：พญาไท (Phaya Thai) → **อโศก (Asok)**
 嗱～ 呢隻雪糕好濃滑好香同好好食  
 唔食係堅走寶嗰隻，就咁。  
 
-![](images/bangkok3d.jpg)
+![](/images/bangkok3d.jpg)
 
 然後又行吓行吓咁...  
 再坐低食個tea @[C・O・D・E](https://hidie.net/bangkok3d/)  
 芒果當造嗰陣唔食芒果會被雷劈㗎！  
 
-![](images/bangkok3e.jpg)
+![](/images/bangkok3e.jpg)
 
 又再行啦，咁做人呢家嘢真係會攰㗎嘛  
 今鑊唔係食嘢喇，去！揼！骨！  
 商場頂層係[Let's Relax Spa](https://hidie.net/bangkok3e/)  
 乾淨服務好又唔貴，爽呀～  
 
-![](images/bangkok3f.jpg)
+![](/images/bangkok3f.jpg)
 
 咁揼完骨個人放鬆晒就會有餓意嘅（咦？）  
 唯有食晚飯啦哈哈哈  

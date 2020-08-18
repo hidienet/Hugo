@@ -1,5 +1,5 @@
 ---
-title: '大根！大根！大根！！！'
+title: '[生活原味] 大根！大根！大根！！！'
 date: 2017-07-20T09:53:00.000+08:00
 draft: false
 aliases: [ "/2017/07/blog-post_20.html" ]

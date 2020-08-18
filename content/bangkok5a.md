@@ -1,5 +1,5 @@
 ---
-title: '[趁熱食，曼谷！] Day5：'
+title: '[趁熱食，曼谷！] Day5：炭燒豬肉串'
 date: 2020-08-21T08:30:00.000+08:00
 draft: false
 images: ["/images/bangkok5a.jpg"]

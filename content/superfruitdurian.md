@@ -1,5 +1,5 @@
 ---
-title: '[生活原味] Super Fruit - 勞物高山猫山王'
+title: '[生活原味] Super Fruit - 勞物高山猫山皇'
 date: 2020-08-18T19:30:00.000+08:00
 draft: false
 images: ["/images/superfruitdurian.jpg"]

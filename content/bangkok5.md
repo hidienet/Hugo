@@ -85,18 +85,12 @@ I go to [TALAD Neon](https://hidie.net/bangkok5i/) on foot.
 － tee唔夠翟道翟平  
 － 再唔係就係啲大6貨仔唔會買  
   
-行夠市集就咁返歸？  
-  
-  
+行夠市集就咁返歸？   
 
 ![](/images/bangkok5j.jpg)
 
 咪傻啦！又食嘢喇哈哈哈  
-[ข้าวมันไก่ (海南雞飯)](https://hidie.net/bangkok5j/)  
-泰式海南雞飯個辣汁係神髓  
-雞香就梗㗎喇  
-冇新加坡嘅咁油膩  
-宵夜食就啱啱好  
+食埋[ข้าวมันไก่ (海南雞飯)](https://hidie.net/bangkok5j/)做宵夜就啱啱好  
   
   
 飽飽肚就執行李喇  

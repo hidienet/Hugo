@@ -3,7 +3,7 @@ title: '[趁熱食，曼谷！] Day5：ข้าวมันไก่ (海南雞
 date: 2020-08-24T13:30:00.000+08:00
 draft: false
 images: ["/images/bangkok5j.jpg"]
-tags : [travel-泰國-曼谷]
+tags : [travel-泰國-曼谷, flavor - 行膳積腹]
 ---
 
 行夠市集就咁返歸？

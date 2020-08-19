@@ -2,7 +2,7 @@
 title: '[趁熱食，曼谷！] Day4：สยามเซ็นเตอร์ (Siam Center)'
 date: 2020-08-19T08:30:00.000+08:00
 draft: false
-images: ["/images/bangkok4.jpg"]
+images: ["/images/bangkok4c.jpg"]
 tags : [travel-泰國-曼谷]
 ---
 

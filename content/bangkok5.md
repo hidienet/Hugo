@@ -75,7 +75,7 @@ it's MANGO again～
 
 ![](/images/bangkok5i.jpg)
 
-I go to [TALAD Neon](https://hidie.net/bangkok5i/) by foot.  
+I go to [TALAD Neon](https://hidie.net/bangkok5i/) on foot.  
 
 ![](/images/bangkok5i0.jpg)
 

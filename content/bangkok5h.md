@@ -44,14 +44,32 @@ tags : [travel-泰國-曼谷]
 
 ![](/images/bangkok5h6.jpg)
 
-
+**青檸細洋蔥**見到咁新鮮又忍唔住買  
 
 ![](/images/bangkok5h7.jpg)
+
+**香味肉絲**平平地咪買少少囉
+
 ![](/images/bangkok5h8.jpg)
+
+**糯米**都托一包返屋企？！
+
 ![](/images/bangkok5h9.jpg)
+
+無計啦！鬼叫買咗呢個**HOMEMATE迷你電壓力鍋**咩？  
+好多mode炆嘢煮嘢仲可以煲埋糯米飯嘛...  
+
 ![](/images/bangkok5h10.jpg)
+
+**泰皇蝦片**  
+極！級！推！薦！嘅美味！  
+堅好食～
+
 ![](/images/bangkok5h11.jpg)
 
- 
+榮獲ITQI Superior Taste Award一星美譽    
+**DOI KHAM 99% tomato juice**  
+清甜冇腥味，又幾好飲㗎喎！  
+  
   
 {{<bangkok>}}

@@ -1,5 +1,5 @@
 ---
-title: 'Nida - Trinolone Oral Paste'
+title: 'NiDA - Trinolone Oral Paste'
 date: 2020-08-19T19:30:00.000+08:00
 draft: false
 images: ["/images/nidaoral.jpg"]

@@ -35,7 +35,7 @@ tags : [travel-泰國-曼谷, flavor - 行膳積腹]
 ![](/images/bangkok4g5.jpg)
 
 **Tom Yum Goong**  
-超香酸味味辣架濃郁蝦味嘅冬蔭功  
+超香酸微微辣加濃郁蝦味嘅冬蔭功  
 啲河蝦仲要係大大隻新鮮好好咬  
 
 ![](/images/bangkok4g6.jpg)

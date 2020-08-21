@@ -3,7 +3,7 @@ title: '[趁熱食，曼谷！] Day5：炭燒豬肉串'
 date: 2020-08-21T08:30:00.000+08:00
 draft: false
 images: ["/images/bangkok5a.jpg"]
-tags : [travel-泰國-曼谷, flavor - ]
+tags : [travel-泰國-曼谷, flavor - 小食部]
 ---
 
 hea住去旅行就梗係瞓到自然醒㗎啦  

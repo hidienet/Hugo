@@ -10,7 +10,7 @@ tags : [travel-泰國-曼谷]
 
 ![](/images/bangkok6d.jpg)
 
-梗係揼揼骨鬆鬆筋啦 @**Express Spa**
+梗係揼揼骨鬆鬆筋啦 @**Express Spa**  
 當然係比市區嘅貴少少  
 個setting都比舖頭「開揚」啲  
 但價錢都係响合理嘅水平以內  

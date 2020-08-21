@@ -5,8 +5,7 @@ draft: false
 images: ["/images/bangkok5b.jpg"]
 tags : [travel-泰國-曼谷, flavor - 飲！]
 ---
-
-然後行吓附近個超市仔啦  
+食完串燒之後行吓附近個超市仔  
 買啲嘢飲呀零食呀…  
 再返酒店唞again  
 

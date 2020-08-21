@@ -7,7 +7,7 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Fri, 21 Aug 2020 14:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Fri, 21 Aug 2020 19:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
@@ -15,7 +15,7 @@
     <item>
       <title>flavor - 飲！</title>
       <link>https://hidie.net/tags/flavor-%E9%A3%B2/</link>
-      <pubDate>Fri, 21 Aug 2020 14:30:00 +0800</pubDate>
+      <pubDate>Fri, 21 Aug 2020 19:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E9%A3%B2/</guid>
       <description></description>
@@ -31,11 +31,11 @@
     </item>
     
     <item>
-      <title>flavor -</title>
-      <link>https://hidie.net/tags/flavor/</link>
+      <title>flavor - 小食部</title>
+      <link>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</link>
       <pubDate>Fri, 21 Aug 2020 08:30:00 +0800</pubDate>
       
-      <guid>https://hidie.net/tags/flavor/</guid>
+      <guid>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</guid>
       <description></description>
     </item>
     
@@ -72,15 +72,6 @@
       <pubDate>Tue, 18 Aug 2020 19:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - 小食部</title>
-      <link>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</link>
-      <pubDate>Fri, 14 Aug 2020 08:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</guid>
       <description></description>
     </item>
     

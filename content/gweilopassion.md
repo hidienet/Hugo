@@ -1,5 +1,5 @@
 ---
-title: '[cheers!] gwei•lo x Heart of Darkness Passionably Late'
+title: '[cheers!] gwei•lo x Heart of Darkness - Passionably Late'
 date: 2020-08-21T19:30:00.000+08:00
 draft: false
 images: ["/images/gweilopassion.jpg"]

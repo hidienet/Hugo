@@ -9,18 +9,18 @@ tags : [travel-泰國-曼谷]
 要走喇要走喇  
 預早少少去機場  
 
-![](https://c1.staticflickr.com/5/4331/36530586111_de1fbe4613_z.jpg)
+![](/images/bangkok6a.jpg)
 
-臨check out前食返pack生果先  
+臨check out前食返pack[生果](https://hidie.net/bangkok6a/)先  
 又香又甜又好味，啦啦啦～  
   
 然後搭的士去機場  
   
   
 
-![](https://c1.staticflickr.com/5/4374/36669361225_55044ec7f4_z.jpg)
+![](/images/bangkok6b.jpg)
 
-早啲去機場就係特登嚟**機場個food court**食嘢  
+早啲去機場就係特登嚟[機場個food court](https://hidie.net/bangkok6b/)食嘢  
 唔係遊客食肆嗰層喎  
 買飛仔好多員工食嗰間先係  
 啲嘢好抵食仲要好好食  
@@ -28,14 +28,14 @@ tags : [travel-泰國-曼谷]
   
 食完嘢响機場啲鋪行吓  
 check in後入閘過關又再行吓  
-行吓行吓會攰架嘛...  
+[行吓行吓](https://hidie.net/bangkok6c/)會攰架嘛...  
   
   
 
-![](https://c1.staticflickr.com/5/4377/36530808121_3852be88ee_z.jpg)
+![](/images/bangkok6d.jpg)
 
 梗係揼揼骨鬆鬆筋啦  
-**Express Spa**當然係比市區嘅貴啲  
+[Express Spa](https://hidie.net/bangkok6d/)當然係比市區嘅貴啲  
 但價錢都係响合理嘅水平  
 爽呀～  
   
@@ -43,9 +43,9 @@ check in後入閘過關又再行吓
   
   
 
-![](https://c1.staticflickr.com/5/4358/36531047071_c989fb41bc_z.jpg)
+![](/images/bangkok6e.jpg)
 
-@高空三萬五千呎，隻非洲啤TUSKER都OK喎！  
+@高空三萬五千呎，隻非洲啤[TUSKER](https://hidie.net/bangkok6e/)都OK喎！  
   
   
 

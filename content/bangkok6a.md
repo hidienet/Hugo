@@ -12,6 +12,8 @@ tags : [travel-泰國-曼谷]
 ![](/images/bangkok6a.jpg)
 
 打開雪櫃仲有呢pack**大樹菠蘿**  
+反正都要有嘢到肚  
+有咩好得過一朝早就食份新鮮甜美嘅早餐呢？
 
 
 {{<bangkok>}}

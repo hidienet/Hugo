@@ -56,7 +56,12 @@ tags : [lifestyle - 逃離852, travel-泰國-曼谷]
   
   
 #### 泰好買呵呵呵：  
+[T.MAN PROPOLIZ Mouth Spray（โพรโพลิซ เมาท์ สเปรย์）](https://hidie.net/tmanpropoliz/)  
+[3M Liquid Hand Soap | 3เอ็ม สบู่เหลวล้างมือ](https://hidie.net/mmmsoap/)  
 [NiDA - Trinolone Oral Paste](https://hidie.net/nidaoral/)  
+[snake brand - prikly heat cooling powder (cool pink)](https://hidie.net/snakebrand/)  
+[johnson's - UV white powder](https://hidie.net/johnsonsuvpowder/)  
+
 
 ![](/images/bangkok6d5n.jpg)
 

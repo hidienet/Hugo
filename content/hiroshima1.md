@@ -35,7 +35,7 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
 剩係食碗麵同餃子就滿足？  
 NO啦！係食癲前要限・制・飲・食！
 
-![](/images/hiroshima1a.jpg)
+![](/images/hiroshima1b.jpg)
 
 因為晚餐係去感受 (食)おもてなし  
 ＠**季節料理 なかしま**  
@@ -45,7 +45,7 @@ Michelin Guide広島唯一一間拎三星嘅食府
 佢都係拎広島第一名  
 真係要好好見識見識吓
 
-![](/images/hiroshima1b.jpg)
+![](/images/hiroshima1c.jpg)
 
 滿滿足食完打埋包  
 隊埋盒**LOTTE 爽 梨**就更完美  

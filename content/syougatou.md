@@ -3,7 +3,7 @@ title: '[candy] 黄金しょうがハッカ糖'
 date: 2020-05-29T08:30:00.000+08:00
 draft: false
 images: ["/images/syougatou.jpg"]
-tags : [flavor - 飲！]
+tags : [flavor - 螞蟻族]
 ---
  
 土佐盛產生薑啊！   

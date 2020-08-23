@@ -124,6 +124,15 @@ tags : [travel-日本-四國, lifestyle - 逃離852]
 \[符\] [金刀比羅宮 - 幸福の黄色いお守り](https://hidie.net/shikokukotohira/)  
 \[食\] [鳴門うず芋](https://hidie.net/shikokukurio/)  
 \[食\] [名物かまど](https://hidie.net/kamado/)  
+\[食\] [亀井製菓 - 坊っちゃんだんご](https://hidie.net/kameiseika/)  
+\[食\] [みきゃんのり天塩味](https://hidie.net/mikyannori/)  
+\[食\] [一六本舗 - 一六タルト（原味、抹茶）](https://hidie.net/ichiroku/)  
+\[食\] [ハタダ栗タルト](https://hidie.net/kuritaruto/)  
+\[食\] [ギノー 伊予のみそ](https://hidie.net/ginomiso/)  
+\[食\] [黄金しょうがハッカ糖](https://hidie.net/syougatou/)  
+\[飲\] [POM ポンジュース](https://hidie.net/pommikan/)  
+\[飲\] [土佐の黒文字茶](https://hidie.net/kuromoji/)  
+
 
   
 

@@ -89,7 +89,7 @@ tags : [travel-日本-四國, lifestyle - 逃離852]
   
 #### Day7：[高知（高知、中村、須崎）](https://hidie.net/shikoku7/)  
 [アンパンマン 石凳](https://hidie.net/shikoku7a/)  
-[ANPANMAN TERRACE KOCHI | アンパンマンテラスKOCHI](https://hidie.net/shikoku7b/)
+[ANPANMAN TERRACE KOCHI | アンパンマンテラスKOCHI](https://hidie.net/shikoku7b/)  
 [くじら列車 - しんたろう2号 青仕様](https://hidie.net/shikoku7c/)  
 [ひまわり 高知の牛乳](https://hidie.net/shikoku7d/)  
 [高知 → 中村（四万十川）](https://hidie.net/shikoku7e/)  
@@ -104,21 +104,21 @@ tags : [travel-日本-四國, lifestyle - 逃離852]
 [まゆみの店 - 鍋焼きラーメン](https://hidie.net/shikoku7n/)  
 [須崎 → 高知](https://hidie.net/shikoku7o/)  
 [土佐ノ國 二十四万石 - 土佐珍味皿鉢](https://hidie.net/shikoku7p/)  
-
+  
   
 #### Day8：[高知（高知）→ 高松（高松空港）](https://hidie.net/shikoku8/)  
-[SUNNY MART 高南台地牛乳](https://hidie.net/shikoku8a/) 
+[SUNNY MART 高南台地牛乳](https://hidie.net/shikoku8a/)  
 [高知の日曜市（土佐の街路市）](https://hidie.net/shikoku8b/)  
 [高知の日曜市おすすめ名物「田舎寿司」](https://hidie.net/shikoku8c/)  
 [日曜市 - あんこ餅、芋餅](https://hidie.net/shikoku8d/)  
 [日曜市 戰利品們！](https://hidie.net/shikoku8e/)  
-[鯖姿寿司](https://hidie.net/shikoku8f/)   
-[日曜市 - 炭火焼き焼鳥](https://hidie.net/shikoku8g/)   
-[菓子処 青柳 本店](https://hidie.net/shikoku8h/) 
-[bye 高知～](https://hidie.net/shikoku8i/) 
-[高知駅 → ゆめタウン高松 → 高松空港](https://hidie.net/shikoku8j/) 
-[旭堂の元祖ぼうしパン](https://hidie.net/shikoku8k/)
-
+[鯖姿寿司](https://hidie.net/shikoku8f/)  
+[日曜市 - 炭火焼き焼鳥](https://hidie.net/shikoku8g/)  
+[菓子処 青柳 本店](https://hidie.net/shikoku8h/)  
+[bye 高知～](https://hidie.net/shikoku8i/)  
+[高知駅 → ゆめタウン高松 → 高松空港](https://hidie.net/shikoku8j/)  
+[旭堂の元祖ぼうしパン](https://hidie.net/shikoku8k/)  
+  
 
 #### 買遍四国buy buy buy：
 \[符\] [金刀比羅宮 - 幸福の黄色いお守り](https://hidie.net/shikokukotohira/)  

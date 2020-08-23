@@ -6,7 +6,7 @@ images: ["/images/bangkok5f.jpg"]
 tags : [travel-泰國-曼谷, flavor - 螞蟻族]
 ---
 
-冇嘢好行就去**เซ็นทรัลเวิลด์ (CentralWorld)**歎冷氣  
+冇嘢好行就去**เซ็นทรัลเวิลด์ (CentralWorld)** 歎冷氣  
 唔行街都可以坐吓放空呀咁...  
 
 ![](/images/bangkok5f.jpg)

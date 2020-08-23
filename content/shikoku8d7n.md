@@ -122,7 +122,8 @@ tags : [travel-日本-四國, lifestyle - 逃離852]
 
 #### 買遍四国buy buy buy：
 \[符\] [金刀比羅宮 - 幸福の黄色いお守り](https://hidie.net/shikokukotohira/)  
-\[食\] [鳴門うず芋](https://hidie.net/shikokukurio/)
+\[食\] [鳴門うず芋](https://hidie.net/shikokukurio/)  
+\[食\] [名物かまど](https://hidie.net/kamado/)  
 
   
 

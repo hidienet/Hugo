@@ -22,7 +22,7 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
 
 ![](/images/hiroshima1.jpg)
 
-**尾道らーめん 三公**  
+[尾道らーめん 三公](https://hidie.net/hiroshima1a/)  
 尾道唔係重災區但係今次唔會去  
 相比廣島沾麵同冇汁擔擔麵  
 覺得湯嘅吸引啲  
@@ -38,7 +38,7 @@ NO啦！係食癲前要限・制・飲・食！
 ![](/images/hiroshima1b.jpg)
 
 因為晚餐係去感受 (食)おもてなし  
-＠**季節料理 なかしま**  
+＠[季節料理 なかしま](https://hidie.net/hiroshima1b/)  
 Michelin Guide広島唯一一間拎三星嘅食府  
 唔止歪國人覺得好  
 就連國民食評網食べログ  
@@ -48,7 +48,7 @@ Michelin Guide広島唯一一間拎三星嘅食府
 ![](/images/hiroshima1c.jpg)
 
 滿滿足食完打埋包  
-隊埋盒**LOTTE 爽 梨**就更完美  
+隊埋盒[LOTTE 爽 梨](https://hidie.net/hiroshima1c/)就更完美  
 微細梨味刨冰仲有碎碎果肉  
 香甜美味食飽瞓！（night）  
   

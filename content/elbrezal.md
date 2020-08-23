@@ -1,5 +1,5 @@
 ---
-title: '[生活調味] el brezal honey'
+title: '[生活原味] el brezal honey'
 date: 2015-02-05T09:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/el-brezal-honey.html" ]

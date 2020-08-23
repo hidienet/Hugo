@@ -1,5 +1,5 @@
 ---
-title: '[生活調味] МЕД'
+title: '[生活味] МЕД'
 date: 2014-06-11T07:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/blog-post.html" ]

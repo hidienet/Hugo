@@ -130,6 +130,8 @@ tags : [travel-日本-四國, lifestyle - 逃離852]
 \[食\] [ハタダ栗タルト](https://hidie.net/kuritaruto/)  
 \[食\] [ギノー 伊予のみそ](https://hidie.net/ginomiso/)  
 \[食\] [黄金しょうがハッカ糖](https://hidie.net/syougatou/)  
+\[食\] [土佐銘菓 かんざし](https://hidie.net/kanzashi/)  
+\[食\] [南国製菓の塩けんぴ](https://hidie.net/shiokenpi/)  
 \[飲\] [POM ポンジュース](https://hidie.net/pommikan/)  
 \[飲\] [土佐の黒文字茶](https://hidie.net/kuromoji/)  
 

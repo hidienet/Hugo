@@ -48,6 +48,7 @@ tags : [lifestyle - 逃離852, travel-泰國-曼谷]
 [ขาหมูตรอกซุง (Kamou Tokzung) - 滷豬腳飯](https://hidie.net/bangkok5c/)  
 [肉鬆糯米飯](https://hidie.net/bangkok5d/)  
 [ข้าวมันไก่ตอนประตูน้ำ (紅大哥海南雞飯)](https://hidie.net/bangkok5e/)  
+[SWENSENS - Mango Trio](https://hidie.net/bangkok5f/)  
   
   
 #### Day6：[ท่าอากาศยานสุวรรณภูมิ Suvarnabhumi Airport (BKK)](https://hidie.net/bangkok6/)  

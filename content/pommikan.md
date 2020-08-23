@@ -6,7 +6,7 @@ images: ["/images/pommikan.jpg"]
 tags : [flavor - 飲！]
 ---
 
-愛媛盛產蜜柑（[みかん](https://hidie.net/shikoku5h/)）  
+愛媛盛產蜜柑（[みかん](https://hidie.net/shikoku6b/)）  
 而呢隻POM蜜柑汁更係家傳戶曉嘅品牌  
 
 ![](/images/pommikan.jpg)

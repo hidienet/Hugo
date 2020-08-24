@@ -1,5 +1,5 @@
 ---
-title: '[cheers!] tanqueray - london dry gin'
+title: '[cheers!] Tanqueray - London Dry Gin'
 date: 2014-12-20T18:00:00.000+08:00
 draft: false
 aliases: [ "/2014/12/cheers-tanqueray-london-dry-gin.html" ]

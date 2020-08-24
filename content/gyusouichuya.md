@@ -1,5 +1,5 @@
 ---
-title: '[牛] 牛惣居酎屋'
+title: '[串] 牛惣居酎屋'
 date: 2019-07-26T23:09:00.000+08:00
 draft: false
 aliases: [ "/2019/07/blog-post_26.html" ]

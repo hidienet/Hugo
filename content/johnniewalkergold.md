@@ -1,5 +1,5 @@
 ---
-title: '[cheers!] gold label reserve - johnnie walker'
+title: '[cheers!] Johnnie Walker - Gold Label Reserve'
 date: 2014-11-11T18:30:00.000+08:00
 draft: false
 aliases: [ "/2014/11/cheers-gold-label-reserve-johnnie-walker.html" ]

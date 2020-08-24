@@ -1,5 +1,5 @@
 ---
-title: '[cheers!] relax cool red'
+title: '[cheers!] RELAX Cool Red'
 date: 2014-09-23T18:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/cheers-relax-cool-red.html" ]

@@ -1,5 +1,5 @@
 ---
-title: '食の四国ツアー (8D7N)'
+title: '食の四国ツアー（8D7N）'
 date: 2020-05-25T10:38:00.132+08:00
 draft: false
 aliases: [ "/2020/05/8d7n.html" ]

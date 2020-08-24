@@ -51,6 +51,7 @@ tags : [lifestyle - 逃離852, travel-泰國-曼谷]
 [SWENSENS - Mango Trio](https://hidie.net/bangkok5f/)  
 [Kum Poon](https://hidie.net/bangkok5g/)  
 [Take My Money! CentralWorld～](https://hidie.net/bangkok5h/)  
+[TALAD Neon](https://hidie.net/bangkok5i/)  
   
   
 #### Day6：[ท่าอากาศยานสุวรรณภูมิ Suvarnabhumi Airport (BKK)](https://hidie.net/bangkok6/)  

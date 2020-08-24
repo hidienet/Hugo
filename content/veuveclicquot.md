@@ -1,5 +1,5 @@
 ---
-title: '[cheers!] veuve clicquot ponsardin brut champagne'
+title: '[cheers!] Veuve Clicquot Ponsardin BRUT Champagne'
 date: 2014-06-21T16:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/cheers-veuve-clicquot-ponsardin-brut.html" ]

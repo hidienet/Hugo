@@ -1,5 +1,5 @@
 ---
-title: '[豬] モクモクやきとん | Mokumoku Yakiton'
+title: '[串] モクモクやきとん | Mokumoku Yakiton'
 date: 2019-07-12T23:10:00.001+08:00
 draft: false
 aliases: [ "/2019/07/mokumoku-yakiton.html" ]

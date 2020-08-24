@@ -1,5 +1,5 @@
 ---
-title: '[cheers!] johnnie walker - black label'
+title: '[cheers!] Johnnie Walker - Black Label'
 date: 2014-12-06T19:00:00.000+08:00
 draft: false
 aliases: [ "/2014/12/cheers-johnnie-walker-black-label.html" ]

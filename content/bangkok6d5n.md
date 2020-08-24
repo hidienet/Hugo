@@ -52,6 +52,7 @@ tags : [lifestyle - 逃離852, travel-泰國-曼谷]
 [Kum Poon](https://hidie.net/bangkok5g/)  
 [Take My Money! CentralWorld～](https://hidie.net/bangkok5h/)  
 [TALAD Neon](https://hidie.net/bangkok5i/)  
+[ข้าวมันไก่ (海南雞飯) & ก๋วยเตี๋ยวลูกชิ้นหมูสับ (豬肉丸湯米)](https://hidie.net/bangkok5j/)  
   
   
 #### Day6：[ท่าอากาศยานสุวรรณภูมิ Suvarnabhumi Airport (BKK)](https://hidie.net/bangkok6/)  

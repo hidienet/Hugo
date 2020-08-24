@@ -3,7 +3,7 @@ title: 'ララ奈良 & 大阪，美味しいね～（8D8N）'
 date: 2020-08-11T12:30:00.000+08:00
 draft: false
 images: ["/images/naraosaka8d8n.jpg"]
-tags : [travel-日本-奈良大阪]
+tags : [travel-日本-奈良大阪, lifestyle - 逃離852]
 ---
 
 緣份來到，就會猛咁食嘢  

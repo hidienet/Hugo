@@ -42,3 +42,4 @@ tags : [flavor - 行膳積腹]
 都係揀返最輕便嘅茶包走  
 但係明明話要四包Earl Grey  
 第一次係畀咗四包English Breakfast  
+然後換返之後，都仲係有包紅色嘅哈哈哈...

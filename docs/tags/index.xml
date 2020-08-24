@@ -7,7 +7,7 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Sun, 23 Aug 2020 18:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Mon, 24 Aug 2020 08:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
@@ -15,7 +15,7 @@
     <item>
       <title>travel-泰國-曼谷</title>
       <link>https://hidie.net/tags/travel-%E6%B3%B0%E5%9C%8B-%E6%9B%BC%E8%B0%B7/</link>
-      <pubDate>Sun, 23 Aug 2020 18:30:00 +0800</pubDate>
+      <pubDate>Mon, 24 Aug 2020 08:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/travel-%E6%B3%B0%E5%9C%8B-%E6%9B%BC%E8%B0%B7/</guid>
       <description></description>
@@ -85,6 +85,15 @@
     </item>
     
     <item>
+      <title>lifestyle - 逃離852</title>
+      <link>https://hidie.net/tags/lifestyle-%E9%80%83%E9%9B%A2852/</link>
+      <pubDate>Tue, 11 Aug 2020 12:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/lifestyle-%E9%80%83%E9%9B%A2852/</guid>
+      <description></description>
+    </item>
+    
+    <item>
       <title>travel-日本-奈良大阪</title>
       <link>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%A5%88%E8%89%AF%E5%A4%A7%E9%98%AA/</link>
       <pubDate>Tue, 11 Aug 2020 12:30:00 +0800</pubDate>
@@ -117,15 +126,6 @@
       <pubDate>Mon, 03 Aug 2020 18:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/collections-%E5%8F%AF%E6%84%9B%E3%81%84/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>lifestyle - 逃離852</title>
-      <link>https://hidie.net/tags/lifestyle-%E9%80%83%E9%9B%A2852/</link>
-      <pubDate>Sat, 25 Jul 2020 14:50:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/lifestyle-%E9%80%83%E9%9B%A2852/</guid>
       <description></description>
     </item>
     

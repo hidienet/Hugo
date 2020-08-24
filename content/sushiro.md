@@ -11,7 +11,7 @@ tags : [flavor - 行膳積腹]
 ![](/images/sushiro1.jpg)
 
 唯有買返屋企食啦！  
-（反正一世都等唔到位上網有排唔到飛）  
+（反正一世都等唔到位上網排唔到飛）  
 
 ![](/images/sushiro.jpg)
 

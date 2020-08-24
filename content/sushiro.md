@@ -1,5 +1,5 @@
 ---
-title: '[日] スシロー | 壽司郎'
+title: '[寿司] スシロー | 壽司郎'
 date: 2020-08-24T19:30:00.000+08:00
 draft: false
 images: ["/images/sushiro.jpg"]

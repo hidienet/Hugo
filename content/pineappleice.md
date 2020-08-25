@@ -3,7 +3,7 @@ title: '[sorbet + ice bar] pineapple sorbet & ice bar'
 date: 2013-12-01T15:30:00.000+08:00
 draft: false
 aliases: [ "/2013/12/sorbet-ice-bar-pineapple-sorbet-ice-bar.html" ]
-tags : [made by H - 開伙]
+tags : [Ḧandmade - 開伙]
 ---
 
 簡單到不能相信自己的眼睛   

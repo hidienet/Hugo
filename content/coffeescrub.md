@@ -3,7 +3,7 @@ title: '自作業：咖啡身體磨砂'
 date: 2014-03-23T08:00:00.000+08:00
 draft: false
 aliases: [ "/2014/03/blog-post_23.html" ]
-tags : [glamorous - 蛋臉以外, made by H - 愛膚堅]
+tags : [glamorous - 蛋臉以外, Ḧandmade - 愛膚堅]
 ---
 
 絕對是廢物利用！  

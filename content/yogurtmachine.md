@@ -3,7 +3,7 @@ title: '小熊乳酪機 x honey walnut yogurt'
 date: 2014-06-15T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/06/x-honey-walnut-yogurt.html" ]
-tags : [lifestyle - 廚房play, made by H - 開伙]
+tags : [lifestyle - 廚房play, Ḧandmade - 開伙]
 ---
 
 乳酪是要自製的～  

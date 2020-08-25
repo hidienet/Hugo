@@ -3,7 +3,7 @@ title: '"knit" for speed XD'
 date: 2013-12-21T21:10:00.000+08:00
 draft: false
 aliases: [ "/2013/12/knit-for-speed-xd.html" ]
-tags : [Ḧandmade - 雜作]
+tags : [handmade - 雜作]
 ---
 
 天氣有冷了嗎？  

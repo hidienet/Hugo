@@ -3,7 +3,7 @@ title: '[生活調味] 塩糀（塩麹番茄沙律）'
 date: 2015-01-14T18:30:00.000+08:00
 draft: false
 aliases: [ "/2015/01/blog-post_14.html" ]
-tags : [flavor - 揀飲宅食, Ḧandmade - 開伙]
+tags : [flavor - 揀飲宅食, handmade - 開伙]
 ---
 
 就算多懶也能極速完成的沙律/ 頭盤/ 配菜  

@@ -3,7 +3,7 @@ title: '[masque] 自作業：紅酒蜜糖面膜'
 date: 2014-03-15T22:00:00.000+08:00
 draft: false
 aliases: [ "/2014/03/masque.html" ]
-tags : [glamorous - 保養おたく, glamorous - 面膜魂, andmade - 愛膚堅]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂, handmade - 愛膚堅]
 ---
 
 紅酒飲剩一啖就用來敷個面  

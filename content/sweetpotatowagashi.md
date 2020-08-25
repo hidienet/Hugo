@@ -3,7 +3,7 @@ title: '[和菓子] 栗子？分子料理？さつまいも茶巾'
 date: 2013-10-06T13:15:00.001+08:00
 draft: false
 aliases: [ "/2013/10/blog-post_6.html" ]
-tags : [made by H - 開伙]
+tags : [Ḧandmade - 開伙]
 ---
 
 這是傳統的和菓子啦！  

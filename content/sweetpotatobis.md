@@ -3,7 +3,7 @@ title: '[阿茂] 蕃薯餅'
 date: 2013-10-06T14:00:00.000+08:00
 draft: false
 aliases: [ "/2013/10/blog-post_3948.html" ]
-tags : [made by H - 開伙]
+tags : [Ḧandmade - 開伙]
 ---
 
 一整袋蕃薯只做[茶巾](https://hidie.net/sweetpotatowagashi/)？no way！  

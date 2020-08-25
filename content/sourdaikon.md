@@ -3,7 +3,7 @@ title: '[醃] 醋醃蘿蔔'
 date: 2013-12-08T13:30:00.000+08:00
 draft: false
 aliases: [ "/2013/12/blog-post_8.html" ]
-tags : [Ḧandmade - 開伙]
+tags : [handmade - 開伙]
 ---
 
 醃小菜，就是為了不知道有什麼好煮的時候有東西吃  

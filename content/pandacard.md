@@ -3,7 +3,7 @@ title: 'panda-H x day day happy greeting card'
 date: 2015-12-19T23:36:00.002+08:00
 draft: false
 aliases: [ "/2015/12/panda-h-x-day-day-happy-greeting-card.html" ]
-tags : [Ḧandmade - 繪紙手]
+tags : [handmade - 繪紙手]
 ---
 
 「無敵賀卡」完成～（撒花）  

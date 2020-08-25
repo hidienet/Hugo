@@ -3,7 +3,7 @@ title: '[masque] 自作業：米糠乳酪面膜'
 date: 2014-06-22T22:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/masque.html" ]
-tags : [glamorous - 保養おたく, glamorous - 面膜魂, made by H - 愛膚堅]
+tags : [glamorous - 保養おたく, glamorous - 面膜魂, Ḧandmade - 愛膚堅]
 ---
 
 含有豐富營養，又可以去角質  

@@ -3,7 +3,7 @@ title: '自作業：hydrogel body moisturizer '
 date: 2014-03-08T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/03/hydrogel-body-moisturizer.html" ]
-tags : [glamorous - 蛋臉以外, andmade - 愛膚堅]
+tags : [glamorous - 蛋臉以外, handmade - 愛膚堅]
 ---
 
 hydrogel mask比不織布mask會貴少少  

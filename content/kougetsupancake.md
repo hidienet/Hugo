@@ -16,7 +16,7 @@ tags : [flavor - 螞蟻族]
 最緊要係個餅係落咗鹿児島名物白熊糖漿  
 所以呢，件嘢係偏甜嘅  
 
-![](/images/kougetsupancake.jpg)
+![](/images/kougetsupancake1.jpg)
 
 隻味係同平時啲紅豆餅有分別  
 但係又未到必食嘅程度囉...（遠望）

@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：鎌倉 黄金の湯 稲村ヶ崎温泉'
 date: 2020-07-22T14:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3n.jpg"]
-tags : [travel-日本-神奈川]
+tags : [travel-日本-神奈川, lifestyle - 低溫慢煮]
 ---
 
 如果只係得少少時間  

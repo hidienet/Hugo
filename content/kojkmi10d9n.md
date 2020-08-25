@@ -107,7 +107,7 @@ tags : [lifestyle - 逃離852, travel-日本-鹿兒島宮崎]
 [doutor 朝カフェ・セット、若き薩摩の群像](https://hidie.net/kojkmi8a/)  
 [知覽町、喜入駅 ～遊綠茶車河 微甘中作樂～](https://hidie.net/kojkmi8b/)  
 [砂むし会館 砂楽、指宿駅（w/駅前足湯）](https://hidie.net/kojkmi8c/)  
-[特急「指宿のたまて箱」、指宿温泉サイダー](https://hidie.net/kojkmi8d/)
+[特急「指宿のたまて箱」、指宿温泉サイダー](https://hidie.net/kojkmi8d/)  
 [すすむ屋茶店、一番街商店街](https://hidie.net/kojkmi8e/)  
 [ステーキハウス和牛門](https://hidie.net/kojkmi8f/)  
 

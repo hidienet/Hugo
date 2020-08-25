@@ -56,7 +56,11 @@ tags : [lifestyle - 逃離852, travel-泰國-曼谷]
   
   
 #### Day6：[ท่าอากาศยานสุวรรณภูมิ Suvarnabhumi Airport (BKK)](https://hidie.net/bangkok6/)  
-  
+[大樹菠蘿](https://hidie.net/bangkok6a/)  
+[BKK food court - 海南雞飯、豬手飯、牛腩肉丸湯米](https://hidie.net/bangkok6b/)  
+[BKK 機場好買](https://hidie.net/bangkok6c/)  
+[Express Spa](https://hidie.net/bangkok6d/)  
+[Tusker Lager](https://hidie.net/bangkok6e/)  
   
   
   
@@ -66,6 +70,8 @@ tags : [lifestyle - 逃離852, travel-泰國-曼谷]
 [NiDA - Trinolone Oral Paste](https://hidie.net/nidaoral/)  
 [snake brand - prikly heat cooling powder (cool pink)](https://hidie.net/snakebrand/)  
 [johnson's - UV white powder](https://hidie.net/johnsonsuvpowder/)  
+[Love Farm - Chilli Lemon](https://hidie.net/lovefarm/)  
+[Amarula](https://hidie.net/amarula/)  
 
 
 ![](/images/bangkok6d5n.jpg)

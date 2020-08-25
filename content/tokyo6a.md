@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day6：紅葉 散步道'
 date: 2013-11-04T07:20:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day6.html" ]
-tags : [travel-日本-東京御殿場箱根]
+tags : [travel-日本-東京御殿場箱根, lifestyle - 低溫慢煮]
 ---
 
 溫泉又是早晚各一次，超～ 舒～ 服～  

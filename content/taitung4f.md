@@ -3,7 +3,7 @@ title: '[臺東瘋食遊] Day4：燒珠體驗@卡塔文化工作室'
 date: 2016-01-25T16:15:00.000+08:00
 draft: false
 aliases: [ "/2016/01/day4_25.html" ]
-tags : [made by H - 雜作, travel - 臺灣・臺東、知本]
+tags : [Ḧandmade - 雜作, travel - 臺灣・臺東、知本]
 ---
 
 食飽飽走去燒珠  

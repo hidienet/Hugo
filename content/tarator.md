@@ -3,7 +3,7 @@ title: '[soup] tarator'
 date: 2015-05-20T13:30:00.000+08:00
 draft: false
 aliases: [ "/2015/05/soup-tarator.html" ]
-tags : [Ḧandmade - 開伙]
+tags : [handmade - 開伙]
 ---
 
 悶熱的天氣最適合懷念保加利亞的風味湯！  

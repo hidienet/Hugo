@@ -1,5 +1,5 @@
 ---
-title: '[広島！食紀行] Day 2：イースタイムカフェ&アンデルセン | e's time cafe & ANDERSEN'
+title: '[広島！食紀行] Day 2：イースタイムカフェ&アンデルセン | e’s time cafe & ANDERSEN'
 date: 2020-08-28T12:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima2b.jpg"]

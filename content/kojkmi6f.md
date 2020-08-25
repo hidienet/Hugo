@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 6：桜島天然温泉掘りツア
 date: 2017-03-17T09:55:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-6_17.html" ]
-tags : [travel-日本-鹿兒島宮崎]
+tags : [travel-日本-鹿兒島宮崎, lifestyle - 低溫慢煮]
 ---
 
 就算個天刪咗個水泵  

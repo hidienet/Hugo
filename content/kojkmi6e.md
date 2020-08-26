@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 6：「桜島」溶岩なぎさ公
 date: 2017-03-16T09:52:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-6_16.html" ]
-tags : [travel-日本-鹿兒島宮崎, lifestyle - 低溫慢煮]
+tags : [travel-日本-鹿兒島宮崎, enthusiastic - 低溫慢煮]
 ---
 
 呢一站係去溫泉浸吓腳同去吓visitor centre  

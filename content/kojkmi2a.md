@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 2：さくらさくら温泉 & 朝
 date: 2017-01-11T10:00:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-2.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, lifestyle - 低溫慢煮, travel-日本-鹿兒島宮崎]
+tags : [flavor - 行膳積腹, flavor - 飲！, enthusiastic - 低溫慢煮, travel-日本-鹿兒島宮崎]
 ---
 
 我・愛・溫・泉  

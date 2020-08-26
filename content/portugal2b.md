@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：Estação de São Bento'
 date: 2017-11-17T09:24:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2estacao-de-sao-bento.html" ]
-tags : [travel-葡萄牙]
+tags : [travel-葡萄牙, enthusiastic - 鐵道粉]
 ---
 
 火車由Lisboa嘅Lisboa Santa Apolónia  

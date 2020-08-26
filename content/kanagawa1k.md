@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day1：三浦海岸 → 三崎口 → 川崎'
 date: 2020-06-26T10:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa1k.jpg"]
-tags : [travel-日本-神奈川]
+tags : [travel-日本-神奈川, enthusiastic - 鐵道粉]
 ---
 
 食完又落呀落雨

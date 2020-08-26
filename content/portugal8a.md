@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day8：Pinhão'
 date: 2018-04-18T09:40:00.000+08:00
 draft: false
 aliases: [ "/2018/04/day8pinhao.html" ]
-tags : [travel-葡萄牙]
+tags : [travel-葡萄牙, enthusiastic - 鐵道粉]
 ---
 
 睡眼惺忪嘅樣上火車  

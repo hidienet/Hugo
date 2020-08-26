@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：鎌倉・江ノ島パス'
 date: 2020-07-15T12:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3b.jpg"]
-tags : [travel-日本-神奈川]
+tags : [travel-日本-神奈川, enthusiastic - 鐵道粉]
 ---
 
 去鎌倉同江の島玩  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day7：四万十温泉平和な湯'
 date: 2020-05-14T10:32:00.065+08:00
 draft: false
 aliases: [ "/2020/05/day7_14.html" ]
-tags : [travel-日本-四國, lifestyle - 低溫慢煮]
+tags : [travel-日本-四國, enthusiastic - 低溫慢煮]
 ---
 
 四万十川條河又清又靚  

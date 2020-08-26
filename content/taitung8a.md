@@ -3,7 +3,7 @@ title: '[臺東瘋食遊] Day8：bye bye太平洋@臺鐵'
 date: 2016-03-01T11:30:00.000+08:00
 draft: false
 aliases: [ "/2016/03/day8bye-bye.html" ]
-tags : [travel - 臺灣・臺東、知本]
+tags : [travel - 臺灣・臺東、知本, enthusiastic - 鐵道粉]
 ---
 
 終於要由臺東 (知本)返臺中喇...  

@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day4：Porto - Tram Line 22'
 date: 2017-12-18T09:21:00.000+08:00
 draft: false
 aliases: [ "/2017/12/day4porto-tram-line-22.html" ]
-tags : [travel-葡萄牙]
+tags : [travel-葡萄牙, enthusiastic - 鐵道粉]
 ---
 
 打從1872年，Porto呢個城市就開始有電車  

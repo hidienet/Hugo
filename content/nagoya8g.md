@@ -3,7 +3,7 @@ title: '[GO! GO! NaGoYa～] Day8：風の湯'
 date: 2015-11-03T17:30:00.000+08:00
 draft: false
 aliases: [ "/2015/11/go-go-nagoya-day8_3.html" ]
-tags : [travel-日本-名古屋, lifestyle - 低溫慢煮]
+tags : [travel-日本-名古屋, enthusiastic - 低溫慢煮]
 ---
 
 特登比平時再早多兩三個鐘去機場  

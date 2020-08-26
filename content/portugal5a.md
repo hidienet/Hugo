@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：Go to Barcelos by train'
 date: 2018-01-29T21:07:00.001+08:00
 draft: false
 aliases: [ "/2018/01/day5go-to-barcelos-by-train.html" ]
-tags : [travel-葡萄牙]
+tags : [travel-葡萄牙, enthusiastic - 鐵道粉]
 ---
 
 晨七起身，晨八開車。  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day7：くじら列車 - しんたろう2号 青
 date: 2020-05-11T11:11:00.018+08:00
 draft: false
 aliases: [ "/2020/05/day7-2.html" ]
-tags : [travel-日本-四國]
+tags : [travel-日本-四國, enthusiastic - 鐵道粉]
 ---
 
 一上到月台就見到呢隻「鯨魚」...  

@@ -3,7 +3,7 @@ title: '[大阪，美味しいね～] Day3：大阪 一日乗車券'
 date: 2020-08-04T07:30:00.000+08:00
 draft: false
 images: ["/images/osaka3a.jpg"]
-tags : [travel-日本-奈良大阪]
+tags : [travel-日本-奈良大阪, enthusiastic - 鐵道粉]
 ---
 
 之前响大丸心斎橋店買  

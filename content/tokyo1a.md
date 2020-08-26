@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day1：こんにちは 東京'
 date: 2013-10-27T15:50:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day1_27.html" ]
-tags : [travel-日本-東京御殿場箱根]
+tags : [travel-日本-東京御殿場箱根, enthusiastic - 鐵道粉]
 ---
 
 由成田空港以最快最快的速度到新宿  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day5：宇和島みかん'
 date: 2020-04-23T15:25:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day5_29.html" ]
-tags : [travel-日本-四國]
+tags : [travel-日本-四國, enthusiastic - 鐵道粉]
 ---
 
 由宇和島返松山喇  

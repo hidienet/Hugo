@@ -1,6 +1,6 @@
 ---
 title: '[趁熱食，曼谷！] Day6：Tusker Lager'
-date: 2020-08-26T12:30:00.000+08:00
+date: 2020-08-26T13:30:00.000+08:00
 draft: false
 images: ["/images/bangkok6e.jpg"]
 tags : [travel-泰國-曼谷, flavor - 飲]

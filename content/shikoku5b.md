@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day5：宇和海アンパンマン列車'
 date: 2020-04-20T15:23:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day5_20.html" ]
-tags : [travel-日本-四國]
+tags : [travel-日本-四國, enthusiastic - 鐵道粉]
 ---
 
 校啱時間又有得坐アンパンマン JR  

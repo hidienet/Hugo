@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day6：高知到着'
 date: 2020-05-03T11:10:00.001+08:00
 draft: false
 aliases: [ "/2020/05/day6_3.html" ]
-tags : [travel-日本-四國]
+tags : [travel-日本-四國, enthusiastic - 鐵道粉]
 ---
 
 响四国嘅西北面走到四国嘅南面  

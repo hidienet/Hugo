@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day9：Bus Route 500 - Oceano Atlântico'
 date: 2018-05-03T09:38:00.000+08:00
 draft: false
 aliases: [ "/2018/05/day9bus-route-500-oceano-atlantico.html" ]
-tags : [travel-葡萄牙]
+tags : [travel-葡萄牙, enthusiastic - 鐵道粉]
 ---
 
 响Matosinhos冇嘢做到連行咗幾間超市  

@@ -31,7 +31,7 @@ tags : [flavor - 行膳積腹]
 
 ![](/images/sushiro4.jpg)
 
-係甜品**卡達拉娜（原味）**啦～
+係甜品**卡達拉娜（原味）** 啦～  
 Catalana本身係種意大利甜品，含Cointreau嘅  
 不過呢件係老少咸宜版本嘅簡易版  
 都夠heavy同滑溜嘅  

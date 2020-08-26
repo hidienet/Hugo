@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day5：A Vicentina'
 date: 2018-03-08T09:17:00.000+08:00
 draft: false
 aliases: [ "/2018/03/day5a-vicentina.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, travel-葡萄牙]
+tags : [flavor - 行膳積腹, flavor - 飲！, enthusiastic - 鐵道粉, travel-葡萄牙]
 ---
 
 雖然唔係好肚餓  

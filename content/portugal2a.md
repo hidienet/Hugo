@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：I go to Porto by CP'
 date: 2017-11-16T09:16:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2i-go-to-porto-by-cp.html" ]
-tags : [travel-葡萄牙, enthusiastic - 鐵道粉]
+tags : [travel-葡萄牙, enthusiasm - 鐵道時光]
 ---
 
 一來有折二來係咪都有jet lag㗎啦  

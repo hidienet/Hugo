@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day7：高知 → 中村（四万十川）'
 date: 2020-05-12T10:15:00.007+08:00
 draft: false
 aliases: [ "/2020/05/day7_12.html" ]
-tags : [travel-日本-四國, enthusiastic - 鐵道粉]
+tags : [travel-日本-四國, enthusiasm - 鐵道時光]
 ---
 
 高知 → **中村**  

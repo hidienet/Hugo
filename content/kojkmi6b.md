@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 6：welcome cute 2日 共通利用
 date: 2017-03-13T09:56:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-6welcome-cute-2.html" ]
-tags : [travel-日本-鹿兒島宮崎, enthusiastic - 鐵道粉]
+tags : [travel-日本-鹿兒島宮崎, enthusiasm - 鐵道時光]
 ---
 
 呢兩日會係鹿児島市內遊！  

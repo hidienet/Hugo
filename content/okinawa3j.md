@@ -3,7 +3,7 @@ title: '[琉球戀吃活樂遊] Day3：アートガラス @ monorail'
 date: 2013-11-17T10:30:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day3-monorail.html" ]
-tags : [travel-日本-沖繩, enthusiastic - 鐵道粉]
+tags : [travel-日本-沖繩, enthusiasm - 鐵道時光]
 ---
 
 買了一日劵當然會喪搭  

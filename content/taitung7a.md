@@ -3,7 +3,7 @@ title: '[臺東瘋食遊] Day7：知本・早晨'
 date: 2016-02-24T11:00:00.000+08:00
 draft: false
 aliases: [ "/2016/02/day7.html" ]
-tags : [travel - 臺灣・臺東、知本, enthusiastic - 低溫慢煮]
+tags : [travel - 臺灣・臺東、知本, enthusiasm - 低溫慢煮]
 ---
 
 擒晚响房舒舒服服浸溫泉  

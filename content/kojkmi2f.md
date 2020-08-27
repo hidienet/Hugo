@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 2：極楽湯'
 date: 2017-01-18T12:06:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-2_18.html" ]
-tags : [travel-日本-鹿兒島宮崎, enthusiastic - 低溫慢煮]
+tags : [travel-日本-鹿兒島宮崎, enthusiasm - 低溫慢煮]
 ---
 
 星期六嘅宮崎，响應該頗繁榮嘅橘通人都唔多隻  

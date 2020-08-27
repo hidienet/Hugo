@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day4：айран'
 date: 2014-05-18T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/05/day4_18.html" ]
-tags : [flavor - 飲！, enthusiastic - 鐵道粉, travel-保加利亞]
+tags : [flavor - 飲！, enthusiasm - 鐵道時光, travel-保加利亞]
 ---
 
 早上喝一枝айран，這隻稀一點同帶酸  

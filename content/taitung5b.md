@@ -3,7 +3,7 @@ title: '[臺東瘋食遊] Day5：風和日麗 @ 鐵花路'
 date: 2016-01-29T18:22:00.000+08:00
 draft: false
 aliases: [ "/2016/01/day5.html" ]
-tags : [travel - 臺灣・臺東、知本, enthusiastic - 鐵道粉]
+tags : [travel - 臺灣・臺東、知本, enthusiasm - 鐵道時光]
 ---
 
 好好天呀～～～  

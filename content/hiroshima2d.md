@@ -8,7 +8,17 @@ tags : [travel-日本-廣島, flavor - 行膳積腹]
 
 late lunch去咗**酔心本店**食釜飯  
 
-![](/images/hiroshima2d.jpg)
+![](/images/hiroshima2d1.jpg)
+
+
+![](/images/hiroshima2d2.jpg)
+![](/images/hiroshima2d3.jpg)
+![](/images/hiroshima2d4.jpg)
+![](/images/hiroshima2d5.jpg)
+![](/images/hiroshima2d6.jpg)
+![](/images/hiroshima2d7.jpg)
+![](/images/hiroshima2d8.jpg)
+![](/images/hiroshima2d9.jpg)
 
   
 

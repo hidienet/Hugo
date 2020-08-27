@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day7：須崎 → 高知'
 date: 2020-05-18T10:25:00.001+08:00
 draft: false
 aliases: [ "/2020/05/day7_18.html" ]
-tags : [travel-日本-四國, enthusiastic - 鐵道粉]
+tags : [travel-日本-四國, enthusiasm - 鐵道時光]
 ---
 
 食完再走去行吓超市咁啦

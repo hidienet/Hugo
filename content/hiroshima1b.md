@@ -163,17 +163,17 @@ Michelin Guide広島唯一一間拎三星嘅食府
 **食事 香の物（漬物）**  
 唔會醃到冇咗蔬菜本身嘅味  
 
-![](images/hiroshima1b28.jpg)
+![](/images/hiroshima1b28.jpg)
 
 **食事 止め椀（味噌汁）**  
 
-![](images/hiroshima1b29.jpg)
+![](/images/hiroshima1b29.jpg)
 
 **菓子（甘味）**  
 係**求肥**包住**麝香葡萄**  
 完美～  
 
-![](images/hiroshima1b30.jpg)
+![](/images/hiroshima1b30.jpg)
 
 **一筋の光**  
 話說間舖係响好靜嘅地方裡面一個唔起眼嘅角落度  

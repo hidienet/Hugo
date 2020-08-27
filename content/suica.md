@@ -3,7 +3,7 @@ title: 'SUICAのペンギン！！！'
 date: 2013-11-29T11:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/suica.html" ]
-tags : [collections - 可愛い〜, enthusiastic - 鐵道粉]
+tags : [collections - 可愛い〜, enthusiasm - 鐵道時光]
 ---
 
 （＊注意：此篇含有怪異照片，心臟病及孕婦等請慎入！）  

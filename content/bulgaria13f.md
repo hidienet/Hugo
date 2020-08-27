@@ -3,7 +3,7 @@ title: '[保加利亞醉遊記] Day13：Varna to Sofia'
 date: 2014-06-07T21:00:00.000+08:00
 draft: false
 aliases: [ "/2014/06/day13varna-to-sofia.html" ]
-tags : [travel-保加利亞, enthusiastic - 鐵道粉]
+tags : [travel-保加利亞, enthusiasm - 鐵道時光]
 ---
 
 要從Varna搭火車回Sofia了  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day2：高松 → 丸亀'
 date: 2020-03-31T10:27:00.001+08:00
 draft: false
 aliases: [ "/2020/03/day2.html" ]
-tags : [travel-日本-四國, enthusiastic - 鐵道粉]
+tags : [travel-日本-四國, enthusiasm - 鐵道時光]
 ---
 
 貴為うどん県嘅香川  

@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 3：極楽湯again（百白糀、�
 date: 2017-01-27T09:47:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-3again.html" ]
-tags : [flavor - 飲！, enthusiastic - 低溫慢煮, travel-日本-鹿兒島宮崎]
+tags : [flavor - 飲！, enthusiasm - 低溫慢煮, travel-日本-鹿兒島宮崎]
 ---
 
 係呀，又去[極楽湯](https://hidie.net/kojkmi2f/)浸溫泉喇～～～  

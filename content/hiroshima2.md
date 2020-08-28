@@ -38,7 +38,7 @@ late lunch去咗[酔心本店](https://hidie.net/hiroshima2d/)食釜飯
 ![](/images/hiroshima2e.jpg)
 
 攰多過餓不過唔可以唔食癲  
-就去**幸せパンケーキ**食pancake  
+就去[幸せパンケーキ](https://hidie.net/hiroshima2e/)食pancake  
 我知香港都啱啱開  
 呢度唔駛排隊又諗唔到食咩吖嘛  
 都幾好食嘅（另外有食鹹味嘅）  
@@ -46,15 +46,15 @@ late lunch去咗[酔心本店](https://hidie.net/hiroshima2d/)食釜飯
 嗱～ 唔好好食癲係咩後果？  
 夜啲唔夠飽囉！  
 
-![](https://c2.staticflickr.com/2/1937/44431135344_d1bd3b3ac0_z.jpg)
+![](/images/hiroshima2g0.jpg)
 
-好彩住嘅附近有居酒屋 ＠**徳ちゃん**  
+好彩住嘅附近有居酒屋 ＠[徳ちゃん](https://hidie.net/hiroshima2g/)  
 氣氛好好啲嘢食都有水準唔差㗎  
 
-![](https://c2.staticflickr.com/2/1955/44431135884_513c8bd513_z.jpg)
+![](/images/hiroshima2h.jpg)
 
 美秒嘅一日梗係唔少得以雪糕為終結  
-終於試到話題の「**たべる牧場ミルク**」  
+終於試到話題の「[たべる牧場ミルク](https://hidie.net/hiroshima2h/)」  
 超超超濃郁嘅牛牛牛奶呢～～～  
   
 正爆！瞓 Zzz...  

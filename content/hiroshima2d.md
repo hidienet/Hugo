@@ -50,7 +50,8 @@ late lunch去咗**酔心本店**食釜飯
 
 ![](/images/hiroshima2d7.jpg)
 
-定食個釜飯
+定食個釜飯**栗と黒豆釜めし**  
+秋天嘅栗子特別甜（大心）  
 
 ![](/images/hiroshima2d8.jpg)
 
@@ -58,7 +59,9 @@ late lunch去咗**酔心本店**食釜飯
 
 ![](/images/hiroshima2d9.jpg)
 
-  
+但係當然點都唔及得松茸咁爆香啦哈哈哈  
+的菇汁仲滲晒落啲飯度  
+勁爬飯咁全清晒都咪話唔飽呢～（嗝）  
 
 
 {{<hiroshima>}}

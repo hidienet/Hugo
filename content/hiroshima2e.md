@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 2：幸せパンケーキ'
 date: 2020-08-29T12:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima2e.jpg"]
-tags : [travel-日本-廣島, flavor - 行膳積腹]
+tags : [travel-日本-廣島, flavor - 行膳積腹, flavor - 螞蟻族]
 ---
 
 攰多過餓不過唔可以唔食癲  

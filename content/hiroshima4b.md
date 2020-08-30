@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 4：ステラおばさんのクッキー クッ
 date: 2020-09-02T12:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima4b.jpg"]
-tags : [travel-日本-廣島, flavor - ]
+tags : [travel-日本-廣島, flavor - 螞蟻族]
 ---
 
 行行吓街咁都要有啲放水時間  

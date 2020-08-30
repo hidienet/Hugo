@@ -2,7 +2,7 @@
 title: '[広島！食紀行] Day 3：7-11 金のワッフルコーン ミルクバニラ'
 date: 2020-09-01T14:30:00.000+08:00
 draft: false
-images: ["/images/hiroshimadc.jpg"]
+images: ["/images/hiroshima3d.jpg"]
 tags : [travel-日本-廣島, flavor - 螞蟻族]
 ---
 

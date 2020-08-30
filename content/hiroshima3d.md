@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 3：7-11 金のワッフルコーン ミルク�
 date: 2020-09-01T14:30:00.000+08:00
 draft: false
 images: ["/images/hiroshimadc.jpg"]
-tags : [travel-日本-廣島, flavor - ]
+tags : [travel-日本-廣島, flavor - 螞蟻族]
 ---
 
 好啦，個[晚餐](https://hidie.net/hiroshima3c/)飽還飽  

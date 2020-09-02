@@ -3,7 +3,7 @@ title: '[gelato] holly brown - crazy berry'
 date: 2013-10-16T20:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/gelato-holly-brown-crazy-berry.html" ]
-tags : [flavor - 螞蟻族]
+tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
 ---
 
 炒過的gelato會比未炒過的少些空氣  

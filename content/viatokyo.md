@@ -3,7 +3,7 @@ title: '[icecream] Via Tokyo - 抹茶卷、軟雪糕、日本煎茶 & 北海道�
 date: 2019-09-10T22:24:00.000+08:00
 draft: false
 aliases: [ "/2019/09/icecream-via-tokyo.html" ]
-tags : [flavor - 螞蟻族]
+tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
 ---
 
 唔駛排隊咪食囉...  

@@ -3,7 +3,7 @@ title: '[candy] 嚐賞 - 無花果杏仁糖、黃杏脯杏仁糖'
 date: 2020-07-23T17:30:00.000+08:00
 draft: false
 images: ["/images/whatsmymomcooking.jpg"]
-tags : [flavor - 螞蟻族]
+tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
 ---
 
 呢位goodbye同事嘅散水糖實在太有心...  

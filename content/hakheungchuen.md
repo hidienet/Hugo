@@ -3,7 +3,7 @@ title: '[點心] 616 客香邨酒家'
 date: 2020-08-06T19:30:00.000+08:00
 draft: false
 images: ["/images/hakheungchuen.jpg"]
-tags : [flavor - 行膳積腹]
+tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
 ---
 
 港式飲茶唔似茶舖咁杯茶係重點  

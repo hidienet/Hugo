@@ -3,7 +3,7 @@ title: '[cheers!] 麥氏釀酒廠 - 公利啤酒'
 date: 2017-11-25T22:34:00.000+08:00
 draft: false
 aliases: [ "/2017/11/cheers.html" ]
-tags : [flavor - 飲！]
+tags : [flavor - 飲！, enthusiasm - 黃色經濟圈]
 ---
 
 繼上一鑊嘅[奈良梅酒 x 啤酒 crossover](https://hidie.net/nara2h/)  

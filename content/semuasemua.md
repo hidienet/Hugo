@@ -3,7 +3,7 @@ title: '[馬拉] 蘇媽.蘇媽馬來西亞茶餐室 Kedai Kopi Semua Semua'
 date: 2020-01-02T15:29:00.000+08:00
 draft: false
 aliases: [ "/2020/01/kedai-kopi-semua-semua.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！]
+tags : [flavor - 行膳積腹, flavor - 飲！, enthusiasm - 黃色經濟圈]
 ---
 
 好掛住响[沙巴過新年](https://hidie.net/sabah5a/)嘅日子啊啊啊啊啊！  

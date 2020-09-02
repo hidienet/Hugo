@@ -3,7 +3,7 @@ title: '[丼] 一本居酒屋'
 date: 2020-08-25T19:30:00.000+08:00
 draft: false
 images: ["/images/ippon.jpg"]
-tags : [flavor - 行膳積腹]
+tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
 ---
 
 今晚嘅外賣係熱辣辣嘅飯（心）  

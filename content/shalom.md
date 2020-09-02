@@ -3,7 +3,7 @@ title: '[sundae] 嚐樂 黑咕嚕'
 date: 2014-03-15T15:15:00.000+08:00
 draft: false
 aliases: [ "/2014/03/sundae.html" ]
-tags : [flavor - 螞蟻族]
+tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
 ---
 
 「一次過滿足三個願望」  

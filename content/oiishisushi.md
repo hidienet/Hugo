@@ -3,7 +3,7 @@ title: '[鰻] 千の味 鰻魚飯'
 date: 2020-04-30T17:11:00.003+08:00
 draft: false
 aliases: [ "/2020/04/blog-post_30.html" ]
-tags : [flavor - 行膳積腹]
+tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
 ---
 
 「飛轉成田食個鰻魚飯都好吖...」 T-T  

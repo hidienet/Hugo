@@ -3,7 +3,7 @@ title: '[串] 高木'
 date: 2015-06-28T21:30:00.000+08:00
 draft: false
 aliases: [ "/2015/06/blog-post_28.html" ]
-tags : [flavor - 行膳積腹]
+tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
 ---
 
 喝喝酒、慢慢吃、吹吹水  

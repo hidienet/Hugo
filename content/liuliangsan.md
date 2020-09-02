@@ -3,7 +3,7 @@ title: '[麵] 六両三 - 川味紅燒三寶牛肉麵'
 date: 2019-10-24T20:06:00.001+08:00
 draft: false
 aliases: [ "/2019/10/blog-post_24.html" ]
-tags : [flavor - 行膳積腹]
+tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
 ---
 
 好想去台灣呀呀呀～～～  

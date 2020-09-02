@@ -3,7 +3,7 @@ title: '呦呦鹿鳴布丁燒 - 抹茶 & Baileys'
 date: 2019-03-01T19:32:00.001+08:00
 draft: false
 aliases: [ "/2019/03/x-baileys.html" ]
-tags : [flavor - 螞蟻族]
+tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
 ---
 
 難得遇到會嚟呢頭  

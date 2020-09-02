@@ -3,7 +3,7 @@ title: '[麵] 越興園越南菜館 - 薄切牛肉撈檬'
 date: 2020-07-16T19:30:00.000+08:00
 draft: false
 images: ["/images/yuethingyuen.jpg"]
-tags : [flavor - 行膳積腹]
+tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
 ---
 
 開業四十幾年嘅滿滿越式滋味    

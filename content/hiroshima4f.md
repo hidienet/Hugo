@@ -8,7 +8,7 @@ tags : [travel-日本-廣島, flavor - 螞蟻族]
 
 今日嘅最尾：食雪條！  
 
-![](/images/hiroshima4.jpg)
+![](/images/hiroshima4f.jpg)
 
 **LOTTE カルピス アイスバー マルチ**  
 爽皮嘅冰，夾埋裡面流吓流吓嘅calpis  

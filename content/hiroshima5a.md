@@ -11,7 +11,7 @@ tags : [travel-日本-廣島, flavor - 行膳積腹]
 
 ![](/images/hiroshima5a1.jpg) 
 
-43 (キャラントトロワ)  
+**43 (キャラントトロワ)**  
 就算唔係住呢間酒店都會特登嚟食  
 
 ![](/images/hiroshima5a2.jpg) 

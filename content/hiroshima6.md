@@ -8,32 +8,32 @@ tags : [travel-日本-廣島]
 
 因為今朝要「遠行」...  
 
-![](https://3.bp.blogspot.com/-gjGnYlU3MMg/XI-bt6V7V9I/AAAAAAAAIQY/n57dQkEXf8Qfc9HxR1B8GnWcCstVq5BqQCLcBGAs/s640/L1290164.jpg)
+![](/images/hiroshima6a.jpg)
 
-所以出發前先嚟大大個桃，超juicy～  
+所以出發前先嚟[大大個桃](https://hidie.net/hiroshima6a/)，超juicy～  
 
-![](https://2.bp.blogspot.com/-kEzJJgATpQM/XI-bmf07u7I/AAAAAAAAIQU/0a84v77zJJEbXGTnUEhX-8bKbLDqtrDGgCLcBGAs/s640/L1290174.jpg)
+![](/images/hiroshima6b.jpg)
 
-**あなごめし うえの**  
+[あなごめし うえの](https://hidie.net/hiroshima6b/)  
 搭電車由頭站到尾站  
 到咗宮島嘛二話不說就去隊碗星鰻飯  
 時間啱啱好！佢開門冇幾耐  
 位都唔駛等就即刻入座  
 只係等佢燒好鰻魚（嘻嘻）  
 
-![](https://1.bp.blogspot.com/-88t3YUGBu4U/XI-cxr2OukI/AAAAAAAAIQk/It0678hnXYonDCjT3BfG34THU1PbkQIUgCLcBGAs/s640/L1290176.jpg)
+![](/images/hiroshima6c.jpg)
 
-食完鰻魚一出嚟就係**岩村菓子舗**  
+食完鰻魚一出嚟就係[岩村菓子舗](https://hidie.net/hiroshima6c/)  
 老闆一嘢就塞咗個**もみじ饅頭**俾我  
 雖然已經好飽但係舊嘢熱辣辣好適合趁熱食  
 
-![](https://4.bp.blogspot.com/-aHrFNNxSd9k/XI-dPJRz74I/AAAAAAAAIQs/BtmD4m0nrSoH2br42Qb04QPGvZhJe63kwCLcBGAs/s640/L1290187.jpg)
+![](/images/hiroshima6d.jpg)
 
-好喇，坐船去**厳島**喇～  
+好喇，坐船去[厳島](https://hidie.net/hiroshima6d/)喇～  
 
-![](https://3.bp.blogspot.com/-wKgGnpxo-hk/XI-dzvxC-PI/AAAAAAAAIQ0/OLR_s8GpLsAduErwDWuApXYnSvgzdmA9ACLcBGAs/s640/L1290192.jpg)
+![](/images/hiroshima6be.jpg)
 
-當然有鹿啦！  
+當然有[鹿](https://hidie.net/hiroshima6e/)啦！  
 
 ![](https://4.bp.blogspot.com/-e_RKo39Gz7c/XI-fdCbc3VI/AAAAAAAAIQ8/3YUCo_XbTsgPBRs4XwYUVrNtPGnqemVZQCLcBGAs/s640/L1290220.jpg)
 

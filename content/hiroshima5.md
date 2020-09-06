@@ -69,7 +69,7 @@ tags : [travel-日本-廣島]
 
 [ナナズグリーンティー](https://hidie.net/hiroshima5i/)（nana's green cafe）  
 行吓行吓見攰攰哋兼口渴  
-就响呢間好出名嘅抹茶連鎖店nana  
+就呢間好出名嘅抹茶連鎖店nana  
 平日晏晝唔駛排隊就咁入已經有位  
 慢慢坐慢慢嘆（仲要唔會好嘈）  
 

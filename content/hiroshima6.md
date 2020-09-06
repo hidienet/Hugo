@@ -31,83 +31,83 @@ tags : [travel-日本-廣島]
 
 好喇，坐船去[厳島](https://hidie.net/hiroshima6d/)喇～  
 
-![](/images/hiroshima6be.jpg)
+![](/images/hiroshima6e.jpg)
 
 當然有[鹿](https://hidie.net/hiroshima6e/)啦！  
 
-![](https://4.bp.blogspot.com/-e_RKo39Gz7c/XI-fdCbc3VI/AAAAAAAAIQ8/3YUCo_XbTsgPBRs4XwYUVrNtPGnqemVZQCLcBGAs/s640/L1290220.jpg)
+![](/images/hiroshima6f.jpg)
 
-參觀**厳島神社**is a MUST  
+參觀[厳島神社](https://hidie.net/hiroshima6f/)is a MUST  
 
-![](https://3.bp.blogspot.com/-OSRFenxSn6s/XI-iqiwmgqI/AAAAAAAAIRM/4LQaf2nAWgAn1moHhJfMZGo130oShHoVQCLcBGAs/s640/L1290260.jpg)
+![](/images/hiroshima6g.jpg)
 
-**豊国神社**  
+[豊国神社](https://hidie.net/hiroshima6g/)  
 
-![](https://1.bp.blogspot.com/-mgdyL9WtCkE/XI-hUxymcgI/AAAAAAAAIRE/p6Yn_fWrPJoo9c2sWl2nHgysZQWS5odhwCLcBGAs/s640/L1290258.jpg)
+![](/images/hiroshima6h.jpg)
 
-&**五重塔**，係嚴島戰役嘅古戰場之一  
+& [五重塔](https://hidie.net/hiroshima6h/) ，係嚴島戰役嘅古戰場之一  
 
-![](https://1.bp.blogspot.com/-XFso5hNJMHc/XI-jhIcbpWI/AAAAAAAAIRU/52ckEHd6Z6I6iImzTv-vAeZoviGVwyJVQCLcBGAs/s640/L1290265.jpg)
+![](/images/hiroshima6i.jpg)
 
-行得攰攰哋又熱喎咪坐响**宮島珈琲**  
+行得攰攰哋又熱喎咪坐响[宮島珈琲](https://hidie.net/hiroshima6i/)  
 食杯咖啡軟雪糕同慢慢嘆呢杯凍齋啡囉  
 
-![](https://4.bp.blogspot.com/-5PZI_XnFfoo/XI-kHuic9kI/AAAAAAAAIRc/yoUwdcU3GhMFNvHJLn5_6d_QRgITCJUxwCLcBGAs/s640/L1290266.jpg)
+![](/images/hiroshima6j.jpg)
 
-**もみじ堂本店**  
+[もみじ堂本店](https://hidie.net/hiroshima6j/)  
 本身對もみじ饅頭（楓葉饅頭）零興趣  
 而且响宮島嗰陣已經食咗個好新鮮嘅  
 買走做手信就唔會喇  
 不過呢件炸嘅都算吸引嘅  
 
-![](https://4.bp.blogspot.com/-SrKibuWs1Cg/XI-lMrc61jI/AAAAAAAAIRk/oO0_Uc2XUlcs_9ihJyuY7M4voRWwp8WeQCLcBGAs/s640/L1290274.jpg)
+![](/images/hiroshima6k.jpg)
 
-@**みやじま華屋敷**  
+@ [みやじま華屋敷](https://hidie.net/hiroshima6k/)  
 牡蠣屋公休，冇得响最出名嘅地方食啫  
 其實都唔係太大所謂  
 街邊炭火即燒嘅都好香好好味呀  
 
-![](https://2.bp.blogspot.com/-Fjj58tr0WKU/XI-m6I_TsEI/AAAAAAAAIRs/Xsn-qHJeOOobpnmP69cwHTAMUlHqtoN6gCLcBGAs/s640/L1290276.jpg)
+![](/images/hiroshima6l.jpg)
 
-**茶和々**  
+[茶和々](https://hidie.net/hiroshima6l/)  
 行過聞到啲綠茶味超香  
 入去見到啲**抹茶のわらびもち**輕輕叫喚我  
 好啦食你啦食你啦  
 
-![](https://3.bp.blogspot.com/-TkUFecc1B_Y/XI-pKt9tASI/AAAAAAAAIR0/zHyb_wezhzktB6-76YKWHroLVelmqurkwCLcBGAs/s640/L1290277.jpg)
+![](/images/hiroshima6m.jpg)
 
-臨上船前又聞到呢檔嘅燒汁串燒蠔好鬼香  
+臨上船前又聞到呢檔嘅燒汁[串燒蠔](https://hidie.net/hiroshima6m/)好鬼香  
 喂呀响嚴島唔食新鮮蠔真係會對自己唔住㗎！  
 
-![](https://2.bp.blogspot.com/-J8Ay1fQ-Ars/XI-qCBD1uFI/AAAAAAAAIR8/-5r0oRb5Vboj8J-aIjlgvkjW_f_Y6Co1gCLcBGAs/s640/L1290290.jpg)
+![](/images/hiroshima6n.jpg)
 
-**原爆ドーム**  
+[原爆ドーム](https://hidie.net/hiroshima6n/)  
 離開厳島再搭車又搭船返返去市中心  
 落車順便參觀吓嘅遺址  
 PEACE NO WAR  
 
-![](https://2.bp.blogspot.com/-qbeXwQ9sp1I/XI-rlLBxsEI/AAAAAAAAISE/_6NN_qRwnLEOHnPl5IFGC1zYu-YqvalAwCLcBGAs/s640/L1290292.jpg)
+![](/images/hiroshima6o.jpg)
 
-係咁意落去**紙屋町シャレオ**兜吓  
+係咁意落去[紙屋町シャレオ](https://hidie.net/hiroshima6o/)兜吓  
 行街呢家嘢真係行到厭  
 算啦都係去食嘢啦～  
 
-![](https://4.bp.blogspot.com/-eh2qhjASK-g/XI-tyYfTzxI/AAAAAAAAISM/eqg3NZUNZQk8Nvyv-Agjy69QFuY7u0OHgCLcBGAs/s640/L1290294.jpg)
+![](/images/hiroshima6p.jpg)
 
 冇特定諗到食乜  
-兜到去**米米食堂**前見到間舖靚靚哋咁咪入去囉  
+兜到去[米米食堂](https://hidie.net/hiroshima6p/)前見到間舖靚靚哋咁咪入去囉  
 懶得諗食咩就叫個人氣冧巴溫嘅**鶏唐揚げ定食**  
 啲飯仲可以無限㖭呢！  
 
-![](https://4.bp.blogspot.com/-9_pwZa-Ec8Q/XI-ur6gS4MI/AAAAAAAAISU/dUy_wWNRvt0egACPI7YMe4Efpx6vNN5dACLcBGAs/s640/L1290304.jpg)
+![](/images/hiroshima6q.jpg)
 
-**重富酒店**  
+[重富酒店](https://hidie.net/hiroshima6q/)  
 今次旅程唯一一次排隊嘅地方  
 每日只開兩粒鐘嘅立飲生啤店仔  
 
-![](https://4.bp.blogspot.com/-Y-H7KJOnlbI/XI-vlbkufwI/AAAAAAAAISc/g3SXixrl_3wZk8aLNZqdfQP_CgduhxXwQCLcBGAs/s640/L1290312.jpg)
+![](/images/hiroshima6r.jpg)
 
-**元祖 広島牛骨醤油ラーメン 大嵐**  
+[元祖 広島牛骨醤油ラーメン 大嵐](https://hidie.net/hiroshima6r/)  
 飲完啤飽飽哋返宿hea  
 到宵夜時段先落街食拉麵  
 呢個湯底係牛骨加A5和牛脂肪整成  

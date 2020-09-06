@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 5：からあげの店 唐十'
 date: 2020-09-08T16:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima5h.jpg"]
-tags : [travel-日本-廣島, flavor - ]
+tags : [travel-日本-廣島, flavor - 螞蟻族]
 ---
 
 食完晏見到呢間炸物舖

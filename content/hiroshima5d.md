@@ -1,5 +1,5 @@
 ---
-title: '[広島！食紀行] Day 5：広島城'
+title: '[広島！食紀行] Day 5：広島護國神社'
 date: 2020-09-07T12:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima5d.jpg"]

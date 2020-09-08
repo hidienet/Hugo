@@ -11,7 +11,7 @@ tags : [travel-日本-廣島]
 
 ![](/images/hiroshima5f.jpg)
 
-**Aeon Mall Hiroshima-Fuchū イオンモール広島府中**
+**Aeon Mall Hiroshima-Fuchū イオンモール広島府中**  
 冇咩特別樓高幾層嘅綜合商場  
 避熱係唔錯嘅，不過行咗成朝而家都係去搵嘢食先...
 

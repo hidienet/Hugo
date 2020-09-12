@@ -1,6 +1,6 @@
 ---
 title: '[広島！食紀行] Day 6：厳島神社'
-date: 2020-09-12T09:30:00.000+08:00
+date: 2020-09-14T09:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima6f.jpg"]
 tags : [travel-日本-廣島]

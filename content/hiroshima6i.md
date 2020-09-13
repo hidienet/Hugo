@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 6：宮島珈琲'
 date: 2020-09-15T08:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima6i.jpg"]
-tags : [travel-日本-廣島, flavor - 螞蟻族， flavor - 飲！]
+tags : [travel-日本-廣島, flavor - 螞蟻族, flavor - 飲！]
 ---
 
 行得攰攰哋又熱喎

@@ -1,5 +1,5 @@
 ---
-title: '[広島！食紀行] Day 6：'
+title: '[広島！食紀行] Day 6：紙屋町シャレオ'
 date: 2020-09-17T12:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima6o.jpg"]

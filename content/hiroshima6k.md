@@ -9,7 +9,7 @@ tags : [travel-日本-廣島, flavor - 小食部]
 牡蠣屋公休  
 冇得响最出名嘅地方食...
 
-![](/images/hiroshiam6k.jpg)
+![](/images/hiroshia6k.jpg)
 
 ...之嘛  
 

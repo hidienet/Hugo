@@ -97,7 +97,7 @@ PEACE NO WAR
 冇特定諗到食乜  
 兜到去[米米食堂](https://hidie.net/hiroshima6p/)前見到間舖靚靚哋咁咪入去囉  
 懶得諗食咩就叫個人氣冧巴溫嘅**鶏唐揚げ定食**  
-啲飯仲可以無限㖭呢！  
+啲飯仲可以無限呢！  
 
 ![](/images/hiroshima6q.jpg)
 

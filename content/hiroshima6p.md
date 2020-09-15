@@ -26,7 +26,7 @@ tags : [travel-日本-廣島, flavor - 行膳積腹]
 
 ![](/images/hiroshima6p3.jpg)
 
-**牛タン**  
+**牛タン定食**  
 well, 又係牛脷控出沒注意  
 個味都香嘅不過薄咗啲囉（遠望）...  
   

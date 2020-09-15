@@ -9,11 +9,11 @@ tags : [travel-日本-廣島]
 離開宮島搭車又搭船返返去市中心  
 落車順便參觀吓嘅遺址  
 
-![](/images/hiroshiam6n1.jpg)
+![](/images/hiroshima6n1.jpg)
 
 **原爆ドーム | 原爆dome**
 
-![](/images/hiroshiam6n2.jpg)
+![](/images/hiroshima6n2.jpg)
 
 本身係明治43年（1910年）構想興建嘅**広島県物産陳列館**  
 六年後嘅大正4年（1915年）竣工  
@@ -21,35 +21,35 @@ tags : [travel-日本-廣島]
 昭和8年（1933年）再改名做**広島県産業奨励館**  
 係當時重要嘅會展場地  
 
-![](/images/hiroshiam6n3.jpg)
+![](/images/hiroshima6n3.jpg)
 
 係由捷克斯洛伐克建築師Jan Letzel所設計  
 建築風格為新古典主義  
 
-![](/images/hiroshiam6n4.jpg)
+![](/images/hiroshima6n4.jpg)
 
 以部分磚造部分鋼筋混凝土構造  
 外覆石材同砂漿修飾
 最後用銅製圓頂覆蓋頂部
 
-![](/images/hiroshiam6n5.jpg)
+![](/images/hiroshima6n5.jpg)
 
 建築本體為地下一層地上三層
 而中間嘅圓頂部分則有五層樓高
 
-![](/images/hiroshiam6n6.jpg)
+![](/images/hiroshima6n6.jpg)
 
 眾所周知，座嘢响1945年8月6日  
 美軍用原子彈轟炸廣島  
 爆炸中心附近嘅建築物幾乎全數被夷為平地  
 得返呢座建築勉強屹立未完全倒塌  
 
-![](/images/hiroshiam6n7.jpg)
+![](/images/hiroshima6n7.jpg)
 
 呢個遺址亦都成為廣島和平紀念公園嘅一部份
 响1996年聯合國教科文組織將此列為世界遺產
 
-![](/images/hiroshiam6n8.jpg)
+![](/images/hiroshima6n8.jpg)
 
 好喇，兜夠一圈  
 都係嗰句：PEACE NO WAR！  

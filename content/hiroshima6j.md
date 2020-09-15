@@ -9,13 +9,13 @@ tags : [travel-日本-廣島, flavor - 螞蟻族]
 本身對もみじ饅頭（楓葉饅頭）零興趣
 而且嚟宮島嗰陣已經食咗個[好新鮮](https://hidie.net/hiroshima6c/)嘅
 
-![](/images/hiroshima6i1.jpg)
+![](/images/hiroshima6j1.jpg)
 
 **もみじ堂本店**  
 買走做手信就唔會喇  
 不過呢間賣係炸嘅都算吸引嘅  
 
-![](/images/hiroshima6i2.jpg)
+![](/images/hiroshima6j2.jpg)
 
 **揚げもみじ チーズ**  
 傳統紅豆味應該滿足唔到我  
@@ -23,7 +23,7 @@ tags : [travel-日本-廣島, flavor - 螞蟻族]
 哈，炸cheesecake咁又幾特別  
 真係麵粉呀糖呀芝士咁完全冇唔夾嘅味道  
 
-![](/images/hiroshima6i3.jpg)
+![](/images/hiroshima6j3.jpg)
 
 **揚げもみじ 瀬戸内レモン**  
 嗱～ 响呢個海岸唔食瀬戸内檸檬又唔係道理  

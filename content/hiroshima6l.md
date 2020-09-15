@@ -8,12 +8,12 @@ tags : [travel-日本-廣島, flavor - 螞蟻族]
 
 响周圍都飄住蠔味中...
 
-![](/images/hiroshiam6l1.jpg)
+![](/images/hiroshima6l1.jpg)
 
 **茶和々**  
 行過聞到啲綠茶味超香  
 
-![](/images/hiroshiam6l2.jpg)
+![](/images/hiroshi6l2.jpg)
 
 入去見到啲**抹茶のわらびもち**輕輕叫喚我  
 好啦食你啦食你啦  

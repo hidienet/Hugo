@@ -52,7 +52,7 @@ tags : [travel-日本-鹿兒島長崎]
 
 ![](https://ltgvww.ch.files.1drv.com/y4mFKLmdchnqZvPEPYPzWRWQlWleW2DO5Uu_0OLeYNqO2rEUJE7HyxP8W9_7lMRgheztILRUv3KyI-iAtrpCOr0D1U_eBPAwSWfh75Yatvlr2bJjiSJpX_7wS0VIJdQV2xPj1b_6xBzffLltFNCoOJbYxK7Q1LSAnYgXcrNIwQug91Etg7RoOkBNeBDq7qdGdJuwc4_0ccJTGNe3eDzzULHvw?width=371&height=660&cropmode=none)
 
-好耐冇見嘅[克灰袋](https://www.hidie.net/2017/05/happy-days-day-7_24.html)  
+好耐冇見嘅[克灰袋](https://hidie.net/kojkmi7d22/)  
 
 ![](https://ndgwww.ch.files.1drv.com/y4mHHe2idQnGcCvA8MruWrkTo-tRAV4HpuYIH7PToigtQKrDaX5rbF72gf3GXfedrlJcLlQKhHQbzUZcMWIqnNI2tkVq48KPzdYvadHpp7O3bvSd6Iq4TLWZsSZshuUOzsC5-w2N5PhBoZy2X4ATeJg0JJ8M9hZRBA8RylM0VY0GgyaiJfkWHgBj9H6AnXesS5_twdARAsPjWLteHVu1ccexA?width=660&height=371&cropmode=none)
 
@@ -86,7 +86,7 @@ tags : [travel-日本-鹿兒島長崎]
 ![](https://nngwww.ch.files.1drv.com/y4mtlMSKJ4TfOqE2o6QC4FnXN506GytcbmfM6pA-gqmMYxl-yMavt92dfEzgQsDiDem9Qe6Yj5EWa3Wg-RLi2O6-K9F7hoKakUoigaYNLsFaIn1kHVJ-H8jszSIQTp141NIRtdPoD0_DeogNiS2oMnN_GLXZd-V6XL1awq1b6DMqmH1gFq4KHQZyd8U1ExN8Msc7TGfTenGIS40ox3fzyLybg?width=660&height=371&cropmode=none)
 
 無遠弗屆嘅珍珠啊！  
-今次响[咖啡沙冰](https://www.hidie.net/2019/03/day-7-boss-shake-mirori-cafe.html)裡面喇～  
+今次响[咖啡沙冰](https://hidie.net/hiroshima7b/)裡面喇～  
 
 ![](https://m9gvww.ch.files.1drv.com/y4m-QIGGBuDQRM07kIfwGkQPhyR50iFOSNyJ_1AKc_5b6vvERrOWMNPefw5AWvTMBcIqWkPK9M51BWnBojbytpAJJDuRHQY3e7VhQDkSmZdxmpeN9fRU308MSosRpmijoZNfT73JwMam_9xhr86swKRLU4Bcjo66CsmDiBKnjcsN7ouubr4mmW_WIjZVVmUfsm1vj0gpVOodwMz_009WRZ6gw?width=660&height=371&cropmode=none)
 
@@ -188,7 +188,7 @@ thank you
 ![](https://n9ev0a.ch.files.1drv.com/y4mVR6SWH_IWDzKYaQrwBgy4EjkEOW8Jhigtn-CoKATfswmr1KSma151BTlFR0FDlzAawbsTMttimLhopMX7jsk7ePEGGpU5O072ZPe7YTkAVtHutsiMqATePS-10TPmlt0l9070QqWcM7QVda4mL1xCz9rUX_aQ5jiZ-X1V34DWRK4qvESkb-GvHTiY4YzS0JISRZjXdhzivN0ZrhfRgALww?width=660&height=371&cropmode=none)
 
 **SEIKA 南国白くまモナカ**  
-今次响鹿兒島就冇再食返[白熊](https://www.hidie.net/2017/06/happy-days-day-9_22.html)  
+今次响鹿兒島就冇再食返[白熊](https://hidie.net/kojkmi9d/)  
 响長崎便利店個雪糕櫃見到佢咪買吓囉  
 
 ![](https://n9et0a.ch.files.1drv.com/y4mqwv29NTn7eVg30_xBFMU1P1HEifx-c4PaK3QYpzDB8ML2Hdeg2UUlg6L6U3MI0MHL2CaqZMO4whFhhlrMWKHgJtJYyP8upMKjqir-ZnyrhD9fWex_3PFjpENxhRJXGsjBBBR_u1jVkzeFkhgnWGcGSuPlJUoMce-LsvOTWU4ikzg_nTOtLyOMA_mgqWkKMLTXmSV22Tr6y6sYB68GHL-vA?width=660&height=371&cropmode=none)

@@ -19,7 +19,7 @@ tags : [travel-日本-廣島, flavor - 小食部]
 
 ![](/images/hiroshima2f3.jpg)
 
-連水渠蓋
+連水渠蓋都有佢嘅蹤影
 
 ![](/images/hiroshima2f.jpg)
 

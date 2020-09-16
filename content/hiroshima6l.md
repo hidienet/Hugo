@@ -13,7 +13,7 @@ tags : [travel-日本-廣島, flavor - 螞蟻族]
 **茶和々**  
 行過聞到啲綠茶味超香  
 
-![](/images/hiroshi6l2.jpg)
+![](/images/hiroshima6l2.jpg)
 
 入去見到啲**抹茶のわらびもち**輕輕叫喚我  
 好啦食你啦食你啦  

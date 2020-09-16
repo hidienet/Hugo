@@ -13,7 +13,7 @@ tags : [travel-日本-廣島, flavor - 飲！]
 **SUNTORY × LOTTERIA BOSS SHAKE**  
 响Lotteria唞陣飲杯crossover咖啡奶昔先  
 唔算好甜又有美味咖啡香都唔錯   
-（個沙冰味好過[star乜](https://hidie.net/starbuckstriple/)杯...）
+（個沙冰味好過[star乜](https://hidie.net/starbuckstriple/)嗰杯...）
 
   
 {{<hiroshima>}}

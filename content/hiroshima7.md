@@ -13,30 +13,30 @@ tags : [travel-日本-廣島]
 
 擒日牡蠣屋公休食唔到蠔餐  
 但都唔會令旅程有遺憾  
-因為今日係嚟**かき船 かなわ**食返夠（哈）  
+因為今日係嚟[かき船 かなわ](https://hidie.net/hiroshima7a/)食返夠（哈）  
 生蠔蒸蠔煮蠔炸蠔都有齊，好滿足～  
 仲要响「沙田畫舫」咁嘅船食哂靚景呢！  
 
-![](/images/hiroshima7a.jpg)
+![](/images/hiroshima7b.jpg)
 
-**SUNTORY×LOTTERIA BOSS SHAKE**  
+[SUNTORY×LOTTERIA BOSS SHAKE](https://hidie.net/hiroshima7b/)  
 大雨商店街漫步中  
 响Lotteria唞陣飲杯crossover咖啡奶昔先  
 
-![](/images/hiroshima7b.jpg)
-
-因為儲夠印花，可以減價買嘢食  
-就坐低响 **みのりカフェ（Mirori Cafe）** 食返杯parfait  
-
 ![](/images/hiroshima7c.jpg)
 
-朝早行去かき船前途經呢間**焼肉 牛腸鉄平食堂**  
-就講畀同行人聽「啊～ 啲燒肉放題都幾抵喎仲係稀少部位㖭」  
-然後條友就建議嚟呢度食晚餐  
+因為儲夠印花，可以減價買嘢食  
+就坐低响 [みのりカフェ（Mirori Cafe）](https://hidie.net/hiroshima7c/) 食返杯parfait  
 
 ![](/images/hiroshima7d.jpg)
 
-**LOTTE食感・新発見スライスアーモンドアイスバー**  
+朝早行去かき船前途經呢間[焼肉 牛腸鉄平食堂](https://hidie.net/hiroshima7d/)  
+就講畀同行人聽「啊～ 啲燒肉放題都幾抵喎仲係稀少部位㖭」  
+然後條友就建議嚟呢度食晚餐  
+
+![](/images/hiroshima7e.jpg)
+
+[LOTTE食感・新発見スライスアーモンドアイスバー](https://hidie.net/hiroshima7e/)  
 雖然食完燒肉放題而且放題係有雪糕食  
 之不過呢盒嘢實在太太太吸引嘛  
 唔食點得呀呀呀？！  

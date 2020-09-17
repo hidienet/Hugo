@@ -11,7 +11,7 @@ tags : [travel-日本-廣島]
 
 ![](/images/hiroshima6n1.jpg)
 
-**原爆ドーム | 原爆dome**
+**原爆ドーム | 原爆dome**  
 
 ![](/images/hiroshima6n2.jpg)
 
@@ -29,13 +29,13 @@ tags : [travel-日本-廣島]
 ![](/images/hiroshima6n4.jpg)
 
 以部分磚造部分鋼筋混凝土構造  
-外覆石材同砂漿修飾
-最後用銅製圓頂覆蓋頂部
+外覆石材同砂漿修飾  
+最後用銅製圓頂覆蓋頂部  
 
 ![](/images/hiroshima6n5.jpg)
 
-建築本體為地下一層地上三層
-而中間嘅圓頂部分則有五層樓高
+建築本體為地下一層地上三層  
+而中間嘅圓頂部分則有五層樓高  
 
 ![](/images/hiroshima6n6.jpg)
 
@@ -46,8 +46,8 @@ tags : [travel-日本-廣島]
 
 ![](/images/hiroshima6n7.jpg)
 
-呢個遺址亦都成為廣島和平紀念公園嘅一部份
-响1996年聯合國教科文組織將此列為世界遺產
+呢個遺址亦都成為廣島和平紀念公園嘅一部份  
+响1996年聯合國教科文組織將此列為世界遺產  
 
 ![](/images/hiroshima6n8.jpg)
 

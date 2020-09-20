@@ -99,9 +99,9 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
   
 ##廣島好買##   
 [Calbee ふるシャカ 広島版](https://hidie.net/hiroshima2f/)  
-広島菜漬  
-牡蠣屋のふりかけ  
-十六味保命酒 保命酒のど飴  
+[廣島魁 山豊 広島菜漬](https://hidie.net/yamatoyo/)  
+[牡蠣屋のふりかけ](https://hidie.net/kakiya/)  
+[十六味保命酒 保命酒のど飴](https://hidie.net/ichiran/)  
 
 
 

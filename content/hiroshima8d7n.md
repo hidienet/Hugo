@@ -14,13 +14,13 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
 不過只係留响広島市中心同去轉宮島啫  
 去行吓食吓完全夠食冇難度  
 
-#### Day 1：[尾道らーめん 三公 | 季節料理 なかしま](https://hidie.net/hiroshima1/)  
+#### Day 1：[尾道らーめん 三公 | 季節料理 なかしま](https://hidie.net/hiroshima1/)
 [尾道らーめん 三公](https://hidie.net/hiroshima1a/)  
 [季節料理 なかしま](https://hidie.net/hiroshima1b/)  
 [LOTTE 爽 梨](https://hidie.net/hiroshima1c/)  
   
   
-#### Day2：[e's time cafe & ANDERSEN | 酔心本店 | 幸せパンケーキ | 徳ちゃん](https://hidie.net/hiroshima2/)  
+#### Day2：[e's time cafe & ANDERSEN | 酔心本店 | 幸せパンケーキ | 徳ちゃん](https://hidie.net/hiroshima2/)
 [AUBE hair vicella](https://hidie.net/hiroshima2a/)  
 [イースタイムカフェ&アンデルセン | e’s time cafe & ANDERSEN](https://hidie.net/hiroshima2b/)  
 [Visit Hiroshima Tourist Pass](https://hidie.net/hiroshima2c/)  
@@ -30,14 +30,14 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
 [たべる牧場ミルク](https://hidie.net/hiroshima2h/)  
   
   
-#### Day3：[Yesterday | 田頭茶舗 | みっちゃん総本店](https://hidie.net/hiroshima3/)  
+#### Day3：[Yesterday | 田頭茶舗 | みっちゃん総本店](https://hidie.net/hiroshima3/)
 [イエスタディ (Yesterday)](https://hidie.net/hiroshima3a/)  
 [田頭茶舗](https://hidie.net/hiroshima3b/)  
 [みっちゃん総本店](https://hidie.net/hiroshima3c/)  
 [7-11 金のワッフルコーン ミルクバニラ](https://hidie.net/hiroshima3d/)  
   
   
-#### Day4：[倉式珈琲店 | THE OUTLETS HIROSHIMA | 天ぷら・宝](https://hidie.net/hiroshima4/)  
+#### Day4：[倉式珈琲店 | THE OUTLETS HIROSHIMA | 天ぷら・宝](https://hidie.net/hiroshima4/)
 [倉式珈琲店](https://hidie.net/hiroshima4a/)  
 [ステラおばさんのクッキー クッキー詰め放題](https://hidie.net/hiroshima4b/)  
 [THE OUTLETS HIROSHIMA](https://hidie.net/hiroshima4c/)  
@@ -46,7 +46,7 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
 [LOTTE カルピス アイスバー マルチ](https://hidie.net/hiroshima4f/)  
   
   
-#### Day5：[43 | 縮景園 | 広島城、広島護國神社 | 波平キッチン](https://hidie.net/hiroshima5/)  
+#### Day5：[43 | 縮景園 | 広島城、広島護國神社 | 波平キッチン](https://hidie.net/hiroshima5/)
 [43 (キャラントトロワ)](https://hidie.net/hiroshima5a/)  
 [縮景園](https://hidie.net/hiroshima5b/)  
 [広島城](https://hidie.net/hiroshima5c/)  
@@ -60,7 +60,7 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
 [森永乳業 ＭＯＷ(モウ) ソルティーバターキャラメル](https://hidie.net/hiroshima5k/)  
   
   
-#### Day6：[あなごめし うえの → 厳島 → 重富酒店 | 大嵐](https://hidie.net/hiroshima6/)  
+#### Day6：[あなごめし うえの → 厳島 → 重富酒店 | 大嵐](https://hidie.net/hiroshima6/)
 [桃](https://hidie.net/hiroshima6a/)  
 [あなごめし うえの](https://hidie.net/hiroshima6b/)  
 [岩村菓子舗 もみじ饅頭](https://hidie.net/hiroshima6c/)  
@@ -81,7 +81,7 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
 [元祖 広島牛骨醤油ラーメン 大嵐](https://hidie.net/hiroshima6r/)  
   
   
-#### Day7：[かき船 かなわ | Mirori Cafe | 焼肉 牛腸鉄平食堂](https://hidie.net/hiroshima7/)  
+#### Day7：[かき船 かなわ | Mirori Cafe | 焼肉 牛腸鉄平食堂](https://hidie.net/hiroshima7/)
 [かき船 かなわ](https://hidie.net/hiroshima7a/)  
 [SUNTORY × LOTTERIA BOSS SHAKE](https://hidie.net/hiroshima7b/)  
 [みのりカフェ（Mirori Cafe）](https://hidie.net/hiroshima7c/)  
@@ -89,7 +89,7 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
 [ロッテ スライスアーモンドアイスバー | ブルボン ルマンドアイス](https://hidie.net/hiroshima7e/)  
   
   
-#### Day8：[BAGEL&BAGEL | そば処 菜の里](https://hidie.net/hiroshima8/)  
+#### Day8：[BAGEL&BAGEL | そば処 菜の里](https://hidie.net/hiroshima8/)
 [岸本3.5牛乳](https://hidie.net/hiroshima8a/)  
 [BAGEL&BAGEL](https://hidie.net/hiroshima8b/)  
 [廣島一二事](https://hidie.net/hiroshima8c/)  
@@ -97,7 +97,7 @@ tags : [lifestyle - 逃離852, travel-日本-廣島]
   
   
   
-##廣島好買##   
+#### 廣島好買
 [Calbee ふるシャカ 広島版](https://hidie.net/hiroshima2f/)  
 [廣島魁 山豊 広島菜漬](https://hidie.net/yamatoyo/)  
 [牡蠣屋のふりかけ](https://hidie.net/kakiya/)  

@@ -1,5 +1,5 @@
 ---
-title: '廣島魁 山豊 広島菜漬'
+title: '[生活原味] 廣島魁 山豊 広島菜漬'
 date: 2020-09-22T15:30:00.000+08:00
 draft: false
 images: ["/images/yamatoyo.jpg"]

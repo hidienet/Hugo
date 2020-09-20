@@ -7,10 +7,11 @@ tags : [travel-日本-廣島, flavor - 螞蟻族]
 ---
    
 因為儲夠印花，可以減價買嘢食  
+就坐低响 **みのりカフェ**（Mirori Cafe）食返杯parfait  
 
 ![](/images/hiroshima7c1.jpg)
 
-就坐低响 **みのりカフェ**（Mirori Cafe）食返杯parfait  
+**無花果 | ミックスフルーツ**  
 一款無花果一款雜果  
 上層生果中層cream底層係水果jelly  
 好豐富呢～  

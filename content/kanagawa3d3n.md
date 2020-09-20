@@ -86,4 +86,3 @@ tags : [lifestyle - 逃離852, travel-日本-神奈川]
 
 籮神蔬果檔，哈～
 
-{{<kanagawa>}}

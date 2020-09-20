@@ -1,5 +1,5 @@
 ---
-title: '[広島！食紀行] Day 8：廣島'
+title: '[広島！食紀行] Day 8：廣島一二事'
 date: 2020-09-21T15:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima8c.jpg"]

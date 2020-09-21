@@ -13,7 +13,8 @@ tags : [travel-日本-廣島, flavor - 行膳積腹]
 ![](/images/hiroshima8b.jpg)    
 
 **豆乳枝豆 クリームチーズサンド プレーン**  
-啱啱開舖啲bagel香軟熱辣加埋啲cream餡好好味  
+啱啱開舖啲bagel香軟熱辣  
+加埋啲cream餡好好味  
 brunch set會有埋湯加嘢飲  
 嗌咗蔬菜湯同蜂蜜牛奶  
 好飽飽呢～  

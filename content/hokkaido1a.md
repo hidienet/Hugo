@@ -1,5 +1,5 @@
 ---
-title: 'Hokkaido Rail Pass | 北海道鐵路周遊券'
+title: '[食道鉄道北海道] Day1：Hokkaido Rail Pass | 北海道鐵路周遊券'
 date: 2020-09-24T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido1a.jpg"]
@@ -22,7 +22,7 @@ GO～
 再book定嚟緊幾日嘅火車飛  
 YES！一！大！疊！  
 繼之前[四国鉄道兜一圈](https://hidie.net/shikoku8d7n/)  
-今次就嚟個北海道鉄道遊  
+今次就嚟個**北海道鉄道遊**  
 又嚟個「買咗JR pass就玩到佢盡」嘅旅程（哈哈哈）  
   
   

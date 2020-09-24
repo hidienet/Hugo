@@ -1,5 +1,5 @@
 ---
-title: '[食道鉄道北海道] Day2：幸福駅'
+title: '[食道鉄道北海道] Day2：スイーツめぐり券'
 date: 2020-09-28T16:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido2c.jpg"]

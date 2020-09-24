@@ -20,7 +20,11 @@ tags : [travel-日本-北海道]
 
 ![](/images/hokkaido1g3.jpg)
 
-响滿席同就收工加上落雨之間...
+响滿席、就收工
+
+![](/images/karigurashi018.jpg)
+
+同落緊雨之間...
 
 ![](/images/hokkaido1g.jpg)
 

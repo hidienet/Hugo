@@ -26,17 +26,17 @@ tags : [travel-日本-北海道]
 個包唔會油淋淋  
 豆餡幼滑仲唔係好甜㗎咋，好好味～  
 
-![](https://c1.staticflickr.com/5/4508/37258597981_af16be3c0a_z.jpg)
+![](/images/hokkaido2b.jpg)
 
-**幸福駅**  
+[幸福駅](https://hidie.net/hokkaido2b/)  
 今朝就會離開帯広  
 行程就變成去唔到廢棄咗嘅幸福駅  
 無所謂啦呢度都有個「小幸福」  
 但係嚟呢度唔係為咗呢個站仔啦  
 
-![](https://c1.staticflickr.com/5/4426/37258597571_c079a1ae6f_z.jpg)
+![](/images/hokkaido2c.jpg)
 
-係為咗嚟買張**スイーツめぐり券**  
+係為咗嚟買張[スイーツめぐり券](https://hidie.net/hokkaido2c/)  
 張嘢係由帶廣觀光協會推出  
 向帯広呢個甜品王國  
 可以拎住呢張券  

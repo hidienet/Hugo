@@ -20,7 +20,10 @@ tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 
 **帯広駅**  
 磨吓磨吓咁就七點天都黑齊  
-快快手去酒店check-in咗就開始搵嘢喇！
+
+![](/images/kaguyahime033.jpg)
+
+快快手去酒店check-in咗就開始搵嘢食喇！
   
   
 {{<hokkaido>}}

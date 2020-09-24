@@ -29,7 +29,7 @@ tags : [travel-日本-廣島, flavor - 螞蟻族]
 
 ![](/images/hiroshima5i3.jpg)
 
-topping有抹茶糖漿cream啦
+topping有抹茶糖漿cream啦  
 抹茶雪糕球同抹茶生朱古力  
 當然仲有同抹茶好夾嘅紅豆蓉球  
 再落就係玄米脆片  

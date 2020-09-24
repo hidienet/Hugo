@@ -121,7 +121,7 @@ premium啤係用聚泡聚香氣嘅杯裝住
 ![](/images/kanagawa2d24.jpg)
 
 但唔代表唔會消費啊  
-（鬼叫啲「工場限定品」咁L吸引咩）  
+（鬼叫啲「[工場限定品](https://hidie.net/kanagawakirin/)」咁L吸引咩）  
 
 
 

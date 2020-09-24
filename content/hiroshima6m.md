@@ -8,26 +8,26 @@ tags : [travel-日本-廣島, flavor - 小食部, enthusiasm - 鐵道時光]
 
 臨上船前又聞到好鬼香嘅味道...
 
-![](/images/hiroshiam6m1.jpg)
+![](/images/hiroshima6m1.jpg)
 
 係**燒汁串燒蠔**！！！
 喂呀响嚴島唔食新鮮蠔真係會對自己唔住㗎！  
 
-![](/images/hiroshiam6m2.jpg)
+![](/images/hiroshima6m2.jpg)
 
 搭返**JR宮島フェリー**回程
 
-![](/images/hiroshiam6m3.jpg)
+![](/images/hiroshima6m3.jpg)
 
 見到遠處大鳥居潮退  
 啲人就行埋去  
 
-![](/images/hiroshiam6m4.jpg)
+![](/images/hiroshima6m4.jpg)
 
 不過咁曬嘛最後都係秒skip  
 情願早啲走返去好過  
 
-![](/images/hiroshiam6m5.jpg)
+![](/images/hiroshima6m5.jpg)
 
 返到嚟**宮島口駅**  
 又係漫長返去市中心嘅車程  

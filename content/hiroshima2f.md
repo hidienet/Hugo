@@ -17,6 +17,10 @@ tags : [travel-日本-廣島, flavor - 小食部]
 
 車廂裡面都有球員簽名看板  
 
+![](/images/hiroshima2f3.jpg)
+
+連水渠蓋都有佢嘅蹤影
+
 ![](/images/hiroshima2f.jpg)
 
 **Calbee ふるシャカ 広島版**  

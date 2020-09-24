@@ -36,6 +36,10 @@ tags : [travel-日本-北海道, flavor - 行膳積腹]
 
 個樣即刻似番日本嘢  
 不過個辣度就一啲都唔日本！！！  
-  
+
+![](/images/marnie044.jpg)
+
+「媽，好辣呀~~~」
+
   
 {{<hokkaido>}}

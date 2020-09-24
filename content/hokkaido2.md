@@ -12,9 +12,9 @@ tags : [travel-日本-北海道]
   
 咁落街食早餐啦...  
 
-![](https://c1.staticflickr.com/5/4435/37258598431_a340536ffb_z.jpg)
+![](/images/hokkaido2a.jpg)
 
-**あんパン** @**ますやパン 満寿屋本店**  
+**あんパン** @ [ますやパン 満寿屋本店](https://hidie.net/hokkaido2a/)  
 1950年响帯広創業  
 整個麵包裡裡外外都係用北海道原料製作  
 而就咁噏帯広可能唔易明白  

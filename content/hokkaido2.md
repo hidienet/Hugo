@@ -61,19 +61,19 @@ tags : [travel-日本-北海道]
 食完就繼續行喇  
 見熱熱地就想食返杯雪糕  
 
-![](https://c1.staticflickr.com/5/4401/37258597351_126e00f0e3_z.jpg)
+![](/images/hokkaido2f.jpg)
 
-咁第二張券就係俾咗**T-SWEETS （十勝野スイーツ）**  
+咁第二張券就係俾咗[T-SWEETS（十勝野スイーツ）](https://hidie.net/hokkaido2f/)  
 要咗杯仔**ミニソフト（ミルク）**  
 奶味香嘅，就唔係最最最柔滑嗰種雪糕  
 呢種質地就挺身啲vintage啲咁  
   
 坐吓食吓雪糕之後又到食晏時間  
 
-![](https://c1.staticflickr.com/5/4469/37401018445_cef3e7c110_z.jpg)
+![](/images/hokkaido2g.jpg)
 
 嚟得帯広當然唔好可以錯過**十勝豚丼**！  
-要去就去元祖店**ぱんちょう**  
+要去就去元祖店[ぱんちょう](https://hidie.net/hokkaido2g/)  
 （since1933、昭和8年）  
 用炭火燒嘅道内産の豚のロース肉  
 炭烤味香醬汁甜肉有咬口仲爆香肉汁  

@@ -55,6 +55,7 @@ one man cook～
 顧客同店家都超超超nice
 好正呢～（大大心）
 
+![](/images/chihiro015.jpg)
 
 終於到休息嘅時間  
 落樓浸返個溫泉先瞓覺（Zzz）  

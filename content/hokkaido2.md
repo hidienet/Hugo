@@ -79,9 +79,9 @@ tags : [travel-日本-北海道]
 炭烤味香醬汁甜肉有咬口仲爆香肉汁  
 哇哇哇！真係好好食～  
 
-![](https://c1.staticflickr.com/5/4373/37258598261_a8a10b0df7_z.jpg)
+![](/images/hokkaido2h.jpg)
 
-食飽飽就去日本人以至香港人台灣人都好熟悉嘅**六花亭**逛  
+食飽飽就去日本人以至香港人台灣人都好熟悉嘅[六花亭](https://hidie.net/hokkaido2h/)逛  
 （since1933，again）  
 雖然甜品券係無六花亭嘅  
 之但係嚟到帯広又無理由唔去佢嘅**本店**  
@@ -93,10 +93,10 @@ tags : [travel-日本-北海道]
 咁帯広本店係有當店限定嘅嘢  
 but吸引唔到我呀放棄咗轉身byebye  
 
-![](https://c1.staticflickr.com/5/4343/37258597831_8bcb12dc71_z.jpg)
+![](/images/hokkaido2i.jpg)
 
 甜品券行程繼續  
-下一間都係名店呀：**柳月**  
+下一間都係名店呀：[柳月](https://hidie.net/hokkaido2i/)  
 （since1947，昭和22年）  
 以最特級100%十勝產原料嘅**三六方**係必入手（中）  
 三六方係朱古力皮包住嘅年輪蛋糕  

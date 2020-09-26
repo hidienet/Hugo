@@ -6,12 +6,12 @@ images: ["/images/hokkaido1g.jpg"]
 tags : [travel-日本-北海道]
 ---
 
-就咁剷一碟飯又點會滿足？
+就咁剷一碟飯又點會滿足？  
 飽飽地响街兜兜吓  
 
 ![](/images/hokkaido1g1.jpg)
 
-呢頭係有兩條屋台村  
+呢頭係有兩條屋台村：  
 有**北の屋台**  
 
 ![](/images/hokkaido1g2.jpg)
@@ -20,7 +20,7 @@ tags : [travel-日本-北海道]
 
 ![](/images/hokkaido1g3.jpg)
 
-响滿席、就收工
+响滿席、就收工，
 
 ![](/images/karigurashi018.jpg)
 
@@ -28,7 +28,8 @@ tags : [travel-日本-北海道]
 
 ![](/images/hokkaido1g.jpg)
 
-最後都係揀咗**北の屋台**居酒屋一番！
+最後都係揀咗**北の屋台**  
+係時候居酒屋一番！
   
   
 {{<hokkaido>}}

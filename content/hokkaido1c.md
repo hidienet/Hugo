@@ -6,9 +6,11 @@ images: ["/images/hokkaido1c.jpg"]
 tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 ---
 
+買埋[便當](https://hidie.net/hokkaido1d/)（空弁同駅弁咪又係お弁当）  
+
 ![](/images/kokurikozaka037.jpg)
 
-買埋[便當](https://hidie.net/hokkaido1d/)（空弁同駅弁咪又係お弁当）就上車喇～  
+就係時候上車開始鐵道旅程喇～  
 
 ![](/images/hokkaido1c0.jpg)
 

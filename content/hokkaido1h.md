@@ -34,7 +34,7 @@ one man cook～
 
 ![](/images/hokkaido1h5.jpg)
 
-**十勝産 ニンニク揚**　　
+**十勝産 ニンニク揚**  
 抬頭見手寫menu有佢就嗌  
 一啲都唔臭好味喎～
 
@@ -51,7 +51,7 @@ one man cook～
 ![](/images/hokkaido1h8.jpg)
 
 **母ちゃんコロッケ**  
-十勝薯仔同豆渣（おから）嘅組合　　
+十勝薯仔同豆渣（おから）嘅組合  
 好vintage嘅家庭式小食呢
 
 ![](/images/hokkaido1h.jpg)

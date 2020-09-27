@@ -17,7 +17,7 @@ tags : [travel-日本-北海道, flavor - 螞蟻族]
 （3）[柳月](https://hidie.net/hokkaido2i/) - **COCOこの実**  
 （4）[十勝しんむら牧場](https://hidie.net/hokkaido2k/) - **カップのミニソフトクリーム**  
 
-![](/images/hokkaido2k.jpg)
+![](/images/hokkaido2.jpg)
 
 只係剩返張**ばんえい十勝**嘅無料入場券  
 帯広呢度獨有嘅十勝短腳馬賽跑  

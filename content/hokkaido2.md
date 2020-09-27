@@ -108,50 +108,50 @@ but吸引唔到我呀放棄咗轉身byebye
   
 然後拖行李由酒店去車站喇  
 
-![](https://c1.staticflickr.com/5/4399/37258597171_1ef383ae65_z.jpg)
+![](/images/hokkaido2j1.jpg)
 
 無啦啦做乜响條街度有條路軌嘅呢？  
 
-![](https://c1.staticflickr.com/5/4407/37401018005_af951e985b_z.jpg)
+![](/images/hokkaido2j.jpg)
 
-原來帯広駅嘅呢個位先係十勝最初鉄道嘅位置  
+原來帯広駅嘅呢個位先係[十勝最初の鉄道](https://hidie.net/hokkaido2j/)嘅位置  
 （since1905，明治38年）  
 
-![](https://c1.staticflickr.com/5/4503/37401017995_3ccc9745ec_z.jpg)
+![](/images/hokkaido2k.jpg)
 
 最後一張券都係留俾雪糕  
-**十勝しんむら牧場**嘅**カップのミニソフトクリーム**  
+[十勝しんむら牧場](https://hidie.net/hokkaido2k/)嘅**カップのミニソフトクリーム**  
 除咗牧場之外只係得呢度有呢間嘢  
 牧場直營嘅牛奶雪糕  
 咁試多樣咖啡味都唔過份吖係咪  
 
-![](https://c1.staticflickr.com/5/4486/37229841062_cd8683e469_z.jpg)
+![](/images/hokkaido2l.jpg)
 
-好啦，張甜品券嘅飛就用晒  
+好啦，張[甜品券](https://hidie.net/hokkaido2l/)嘅飛就用晒  
 只係剩返張**ばんえい十勝**嘅無料入場券  
 帯広呢度獨有嘅十勝短腳馬賽跑  
 冇呀冇特登去喇都唔啱睇  
 （香港嘅馬場我都只係去過啲馬會餐廳食嘢咋...）  
 
-![](https://c1.staticflickr.com/5/4466/37231043742_847df1ae73_z.jpg)
+![](/images/hokkaido2m.jpg)
 
 繼續鉄道路程喇！  
-响帯広月台嘅兩架列車  
+响[帯広月台](https://hidie.net/hokkaido2m/)嘅兩架列車  
 分別為左邊既1709同右邊嘅1758  
 架1758同我將要去嘅地方係一樣嘅  
 但係佢係站站停嗰隻  
 
-![](https://c1.staticflickr.com/5/4364/37231043582_9e6341bc7e_z.jpg)
+![](/images/hokkaido2m0.jpg)
 
 車廂好懷舊呢...  
 好喇，上返我應該搭嗰架車先  
 
-![](https://c1.staticflickr.com/5/4466/37231043392_61e0727de8_z.jpg)
+![](/images/hokkaido2n.jpg)
 
-帯広 → 釧路  
+[帯広](https://hidie.net/hokkaido2n/) → 釧路  
 （**特急スーパーおおぞら、283系**）  
 
-![](https://c1.staticflickr.com/5/4457/37213066436_c9f8ced407_z.jpg)
+![](/images/hokkaido2n3.jpg)
 
 呢程車唔算長就咁冇買駅弁  
 唔食嘢又會悶嘛  
@@ -159,15 +159,15 @@ but吸引唔到我呀放棄咗轉身byebye
 好大粒呀又甜仲係無核嘅  
 見到佢寫限量二百棵 x 特價唔會唔買囉呵呵  
 
-![](https://c1.staticflickr.com/5/4345/37229194636_d8a4e4f49d_z.jpg)
+![](/images/hokkaido2n5.jpg)
 
 啊啊啊啊啊！**太平洋**呀～  
 不過車窗好污糟呢...  
 （之前落過雨嘛係咁上下㗎喇將就吓啦）  
 
-![](https://c1.staticflickr.com/5/4405/37231043202_841ae47118_z.jpg)
+![](/images/hokkaido2o.jpg)
 
-**釧路（釧路駅）**  
+[釧路（釧路駅）](https://hidie.net/hokkaido2o/)  
 當然又係先拖行李丟低响酒店啦  
 
 ![](https://c1.staticflickr.com/5/4339/37231042872_5a7d343a64_z.jpg)

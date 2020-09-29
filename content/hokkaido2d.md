@@ -46,7 +46,7 @@ MO～MO～ 乳牛造型嘅的士呢～
 
 ![](/images/hokkaido2d7.jpg)
 
-人形都唔多隻（哈）  
+人影都唔多隻（哈）  
 
 ![](/images/hokkaido2e2.jpg)
 

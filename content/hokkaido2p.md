@@ -20,7 +20,7 @@ tags : [travel-日本-北海道]
 ![](/images/hokkaido2p2.jpg)
 
 不過本身係要夠運氣先睇到橙色日落  
-今日落過雨，所以冇橙色喇（殘念）  
+今日落過雨，所以冇橙色喇（残念ね〜）  
 
 ![](/images/hokkaido2p3.jpg)
 

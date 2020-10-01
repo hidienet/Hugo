@@ -7,7 +7,11 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Wed, 01 Apr 2020 22:27:00 +0800</lastBuildDate><atom:link href="https://hidie.net/tags/glamorous-%E6%A9%9F%E9%9B%BB%E5%B7%A5%E7%A8%8B/index.xml" rel="self" type="application/rss+xml" />
+    <lastBuildDate>Wed, 01 Apr 2020 22:27:00 +0800</lastBuildDate>
+    
+	<atom:link href="https://hidie.net/tags/glamorous-%E6%A9%9F%E9%9B%BB%E5%B7%A5%E7%A8%8B/index.xml" rel="self" type="application/rss+xml" />
+    
+    
     <item>
       <title>[tools] 헤드랑 | spt new-face Headrang</title>
       <link>https://hidie.net/sptnewface/</link>

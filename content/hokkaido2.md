@@ -170,11 +170,11 @@ but吸引唔到我呀放棄咗轉身byebye
 [釧路（釧路駅）](https://hidie.net/hokkaido2o/)  
 當然又係先拖行李丟低响酒店啦  
 
-![](https://c1.staticflickr.com/5/4339/37231042872_5a7d343a64_z.jpg)
+![](/images/hokkaido2p1.jpg)
 
-然後去**幣舞橋**等睇日落  
+然後去[幣舞橋](https://hidie.net/hokkaido2p/)等睇日落  
 
-![](https://c1.staticflickr.com/5/4343/37231044982_7cdab1a3b0_z.jpg)
+![](/images/hokkaido2p14.jpg)
 
 可惜日沒位置超多厚厚雲  
 無可能睇得到最靚嘅橙紅色  
@@ -183,18 +183,18 @@ but吸引唔到我呀放棄咗轉身byebye
 講咩安慰自己都冇用  
 都係去食嘢最實際同最易cheer up  
 
-![](https://c1.staticflickr.com/5/4379/37231043052_2e734d1234_z.jpg)
+![](/images/hokkaido2q.jpg)
 
-先去要自己燒嘅**炉ばた煉瓦**  
+先去要自己燒嘅[炉ばた煉瓦](https://hidie.net/hokkaido2q/)  
 釧路係炉ばた（爐端燒）嘅發祥地  
 咁冇可能唔食㗎嘛，仲要啲料咁新鮮呀  
 
-[![](https://c1.staticflickr.com/5/4458/37231044682_c1d4ecbca9_z.jpg)
+![](/images/hokkaido2q15.jpg)
 
 而呢間仲有又係釧路特產嘅**鮭のちゃんちゃん焼き**  
 好好食㗎，唔食又會對唔住自己  
 
-![](https://c1.staticflickr.com/5/4366/37231044352_945b4c6e70_z.jpg)
+![](/images/hokkaido2q6.jpg)
 
 仲有嘅梗係唔少得彌補遺憾嘅**夕日ハイボール**  
 睇唔到咪飲落肚囉哈哈哈  

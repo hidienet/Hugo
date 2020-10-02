@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day2：炉ばた'
 date: 2020-10-04T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido2s.jpg"]
-tags : [travel-日本-北海道, flavor - 行膳積腹, flavor - 行膳積腹]
+tags : [travel-日本-北海道, flavor - 行膳積腹, flavor - 飲！]
 ---
 
 食完[第一餐晚餐](https://hidie.net/hokkaido2q/)就去食第二餐晚餐 XDDD

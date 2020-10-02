@@ -134,7 +134,7 @@ well，相信就算想食都冇得食
 
 [![](https://c1.staticflickr.com/5/4767/38895137725_59f52ec2aa_z.jpg)](https://c1.staticflickr.com/5/4767/38895137725_59f52ec2aa_z.jpg)
 
-仲好特別咁試咗響札幌到冇見過飲過嘅**sapporo ****lager beer**  
+仲好特別咁試咗響札幌到冇見過飲過嘅**sapporo lager beer**  
 
 [![](https://c1.staticflickr.com/5/4605/38895135915_3e120deeba_z.jpg)](https://c1.staticflickr.com/5/4605/38895135915_3e120deeba_z.jpg)
 

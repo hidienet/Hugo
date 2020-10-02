@@ -45,7 +45,7 @@ YES！就係賣廁所嗰間TOTO！
 
 [![](https://c1.staticflickr.com/5/4701/25923744988_a7a468ef83_z.jpg)](https://c1.staticflickr.com/5/4701/25923744988_a7a468ef83_z.jpg)
 
-是但啦，反正呢種類似勝手丼嘅嘢又唔係未試過  
+是但啦，反正呢種類似[勝手丼](https://hidie.net/hokkaido3b/)嘅嘢又唔係未試過  
 就去咗**旦過うどん**食手打烏冬  
 （啲**おでん**都好好味！）
 

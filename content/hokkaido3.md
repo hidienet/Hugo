@@ -11,21 +11,21 @@ tags : [travel-日本-北海道]
   
 無計啦，又走落街食早餐啦  
 
-[![](https://c1.staticflickr.com/5/4349/36592535233_1dbf3a27cb_z.jpg)](https://c1.staticflickr.com/5/4349/36592535233_1dbf3a27cb_z.jpg)
+![](/images/hokkaido3a.jpg)
 
 平日最討厭嘅濕笠笠街巿  
-而呢朝就特登嚟呢個**和商市場**（since 1954）  
+而呢朝就特登嚟呢個[和商市場](https://hidie.net/hokkaido3a/)（since 1954）  
 啲蟹係即叫即蒸即食嘅  
 不過今日唔係食呢樣  
 
-[![](https://c1.staticflickr.com/5/4429/37006429720_3317470fc9_z.jpg)](https://c1.staticflickr.com/5/4429/37006429720_3317470fc9_z.jpg)
+![](/images/hokkaido3b3.jpg)
 
-因為係食就梗係食又係釧路發祥嘅**勝手丼**啦！  
+因為係食就梗係食又係釧路發祥嘅[勝手丼](https://hidie.net/hokkaido3b/)啦！  
 所謂嘅勝手丼即係求其啦鍾意咩就咩啦丼  
 買完個飯見到咩海鮮想食嘅就叫店員擺入去  
 覺得夠喇（新鮮嘅海鮮係永遠都唔會夠）就計數  
 
-[![](https://c1.staticflickr.com/5/4404/37262082571_9350dac822_z.jpg)](https://c1.staticflickr.com/5/4404/37262082571_9350dac822_z.jpg)
+![](/images/hokkaido3b.jpg)
 
 我呢碗有蝦有蟹有魚有海膽  
 係好好食同抵食嗰種  
@@ -34,21 +34,21 @@ tags : [travel-日本-北海道]
 有啲飯氣就出一出個市場周圍行吓  
 個市真心除咗食（同條日落橋）就冇嘢做冇嘢行  
 
-[![](https://c1.staticflickr.com/5/4444/36566494724_9822d78a23_z.jpg)](https://c1.staticflickr.com/5/4444/36566494724_9822d78a23_z.jpg)
+![](/images/hokkaido3c.jpg)
 
 無聊到行JR站  
 先買駅弁，驚死係旅遊淡季嘅而家都會賣晒  
-逛到冇嘢逛連睇阿寒湖嘅大大球**マリモ**都可以駐足好耐  
+逛到冇嘢逛連睇阿寒湖嘅大大球[マリモ](https://hidie.net/hokkaido3c/)都可以駐足好耐  
 
-[![](https://c1.staticflickr.com/5/4377/37246935312_3176e2ecc3_z.jpg)](https://c1.staticflickr.com/5/4377/37246935312_3176e2ecc3_z.jpg)
+![](/images/hokkaido3c1.jpg)
 
 唔殺生養生物嘅我梗係買粒綠波波羊羹食落肚就算  
 
-[![](https://c1.staticflickr.com/5/4355/36595227323_727f1e2f6b_z.jpg)](https://c1.staticflickr.com/5/4355/36595227323_727f1e2f6b_z.jpg)
+![](/images/hokkaido3d.jpg)
 
 買完駅弁同羊羹又行返去和商市場  
 見到有鹿肉食就忍唔住喇  
-**鹿肉バーガー** @**喫茶ポラリス**  
+**鹿肉バーガー** @[喫茶ポラリス](https://hidie.net/hokkaido3d/)  
 同麥記靚啲嘅包咁上下嘅價錢  
 買到兩塊厚厚鹿肉漢堡肉嘅包包  
 個味一啲都唔羶  

@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day3：秋の鯨肉普及キャンペーン'
 date: 2020-10-06T12:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido3e.jpg"]
-tags : [travel-日本-北海道, flavor - 行膳積腹]
+tags : [travel-日本-北海道, flavor - 小食部]
 ---
 
 食咗[鹿肉包包](https://hidie.net/hokkaido3d/)... 

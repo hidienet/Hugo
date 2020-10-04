@@ -6,7 +6,7 @@ images: ["/images/hokkaido3n.jpg"]
 tags : [travel-日本-北海道, flavor - 行膳積腹, enthusiasm - 鐵道時光]
 ---
 
- 下午茶係釧路駅弁 
+下午茶係釧路駅弁 
 
 ![](/images/hokkaido3n1.jpg)
 

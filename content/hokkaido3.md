@@ -160,14 +160,14 @@ by 釧路くじら協議会
 一節嘅列車同埋幾粒鐘先有一班  
 所以都幾多人坐差啲位都冇得坐仲要有個喼呢...  
 
-[![](https://c1.staticflickr.com/5/4472/36683181693_510a1831fb_z.jpg)](https://c1.staticflickr.com/5/4472/36683181693_510a1831fb_z.jpg)
+![](/images/hokkaido3n.jpg)
 
-下午茶係釧路駅弁**いわしのほっかぶり寿司**  
+下午茶係釧路駅弁[いわしのほっかぶり寿司](https://hidie.net/hokkaido3n/)  
 即係响釧路早早買定驚死冇嗰盒  
 無計啦，真係好好食呀佢  
 冇得食絕對係遺憾，OK？  
 
-[![](https://c1.staticflickr.com/5/4466/36643739344_7a21243591_z.jpg)](https://c1.staticflickr.com/5/4466/36643739344_7a21243591_z.jpg)
+![](/images/hokkaido3m6.jpg)
 
 搭呢條線最好睇嘅係風景  
 而最過癮呢我首選係啲車站  
@@ -176,11 +176,11 @@ by 釧路くじら協議会
 個站嘅車站站房仲只係用一節守車改造就算  
 好得意呢～  
 
-[![](https://c1.staticflickr.com/5/4343/37305518706_a6c1810968_z.jpg)](https://c1.staticflickr.com/5/4343/37305518706_a6c1810968_z.jpg)
+![](/images/hokkaido3m7.jpg)
 
 都係用一節守車改造成車站站房嘅**びるわ駅**  
 
-[![](https://c1.staticflickr.com/5/4334/37305607026_8cfd4df600_z.jpg)](https://c1.staticflickr.com/5/4334/37305607026_8cfd4df600_z.jpg)
+![](/images/hokkaido3m8.jpg)
 
 好想落車浸吓佢個足湯  
 奈何又唔可以浪費多兩粒幾鐘  
@@ -188,7 +188,7 @@ by 釧路くじら協議会
 
 [![](https://c1.staticflickr.com/5/4511/37352959331_ba797793dc_z.jpg)](https://c1.staticflickr.com/5/4511/37352959331_ba797793dc_z.jpg)
 
-**斜里岳カラマツ防風林**  
+[斜里岳カラマツ防風林](https://hidie.net/hokkaido3o/)  
 斜里岳同落葉松防風林一次過睇晒，好滿足！  
 
 [![](https://c1.staticflickr.com/5/4409/37353228481_a79b4a7f8b_z.jpg)](https://c1.staticflickr.com/5/4409/37353228481_a79b4a7f8b_z.jpg)

@@ -53,6 +53,9 @@ tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 ![](/images/hokkaido3k8.jpg)
 
 冇鶴冇鹿冇熊呀只有一片綠同河川  
+
+![](/images/hokkaido3k9.jpg)
+
 但只係啲風景已經夠靚啦～～～  
   
   

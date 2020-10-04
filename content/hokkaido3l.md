@@ -76,7 +76,8 @@ OK，呢個係車尾
 
 ![](/images/hokkaido3l14.jpg)
 
-等車中～  
+等車中...  
+  
   
   
 {{<hokkaido>}}

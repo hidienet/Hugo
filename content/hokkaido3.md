@@ -82,19 +82,20 @@ by 釧路くじら協議会
 吖～ 食到肚撐撐  
 又係時候返酒店拖行李走喇  
 
-[![](https://c1.staticflickr.com/5/4352/37303945786_6d8a12d765_z.jpg)](https://c1.staticflickr.com/5/4352/37303945786_6d8a12d765_z.jpg)
+![](/images/hokkaido3g.jpg)
 
+@[釧路駅](https://hidie.net/hokkaido3g/)  
 行去站頭敲吓個**釧路駅湿原の鐘**先  
 唔知點解要敲㗎  
 可能就係叮叮叮咁話俾人聽我而家就出發去釧路湿原啩...  
 個鐘聲幾好聽，仲好響㖭！  
 
-[![](https://c1.staticflickr.com/5/4382/36642245794_8b8bb6c84c_z.jpg)](https://c1.staticflickr.com/5/4382/36642245794_8b8bb6c84c_z.jpg)
+![](/images/hokkaido3g2.jpg)
 
 個月台度仲有舊**太平洋炭礦の海底炭**  
 响海底... 好炭... ...  
 
-[![](https://c1.staticflickr.com/5/4364/23500136948_7919f11980_z.jpg)](https://c1.staticflickr.com/5/4364/23500136948_7919f11980_z.jpg)
+![](/images/hokkaido3h.jpg)
 
 鉄道遊繼續進行中  
 搭呢個旅程中最特別嘅車  
@@ -102,22 +103,22 @@ by 釧路くじら協議会
 車頭係DE10嘅機関車  
   
 釧路 → 塘路  
-（**くしろ湿原ノロッコ号、510系**）  
+（[くしろ湿原ノロッコ号](https://hidie.net/hokkaido3h/)、510系**）  
 
-[![](https://c1.staticflickr.com/5/4509/37095358890_cd7e26a1f6_z.jpg)](https://c1.staticflickr.com/5/4509/37095358890_cd7e26a1f6_z.jpg)
+![](/images/hokkaido3i.jpg)
 
-**くしろ湿原ノロッコ号プリン**  
+[くしろ湿原ノロッコ号プリン](https://hidie.net/hokkaido3i/)  
 飽還飽，甜品胃依然正常運作  
 列車限定販賣嘅牛奶布甸  
 開車前食住等就啱啱好（滑～）  
 
-[![](https://c1.staticflickr.com/5/4493/37351151711_6fb197250c_z.jpg)](https://c1.staticflickr.com/5/4493/37351151711_6fb197250c_z.jpg)
+![](/images/hokkaido3j1.jpg)
 
-好好天 @**釧路川**，出發！  
+好好天 @**釧路川**，[出發](https://hidie.net/hokkaido3j/)！  
 冇玻璃阻隔架車又慢慢開仲要天氣咁靚  
 好易影到滿意嘅相  
 
-[![](https://c1.staticflickr.com/5/4368/37351528141_70e1746b83_z.jpg)](https://c1.staticflickr.com/5/4368/37351528141_70e1746b83_z.jpg)
+![](/images/hokkaido3j.jpg)
 
 嚟釧路湿原呢  
 好好彩加上啱時候先睇到丹頂鶴  
@@ -126,19 +127,19 @@ by 釧路くじら協議会
 就好親切咁傾幾句  
 同埋送我呢隻拉條尾就會拍翼嘅**丹頂鶴おりがみ**  
 
-[![](https://c1.staticflickr.com/5/4449/36682772913_4894c5e68e_z.jpg)](https://c1.staticflickr.com/5/4449/36682772913_4894c5e68e_z.jpg)
+![](/images/hokkaido3k.jpg)
 
 嫌天水圍太遠  
 未去過濕滯公園嘅我  
-竟然係先去釧路湿原睇濕地生態  
+竟然係先去[釧路湿原](https://hidie.net/hokkaido3k/)睇濕地生態  
 
-[![](https://c1.staticflickr.com/5/4505/37351848811_1ccbe25e94_z.jpg)](https://c1.staticflickr.com/5/4505/37351848811_1ccbe25e94_z.jpg)
+![](/images/hokkaido3k2.jpg)
 
 （其實只係經過啫唔係親身接觸啦...）  
 正所謂搭飛機再轉火車都仲近過去天水圍  
 可想而知天水圍真係一個好遠好隔涉嘅地方（誤）  
 
-[![](https://c1.staticflickr.com/5/4485/37096071280_c8e9ce8be2_z.jpg)](https://c1.staticflickr.com/5/4485/37096071280_c8e9ce8be2_z.jpg)
+![](/images/hokkaido3k8.jpg)
 
 唔見啲咩特別嘅動物呀  
 冇鶴冇鹿冇熊呀只有一片綠同河川  
@@ -146,7 +147,7 @@ by 釧路くじら協議会
 
 [![](https://c1.staticflickr.com/5/4470/36682911333_bc1c2a14b7_z.jpg)](https://c1.staticflickr.com/5/4470/36682911333_bc1c2a14b7_z.jpg)
 
-**塘路（塘路駅）**  
+**塘路**（[塘路駅](https://hidie.net/hokkaido3l/)）  
 **無人駅**，即係基本上冇職員駐守  
 今日嘅中途站嚟㗎啫  
 因為架慢車只係嚟到呢度  

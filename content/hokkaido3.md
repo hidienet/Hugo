@@ -103,7 +103,7 @@ by 釧路くじら協議会
 車頭係DE10嘅機関車  
   
 釧路 → 塘路  
-（[くしろ湿原ノロッコ号](https://hidie.net/hokkaido3h/)、510系**）  
+（[くしろ湿原ノロッコ号](https://hidie.net/hokkaido3h/)、**510系**）  
 
 ![](/images/hokkaido3i.jpg)
 
@@ -145,16 +145,16 @@ by 釧路くじら協議会
 冇鶴冇鹿冇熊呀只有一片綠同河川  
 夠靚啦都～～～  
 
-[![](https://c1.staticflickr.com/5/4470/36682911333_bc1c2a14b7_z.jpg)](https://c1.staticflickr.com/5/4470/36682911333_bc1c2a14b7_z.jpg)
+![](/images/hokkaido3l.jpg)
 
 **塘路**（[塘路駅](https://hidie.net/hokkaido3l/)）  
 **無人駅**，即係基本上冇職員駐守  
 今日嘅中途站嚟㗎啫  
 因為架慢車只係嚟到呢度  
 
-[![](https://c1.staticflickr.com/5/4397/37352192001_515a8dcfb4_z.jpg)](https://c1.staticflickr.com/5/4397/37352192001_515a8dcfb4_z.jpg)
+![](/images/hokkaido3m.jpg)
 
-塘路 → 網走  
+[塘路 → 網走](https://hidie.net/hokkaido3m/)  
 （**普通列車，523系**）  
 **釧網本線**係冇特急車同指定席車廂  
 一節嘅列車同埋幾粒鐘先有一班  

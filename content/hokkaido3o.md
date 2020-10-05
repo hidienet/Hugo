@@ -8,11 +8,11 @@ tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 
 話說今日係完成一！整！條！**釧網本線**   
 
-[くしろ湿原ノロッコ号](https://hidie.net/hokkaido3h/)：釧路 → 塘路
+[くしろ湿原ノロッコ号](https://hidie.net/hokkaido3h/)：釧路 → 塘路  
 [釧路駅、東釧路駅](https://hidie.net/hokkaido3j/)、遠矢駅、  
 [釧路湿原駅、細岡駅](https://hidie.net/hokkaido3k/) 、[塘路駅](https://hidie.net/hokkaido3l/)  
 
-區間列車、523系：[塘路 → 網走](https://hidie.net/hokkaido3m/)  
+[區間列車、523系](https://hidie.net/hokkaido3m/)：塘路 → 網走  
 塘路駅、茅沼駅、標茶駅、	磯分内駅、摩周駅、美留和駅、川湯温泉駅、緑駅、札弦駅  
   
 以上都係濕地公園為主（釧路湿原国立公園 & 阿寒摩周国立公園）  

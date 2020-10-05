@@ -90,7 +90,7 @@ by 釧路くじら協議会
 可能就係叮叮叮咁話俾人聽我而家就出發去釧路湿原啩...  
 個鐘聲幾好聽，仲好響㖭！  
 
-![](/images/hokkaido3g2.jpg)
+![](/images/hokkaido3g3.jpg)
 
 個月台度仲有舊**太平洋炭礦の海底炭**  
 响海底... 好炭... ...  
@@ -186,43 +186,43 @@ by 釧路くじら協議会
 奈何又唔可以浪費多兩粒幾鐘  
 **川湯温泉**（駅），有機會先見喇  
 
-[![](https://c1.staticflickr.com/5/4511/37352959331_ba797793dc_z.jpg)](https://c1.staticflickr.com/5/4511/37352959331_ba797793dc_z.jpg)
+![](/images/hokkaido3o3.jpg)
 
 **斜里岳カラマツ防風林**  
 斜里岳同落葉松防風林一次過睇晒，好滿足！  
 
-[![](https://c1.staticflickr.com/5/4409/37353228481_a79b4a7f8b_z.jpg)](https://c1.staticflickr.com/5/4409/37353228481_a79b4a7f8b_z.jpg)
+![](/images/hokkaido3o14.jpg)
 
 沿著呢條鐵路  
 有個好特別嘅景...  
 
-[![](https://c1.staticflickr.com/5/4437/37323625202_d22225a8a4_z.jpg)](https://c1.staticflickr.com/5/4437/37323625202_d22225a8a4_z.jpg)
+![](/images/hokkaido3o10.jpg)
 
 右邊**オホーツク海**（鄂霍次克海、Охо́тское мо́ре）  
 
-[![](https://c1.staticflickr.com/5/4436/36683935883_ec9e492b20_z.jpg)](https://c1.staticflickr.com/5/4436/36683935883_ec9e492b20_z.jpg)
+![](/images/hokkaido3o12.jpg)
 
 左邊**トウフツ湖**  
 兩邊都係水嘅鉄道真係好好好難得㗎（激動）  
 
-[![](https://c1.staticflickr.com/5/4375/37353308491_c41af54c8f_z.jpg)](https://c1.staticflickr.com/5/4375/37353308491_c41af54c8f_z.jpg)
+![](/images/hokkaido3o17.jpg)
 
 經過埋無人驛嘅臨時站：**原生花園駅**  
 細細個木造嘅車站仔  
 限時開放同開站嘅  
 
-[![](https://c1.staticflickr.com/5/4491/37323883742_6d20007a9f_z.jpg)](https://c1.staticflickr.com/5/4491/37323883742_6d20007a9f_z.jpg)
+![](/images/hokkaido3p.jpg)
 
-**網走（網走駅）**  
+[網走（網走駅）](https://hidie.net/hokkaido3p/)  
 到今日要stay嘅地方  
 又到咗拖行李去酒店嘅時候喇  
 
-[![](https://c1.staticflickr.com/5/4339/37324034372_125940857c_z.jpg)](https://c1.staticflickr.com/5/4339/37324034372_125940857c_z.jpg)
+![](/images/hokkaido3q1.jpg)
 
-**モヨロ鍋セット** @**網走ロイヤルホテル**  
+**モヨロ鍋セット** @[網走ロイヤルホテル](https://hidie.net/hokkaido3q/)  
 唔係响呢間酒店住㗎...  
 
-[![](https://c1.staticflickr.com/5/4500/37097944150_1bdf682859_z.jpg)](https://c1.staticflickr.com/5/4500/37097944150_1bdf682859_z.jpg)
+![](/images/hokkaido3q.jpg)
 
 不過呢間先有得食**網走モヨロ鍋**  
 呢個鍋呀嘛... 係網走當地料理  
@@ -234,7 +234,7 @@ by 釧路くじら協議会
 [![](https://c1.staticflickr.com/5/4513/37145360820_4b985523a4_z.jpg)](https://c1.staticflickr.com/5/4513/37145360820_4b985523a4_z.jpg)
 
 至少都要飲吓**網走ビール**啦  
-@**YAKINIKU網走ビール館**  
+@[YAKINIKU網走ビール館](https://hidie.net/hokkaido3r/)  
 
 [![](https://c1.staticflickr.com/5/4373/37145360670_b821ae8692_z.jpg)](https://c1.staticflickr.com/5/4373/37145360670_b821ae8692_z.jpg)
 
@@ -246,9 +246,9 @@ round 2
 間嘢叫得yakiniku即係要焼吓肉啦  
 所以仲燒埋成口油嘅網走和牛  
 
-[![](https://c1.staticflickr.com/5/4455/36693802884_fe8087f419_z.jpg)](https://c1.staticflickr.com/5/4455/36693802884_fe8087f419_z.jpg)
+![](/images/hokkaido3s.jpg)
 
-宵夜時間就幫襯吓seicomart（終於）  
+[宵夜時間](https://hidie.net/hokkaido3s/)就幫襯吓seicomart（終於）  
 有北海道產嘅芝士雪條  
 同都係北海道產嘅蜜瓜モナカ  
   

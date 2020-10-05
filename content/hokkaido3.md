@@ -156,7 +156,7 @@ by 釧路くじら協議会
 
 [塘路 → 網走](https://hidie.net/hokkaido3m/)  
 （**普通列車，523系**）  
-**釧網本線**係冇特急車同指定席車廂  
+[釧網本線](https://hidie.net/hokkaido3o/)係冇特急車同指定席車廂  
 一節嘅列車同埋幾粒鐘先有一班  
 所以都幾多人坐差啲位都冇得坐仲要有個喼呢...  
 
@@ -188,7 +188,7 @@ by 釧路くじら協議会
 
 [![](https://c1.staticflickr.com/5/4511/37352959331_ba797793dc_z.jpg)](https://c1.staticflickr.com/5/4511/37352959331_ba797793dc_z.jpg)
 
-[斜里岳カラマツ防風林](https://hidie.net/hokkaido3o/)  
+**斜里岳カラマツ防風林**  
 斜里岳同落葉松防風林一次過睇晒，好滿足！  
 
 [![](https://c1.staticflickr.com/5/4409/37353228481_a79b4a7f8b_z.jpg)](https://c1.staticflickr.com/5/4409/37353228481_a79b4a7f8b_z.jpg)

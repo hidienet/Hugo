@@ -1,5 +1,5 @@
 ---
-title: '[食道鉄道北海道] Day3：塘路 → 網走（前篇）'
+title: '[食道鉄道北海道] Day3：塘路 → 網走'
 date: 2020-10-09T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido3m.jpg"]

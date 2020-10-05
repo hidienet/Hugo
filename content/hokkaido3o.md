@@ -1,5 +1,5 @@
 ---
-title: '[食道鉄道北海道] Day3：斜里岳カラマツ防風林'
+title: '[食道鉄道北海道] Day3：塘路 → 網走（後篇）'
 date: 2020-10-09T16:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido3o.jpg"]

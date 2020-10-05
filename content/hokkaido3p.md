@@ -1,12 +1,12 @@
 ---
 title: '[食道鉄道北海道] Day3：網走到着 @網走駅'
-date: 2020-10-10T19:30:00.000+08:00
+date: 2020-10-09T19:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido3p.jpg"]
 tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 ---
 
-條**釧網本線**  
+成條**釧網本線**  
 用咗40分鐘搭[くしろ湿原ノロッコ号](https://hidie.net/hokkaido3h/)由釧路到塘路...  
 
 ![](/images/hokkaido3p1.jpg)

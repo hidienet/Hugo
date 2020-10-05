@@ -76,7 +76,7 @@ tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 
 ![](/images/hokkaido3m12.jpg)
 
-**さっつるえき | 札弦駅** 
+**さっつるえき | 札弦駅**  
 亦亦亦都係無人站啦～  
   
   

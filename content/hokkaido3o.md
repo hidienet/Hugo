@@ -1,5 +1,5 @@
 ---
-title: '[食道鉄道北海道] Day3：塘路 → 網走（後篇）'
+title: '[食道鉄道北海道] Day3：釧網本線'
 date: 2020-10-09T16:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido3o.jpg"]

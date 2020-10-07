@@ -231,18 +231,18 @@ by 釧路くじら協議会
   
 哎呀呀，嚟網走真係唔可以就咁食個鍋就返去瞓㗎嘛  
 
-[![](https://c1.staticflickr.com/5/4513/37145360820_4b985523a4_z.jpg)](https://c1.staticflickr.com/5/4513/37145360820_4b985523a4_z.jpg)
+![](/images/hokkaido3r.jpg)
 
 至少都要飲吓**網走ビール**啦  
 @[YAKINIKU網走ビール館](https://hidie.net/hokkaido3r/)  
 
-[![](https://c1.staticflickr.com/5/4373/37145360670_b821ae8692_z.jpg)](https://c1.staticflickr.com/5/4373/37145360670_b821ae8692_z.jpg)
+![](/images/hokkaido3r3.jpg)
 
 round 2  
 
-[![](https://c1.staticflickr.com/5/4456/37145360550_fbfc21607b_z.jpg)](https://c1.staticflickr.com/5/4456/37145360550_fbfc21607b_z.jpg)
+![](/images/hokkaido3r5.jpg)
 
-（**あばしり和牛上カルビ**）  
+**あばしり和牛上カルビ**  
 間嘢叫得yakiniku即係要焼吓肉啦  
 所以仲燒埋成口油嘅網走和牛  
 

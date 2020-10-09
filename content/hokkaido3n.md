@@ -22,7 +22,7 @@ tags : [travel-日本-北海道, flavor - 行膳積腹, enthusiasm - 鐵道時�
 
 ![](/images/hokkaido3n.jpg)
 
-真係早啲買定拎出幾粒鐘都無計啦  
+真係早啲買定拎住幾粒鐘都無計啦  
 無敵好食呀佢  
 冇得食絕對係遺憾，OK？   
   

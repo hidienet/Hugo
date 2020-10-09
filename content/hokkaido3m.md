@@ -33,7 +33,7 @@ tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 
 ![](/images/hokkaido3m4.jpg)
 
-就嚟告別くしろ湿原嘅範圍喇
+就嚟告別**くしろ湿原**嘅範圍喇
 
 ![](/images/hokkaido3m5.jpg)
 

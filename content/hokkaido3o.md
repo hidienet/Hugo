@@ -24,47 +24,47 @@ tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 
 札弦駅後下一站係**清里町駅**
 
-[](/images/hokkaido3o2.jpg)
+![](/images/hokkaido3o2.jpg)
 
 車嘅右側就係點都ignore唔到嘅**斜里岳**  
 座山係北海道知床半島嘅火山  
 標高1547米，係日本百名山之一  
 
-[](/images/hokkaido3o3.jpg)
+![](/images/hokkaido3o3.jpg)
 
 **斜里岳カラマツ防風林**  
 然而可以將斜里岳同落葉松防風林一次過睇晒，好滿足！
 
-[](/images/hokkaido3o4.jpg)
+![](/images/hokkaido3o4.jpg)
 
 天氣好，响**南斜里駅、中斜里駅、知床斜里駅**沿途嘅幾個站  
 個山嘅主要紋理都清晰可見  
 
-[](/images/hokkaido3o5.jpg)
+![](/images/hokkaido3o5.jpg)
 
 轉彎前仲見到**羅臼岳**  
 係北海道知床半島火山群主峰  
 更標高1661米，毫無疑問亦係日本百名山之一  
 同時係花之百名山同新花之百名山之一  
 
-[](/images/hokkaido3o6.jpg)
+![](/images/hokkaido3o6.jpg)
 
 轉完灣就係**知床斜里駅**  
 隨即開始進入一個好特別嘅景致...  
 
-[](/images/hokkaido3o7.jpg)
+![](/images/hokkaido3o7.jpg)
 
 過橋先～
 
-[](/images/hokkaido3o8.jpg)
+![](/images/hokkaido3o8.jpg)
 
 先嚟係右邊無盡嘅大海洋  
 
-[](/images/hokkaido3o9.jpg)
+![](/images/hokkaido3o9.jpg)
 
 **オホーツク海**（鄂霍次克海、Охо́тское мо́ре）
 
-[](/images/hokkaido3o10.jpg)
+![](/images/hokkaido3o10.jpg)
 
 屬於太平洋嘅海域  
 响俄羅斯琴察加半島同庫頁島之間  

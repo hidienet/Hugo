@@ -53,7 +53,7 @@ but都只係得個香字囉...
 ![](/images/hokkaido3r5.jpg)
 
 反正食得少少（堅飽嘛）  
-就試靚啲再靚啲嘅ribs
+就試靚啲再靚啲嘅「数量限定」ribs
 
 ![](/images/hokkaido3r6.jpg)
 

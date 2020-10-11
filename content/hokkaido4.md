@@ -73,7 +73,7 @@ tags : [travel-日本-北海道]
 仲要係遲半粒鐘呀  
 少少白趕嘅感覺（汗）  
 
-[![](https://c1.staticflickr.com/5/4375/36734896443_99fbb3cc07_z.jpg)](https://c1.staticflickr.com/5/4375/36734896443_99fbb3cc07_z.jpg)
+![](/images/hokkaido4g.jpg)
 
 [網走 → 旭川](https://hidie.net/hokkaido4g/)  
 （**特急大雪、183系**）  
@@ -84,18 +84,18 @@ tags : [travel-日本-北海道]
 中途嘅小食時間  
 就食帯広[柳月](https://hidie.net/hokkaido2i/)入手嘅**十勝大納言**同**COCOこの実**  
 
-[![](https://c1.staticflickr.com/5/4408/37374237342_42cdfea774_z.jpg)](https://c1.staticflickr.com/5/4408/37374237342_42cdfea774_z.jpg)
+![](/images/hokkaido4g3.jpg)
 
 中途經過**遠軽駅**  
 係一個北海道罕見嘅折返式站（Switchback）  
 
-[![](https://c1.staticflickr.com/5/4408/37147825730_80e1f31c10_z.jpg)](https://c1.staticflickr.com/5/4408/37147825730_80e1f31c10_z.jpg)
+![](/images/hokkaido4g4.jpg)
 
 嚟到呢個站大家都開始要自己調凳喇  
 
 [![](https://c1.staticflickr.com/5/4408/23552904898_9558a6e6a8_z.jpg)](https://c1.staticflickr.com/5/4408/23552904898_9558a6e6a8_z.jpg)
 
-**旭川（旭川駅）**  
+[旭川（旭川駅）](https://hidie.net/hokkaido4h/)  
 擺低行李响酒店先  
 
 [![](https://c1.staticflickr.com/5/4506/37357913756_36ef4faf2b_z.jpg)](https://c1.staticflickr.com/5/4506/37357913756_36ef4faf2b_z.jpg)

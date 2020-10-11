@@ -23,7 +23,7 @@ tags : [travel-日本-北海道]
 
 ![](/images/hokkaido4a.jpg)
 
-咁就慢慢check out再去食過簡便早餐 @七仔  
+咁就慢慢check out再去食過簡便早餐 @[七仔](https://hidie.net/hokkaido4a/)  
 （左邊先係我嘅）  
 **おむすび**係北海道產米  
 除咗最愛嘅**たらこ**  
@@ -31,27 +31,27 @@ tags : [travel-日本-北海道]
 **牛乳**，梗係要十勝地區啦  
 完全係北海道！北海道！北海道！  
 
-[![](https://c1.staticflickr.com/5/4485/36695479374_f400d8becc_z.jpg)](https://c1.staticflickr.com/5/4485/36695479374_f400d8becc_z.jpg)
+![](/images/hokkaido4b.jpg)
 
-食完早餐就殺落**流氷街道網走 – 北の道の駅**  
+食完早餐就殺落[流氷街道網走 – 北の道の駅](https://hidie.net/hokkaido4b/)  
 襯食堂未開就逛吓先  
 
-[![](https://c1.staticflickr.com/5/4495/36695554534_0c7fa0b385_z.jpg)](https://c1.staticflickr.com/5/4495/36695554534_0c7fa0b385_z.jpg)
+![](/images/hokkaido4c.jpg)
 
-等食前睇下個**オホーツク海**  
+等食前睇下個[オホーツク海](https://hidie.net/hokkaido4c/)  
 **台風18号**由九州打到上嚟北海道  
 打上嚟嘅前一日  
 網走依然風和日麗  
 
-[![](https://c1.staticflickr.com/5/4376/37373873442_f8d115ac2c_z.jpg)](https://c1.staticflickr.com/5/4376/37373873442_f8d115ac2c_z.jpg)
+![](/images/hokkaido4d3.jpg)
 
-終於等到**フードコート「キネマ館」**開  
+終於等到[フードコート「キネマ館」](https://hidie.net/hokkaido4d/)開  
 可以食奔廚喇～  
 先嚟呢份**網走ザンギ丼**  
 同樣係ザンギ，但網走嘅ザンギ唔係雞  
 係網走特產嘅三文魚  
 
-[![](https://c1.staticflickr.com/5/4360/37373872832_e76e1a172b_z.jpg)](https://c1.staticflickr.com/5/4360/37373872832_e76e1a172b_z.jpg)
+![](/images/hokkaido4d5.jpg)
 
 再嚟份**オホーツク流氷カリー（ナン付）**  
 呢度係專嚟睇流氷  
@@ -60,29 +60,29 @@ tags : [travel-日本-北海道]
 咪睇佢藍色同日本咖喱  
 佢都係辣辣地嘅  
 
-[![](https://c1.staticflickr.com/5/4495/23552560548_9fef5a891d_z.jpg)](https://c1.staticflickr.com/5/4495/23552560548_9fef5a891d_z.jpg)
+![](/images/hokkaido4e.jpg)
 
 臨走前都要食返個流氷館限定  
-**流氷ソフトクリーム**  
+[流氷ソフトクリーム](https://hidie.net/hokkaido4e/)  
 藍色嘅薄荷味雪糕  
 加埋邪惡淫亂嘅爆炸糖  
   
 然後哎吔哎吔有啲趕咁行返去酒店拎行李  
-有啲急急腳咁拖行李去車站  
+有啲急急腳咁拖行李去[車站](https://hidie.net/hokkaido4f/)  
 點知班火車會遲...  
 仲要係遲半粒鐘呀  
 少少白趕嘅感覺（汗）  
 
 [![](https://c1.staticflickr.com/5/4375/36734896443_99fbb3cc07_z.jpg)](https://c1.staticflickr.com/5/4375/36734896443_99fbb3cc07_z.jpg)
 
-網走 → 旭川  
+[網走 → 旭川](https://hidie.net/hokkaido4g/)  
 （**特急大雪、183系**）  
   
 呢個車程唔算好長  
 加上都真係食得幾飽吓  
 咁就冇買駅弁  
 中途嘅小食時間  
-就食帯広柳月入手嘅**十勝大納言**同**COCOこの実**  
+就食帯広[柳月](https://hidie.net/hokkaido2i/)入手嘅**十勝大納言**同**COCOこの実**  
 
 [![](https://c1.staticflickr.com/5/4408/37374237342_42cdfea774_z.jpg)](https://c1.staticflickr.com/5/4408/37374237342_42cdfea774_z.jpg)
 

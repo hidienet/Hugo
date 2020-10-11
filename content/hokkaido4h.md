@@ -6,7 +6,7 @@ images: ["/images/hokkaido4h.jpg"]
 tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 ---
 
-個`經過三粒鐘零九個字  
+經過三粒鐘零九個字...  
 
 ![](/images/hokkaido4h1.jpg)
 

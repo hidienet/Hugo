@@ -6,7 +6,7 @@ images: ["/images/taiwaidr.jpg"]
 tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
 ---
 
-咪問我有幾難  
+咪問我有幾懶  
 總之擘大眼就有早餐食就得啦...
 
 ![](/images/taiwaidr.jpg)

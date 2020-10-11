@@ -93,15 +93,15 @@ tags : [travel-日本-北海道]
 
 嚟到呢個站大家都開始要自己調凳喇  
 
-[![](https://c1.staticflickr.com/5/4408/23552904898_9558a6e6a8_z.jpg)](https://c1.staticflickr.com/5/4408/23552904898_9558a6e6a8_z.jpg)
+![](/images/hokkaido4h.jpg)
 
 [旭川（旭川駅）](https://hidie.net/hokkaido4h/)  
 擺低行李响酒店先  
 
-[![](https://c1.staticflickr.com/5/4506/37357913756_36ef4faf2b_z.jpg)](https://c1.staticflickr.com/5/4506/37357913756_36ef4faf2b_z.jpg)
+![](/images/hokkaido4i.jpg)
 
 襯有啲時間就行吓呢3日限定嘅  
-**北の恵 食べマルシェ**  
+[北の恵 食べマルシェ](https://hidie.net/hokkaido4i/)  
 橫跨好多條街嘅美食節  
 行極都行唔晒...  
 不過好彩今日行咗  
@@ -109,10 +109,10 @@ tags : [travel-日本-北海道]
 因為台風18号嘅關係  
 只係開埋今日咋  
 
-[![](https://c1.staticflickr.com/5/4443/37358106026_6144711fcb_z.jpg)](https://c1.staticflickr.com/5/4443/37358106026_6144711fcb_z.jpg)
+![](/images/hokkaido4j.jpg)
 
 行到咁上下要走喇  
-因為卜咗枱食癲 @**天金本店**  
+因為卜咗枱食癲 @[天金本店](https://hidie.net/hokkaido4j/)  
 間嘢已經有80年歷史呢  
 特登嚟食**うにしゃぶ**  
 拎海膽打邊爐喎，豪到爆嘅感覺  
@@ -127,14 +127,14 @@ tags : [travel-日本-北海道]
 都仲有時間响繁榮嘅旭川逛吓  
 但係冇嘢要買同想買  
 就買啲北海道嘅嘢飲吓先  
-**タングロン**（tanglone）  
+[タングロン](https://hidie.net/hokkaido4k/)（tanglone）  
 以昆布エキス造  
 仲以為會係會有陣海洋嘅味道  
 點知唔係，乳酸味飲料啫（笑）  
 
 [![](https://c1.staticflickr.com/5/4374/36696674224_53eff16f24_z.jpg)](https://c1.staticflickr.com/5/4374/36696674224_53eff16f24_z.jpg)
 
-今晚嘅宵夜就留俾**籮神**喇  
+今晚嘅[宵夜](https://hidie.net/hokkaido4l/)就留俾**籮神**喇  
 一早一晚便利店真係一個美滿嘅節奏  
 Uchi Café SWEETS × GODIVA 第3弾！  
 **ガトーショコラ**、**ショコラタルト**  

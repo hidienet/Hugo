@@ -121,7 +121,7 @@ tags : [travel-日本-北海道]
 當然呢度啲刺身手造豆腐天ぷら鰻料理都好好食  
   
 
-[![](https://c1.staticflickr.com/5/4485/37374861642_d12bcd1cdf_z.jpg)](https://c1.staticflickr.com/5/4485/37374861642_d12bcd1cdf_z.jpg)
+![](/images/hokkaido4k.jpg)
 
 慢慢食咗幾粒鐘飯  
 都仲有時間响繁榮嘅旭川逛吓  
@@ -132,7 +132,7 @@ tags : [travel-日本-北海道]
 仲以為會係會有陣海洋嘅味道  
 點知唔係，乳酸味飲料啫（笑）  
 
-[![](https://c1.staticflickr.com/5/4374/36696674224_53eff16f24_z.jpg)](https://c1.staticflickr.com/5/4374/36696674224_53eff16f24_z.jpg)
+![](/images/hokkaido4l.jpg)
 
 今晚嘅[宵夜](https://hidie.net/hokkaido4l/)就留俾**籮神**喇  
 一早一晚便利店真係一個美滿嘅節奏  

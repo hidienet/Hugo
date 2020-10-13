@@ -9,22 +9,22 @@ tags : [travel-日本-北海道, flavor - 螞蟻族]
 今晚嘅宵夜甜品time就留俾**籮神**啦  
 一早一晚便利店真係一個美滿嘅節奏 
 
-![](/images/hokkaido4k.jpg)
+![](/images/hokkaido4l.jpg)
 
 Uchi Café SWEETS × GODIVA 第3弾！  
 
-![](/images/hokkaido4k1.jpg)
+![](/images/hokkaido4l1.jpg)
 
 **ガトーショコラ**  
 朱古力薄脆皮包住朱古力海綿蛋糕  
 朱古力味濃郁係乾身咗少少啫...  
 
-![](/images/hokkaido4k2.jpg)
+![](/images/hokkaido4l2.jpg)
 
 **ショコラタルト**  
 酥脆朱古力撻皮包住兩層流心朱古力  
 
-![](/images/hokkaido4k3.jpg)
+![](/images/hokkaido4l3.jpg)
 
 （咬～）  
 好很朱古力呀！！！  

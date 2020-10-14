@@ -1,5 +1,5 @@
 ---
-title: '[食道鉄道北海道] Day4：北の恵 食べマルシェ'
+title: '[食道鉄道北海道] Day4：北の恵み 食べマルシェ'
 date: 2020-10-14T16:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido4i.jpg"]
@@ -10,7 +10,7 @@ tags : [travel-日本-北海道]
 
 ![](/images/hokkaido4i1.jpg)
 
-**北の恵 食べマルシェ**  
+**北の恵み 食べマルシェ**  
 呢3日限定㗎咋，GOGOGO！  
 
 ![](/images/hokkaido4i2.jpg)

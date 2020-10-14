@@ -20,6 +20,7 @@ tags : [travel-日本-北海道, flavor - 行膳積腹, flavor - 飲！]
 同[奈良](https://hidie.net/nara3b/)一樣，買籮神一定要買炸雞  
 呢隻係點食都唔覺膩嘅梅味  
 加份北海道限定嘅三文治  
+係腿蛋治加青瓜，飽飽足食飽就可以响火車補眠 Zzz...  
 
 ![](/images/hokkaido5a1.jpg)
 

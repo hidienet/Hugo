@@ -12,9 +12,23 @@ tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 
 bye 旭川（揮手～）  
   
-![](/images/hokkaido5c.jpg)
-  
+![](/images/hokkaido5c1.jpg)
 
+今日程車都係搭三粒幾接近四粒鐘  
+天陰陰勁厚雲仲落雨  
+冇咩風景好睇，補吓眠啦唯有...
+
+![](/images/hokkaido5c.jpg)
+
+晨早六點幾落樓改車飛  
+驚死冇得搭  
+好彩擒晚間酒店冇溫泉咋  
+如果唔係一定再再再早啲起身去浸  
+當然更幸運係唔多人搭，仲有位可以上啦～  
+
+![](/images/hokkaido5c2.jpg)
   
+唞唞先...  
+    
   
 {{<hokkaido>}}

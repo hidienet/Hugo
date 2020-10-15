@@ -6,7 +6,11 @@ images: ["/images/hokkaido5c.jpg"]
 tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 ---
 
+走喇走喇
 
+![](/images/hokkaido5b5.jpg)
+
+bye 旭川（揮手～）  
   
 ![](/images/hokkaido5c.jpg)
   

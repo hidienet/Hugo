@@ -33,15 +33,15 @@ tags : [travel-日本-北海道]
 六花亭呢兩樣嘢好L好食  
 一定要再再再入手！！！  
 
-[![](https://c1.staticflickr.com/5/4455/37149271040_9509be4aa8_z.jpg)](https://c1.staticflickr.com/5/4455/37149271040_9509be4aa8_z.jpg)
+![](/images/hokkaido5d.jpg)
 
-仲有**Kirin**嘅**Guarana（キリンガラナ）**  
+仲有**Kirin**嘅**Guarana**（[キリンガラナ](https://hidie.net/hokkaido5d/)）  
 北海道嘅可樂就係佢！  
 亦都只係得北海道先有得賣  
 
-[![](https://c1.staticflickr.com/5/4363/36698199534_7c0f164614_z.jpg)](https://c1.staticflickr.com/5/4363/36698199534_7c0f164614_z.jpg)
+![](/images/hokkaido5e.jpg)
 
-橫風橫雨，日本最北端**稚內（稚內駅**）到着  
+橫風橫雨，日本最北端[稚內（稚內駅）](https://hidie.net/hokkaido5e/)到着  
 早一班車除咗係有得嚟稚內  
 仲係早過個颱風嚟到呢度  
   
@@ -65,11 +65,11 @@ tags : [travel-日本-北海道]
 好彩間酒店好近  
 轉個街口兩分鐘就到  
 
-[![](https://c1.staticflickr.com/5/4479/36737889833_9a5d0076e5_z.jpg)](https://c1.staticflickr.com/5/4479/36737889833_9a5d0076e5_z.jpg)
+![](/images/hokkaido5f.jpg)
 
 响酒店放低咗行李  
 就去稚內駅逛吓食吓嘢  
-@**稚內駅キタカラカフェ**  
+@[稚內駅キタカラカフェ](https://hidie.net/hokkaido5f/)  
 日本最北產嘅宗谷牛  
 食呢種牛嘅burger就啱啱好  
 隻包有合桃响裡面好香口呀  
@@ -78,24 +78,24 @@ tags : [travel-日本-北海道]
 唔可以漏咗呢杯北海道限定嘅sapporo classic beer  
 任何時候諗唔到飲咩都係會有佢嘅出現   
 
-[![](https://c1.staticflickr.com/5/4439/23556172718_331e1022cb_z.jpg)](https://c1.staticflickr.com/5/4439/23556172718_331e1022cb_z.jpg)
+![](/images/hokkaido5g.jpg)
 
 祭完五臟廟  
-就要做呢啲打風一定要做嘅嘢：去超市買定嘢食  
+就要做呢啲打風一定要做嘅嘢：去[超市](https://hidie.net/hokkaido5g/)買定嘢食  
 其實就算啲餐廳唔開  
 响酒店嘅餐館食再唔係返稚內駅食都OK  
 但唔可以排除到時懶啦  
 同而家冇嘢做搵啲街行吓嘛  
 
-[![](https://c1.staticflickr.com/5/4340/36738235653_40c2c84ddc_z.jpg)](https://c1.staticflickr.com/5/4340/36738235653_40c2c84ddc_z.jpg)
+![](/images/hokkaido5h2.jpg)
 
 買完返酒店冇幾耐就已經KO呢啲喇...  
-**稚内牛乳アイスクリーム 宗谷の塩**  
+[稚内牛乳アイスクリーム 宗谷の塩](https://hidie.net/hokkaido5h/)  
 有牛奶味又有宗谷鹽味  
 
-[![](https://c1.staticflickr.com/5/4387/37377613042_a308a804f5_z.jpg)](https://c1.staticflickr.com/5/4387/37377613042_a308a804f5_z.jpg)
+![](/images/hokkaido5i.jpg)
 
-仲有老是常出現嘅**グリコ アイスの実**  
+仲有老是常出現嘅[グリコ アイスの実](https://hidie.net/hokkaido5i/)  
 堅鍾意呢隻波波粒  
 今次係**濃いぶどう**同**濃いもも**  
 都係未重複過味道嘅  

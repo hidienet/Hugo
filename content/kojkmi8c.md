@@ -36,7 +36,7 @@ tags : [travel-日本-鹿兒島宮崎, enthusiasm - 低溫慢煮]
 
 然後入去呢間茅屋  
 
-![](/images/kojkmi86c.jpg)
+![](/images/kojkmi8c6.jpg)
 
 成日响啲poster上面見到露天先有嘅遮仔冇得上場  
 

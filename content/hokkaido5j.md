@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day5：なら鮨 - たこしゃぶ鍋'
 date: 2020-10-18T18:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido5j.jpg"]
-tags : [travel-日本-北海道, flavor - 螞蟻族]
+tags : [travel-日本-北海道, flavor - 行膳積腹]
 ---
 
 個風好強，仲「♪ 來得快完得快～」  

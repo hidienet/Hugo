@@ -27,12 +27,12 @@ tags : [travel-日本-北海道]
 
 响稚內行吓 @[宗谷湾](https://hidie.net/hokkaido6b/)  
 
-[![](https://c1.staticflickr.com/5/4369/37373778756_80bb6fa4d8_z.jpg)](https://c1.staticflickr.com/5/4369/37373778756_80bb6fa4d8_z.jpg)
+![](/images/hokkaido6c.jpg)
 
-**北防波堤ドーム**  
+[北防波堤ドーム](https://hidie.net/hokkaido6c/)  
 擒日如果嚟咗呢度我就應該返唔到嚟  
 
-[![](https://c1.staticflickr.com/5/4355/36711292364_1c2eab8009_z.jpg)](https://c1.staticflickr.com/5/4355/36711292364_1c2eab8009_z.jpg)
+![](/images/hokkaido6c0.jpg)
 
 而家都咁大風勁大浪  
   

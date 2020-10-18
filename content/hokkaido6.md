@@ -23,9 +23,9 @@ tags : [travel-日本-北海道]
 牛奶味重啲又冇咁甜嘅益力多  
 喂好好飲呀佢，北海道人真係好幸福呢  
 
-[![](https://c1.staticflickr.com/5/4453/36701714324_7cd6c4cf7c_z.jpg)](https://c1.staticflickr.com/5/4453/36701714324_7cd6c4cf7c_z.jpg)
+![](/images/hokkaido6b.jpg)
 
-响稚內行吓 @**宗谷湾**  
+响稚內行吓 @[宗谷湾](https://hidie.net/hokkaido6b/)  
 
 [![](https://c1.staticflickr.com/5/4369/37373778756_80bb6fa4d8_z.jpg)](https://c1.staticflickr.com/5/4369/37373778756_80bb6fa4d8_z.jpg)
 

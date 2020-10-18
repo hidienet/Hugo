@@ -100,39 +100,39 @@ tags : [travel-日本-北海道]
 今次係**濃いぶどう**同**濃いもも**  
 都係未重複過味道嘅  
 
-[![](https://c1.staticflickr.com/5/4446/37361314746_a4bf424709_z.jpg)](https://c1.staticflickr.com/5/4446/37361314746_a4bf424709_z.jpg)
+![](/images/hokkaido5j.jpg)
 
 個風好強，仲「♪ 來得快完得快～」  
 打咗陣就走咗喇得返微雨咋  
 酒店附近嘅餐廳有啲開返  
 雖然最想食嘅**車屋 源氏**最後都係冇開  
-但酒店對出間**なら鮨**都有得食**たこしゃぶ鍋**  
+但酒店對出間[なら鮨](https://hidie.net/hokkaido5j/)都有得食**たこしゃぶ鍋**  
 落樓食喇又（嘻嘻）  
 大大片新鮮八爪魚咁就清湯烚  
 好食囉就係！  
 
-[![](https://c1.staticflickr.com/5/4364/37409376631_e8ac52ce05_z.jpg)](https://c1.staticflickr.com/5/4364/37409376631_e8ac52ce05_z.jpg)
+![](/images/hokkaido5k.jpg)
 
 可惜只可以食個火鍋嘆樽仔清酒就要走  
-因為响超市買咗**刺身**  
+因為响超市買咗[刺身](https://hidie.net/hokkaido5k/)  
 唔食唔得㗎嘛  
 宗谷產元貝稚內產魷魚  
 半額唔買會傷心嘅魚生們  
 
-[![](https://c1.staticflickr.com/5/4462/37361556606_2917e66206_z.jpg)](https://c1.staticflickr.com/5/4462/37361556606_2917e66206_z.jpg)
+![](/images/hokkaido5l.jpg)
 
-配**稚内限定 男山 最北航路 特別純米**就perfect  
+配[稚内限定 男山 最北航路 特別純米](https://hidie.net/hokkaido5l/)就perfect  
 點解北海道啲清酒都係易入口都暈㗎呢？  
   
 呢少少酒好難醉嘅  
 咁其實啱啱個電視播緊code blue 3嘅最終回  
 一路冇睇開加上離食酒店無料消夜有段仔時間  
-走上樓浸溫泉先（**天北の湯**）  
+走上樓浸溫泉先（[天北の湯](https://hidie.net/hokkaido5m)）  
 
-[![](https://c1.staticflickr.com/5/4380/36738962453_9c252ecf67_z.jpg)](https://c1.staticflickr.com/5/4380/36738962453_9c252ecf67_z.jpg)
-
+![](/images/hokkaido5n.jpg)
+  
 浸完唞返陣就落酒店餐廳食宵夜  
-**夜鳴きそば**  
+[夜鳴きそば](https://hidie.net/hokkaido5n/)  
 即係碗豉油味即食麵（哈）  
   
   

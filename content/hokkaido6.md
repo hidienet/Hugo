@@ -16,9 +16,9 @@ tags : [travel-日本-北海道]
 去返擒日無可能影到嘅**稚內駅**先  
 條最北嘅鐵路係穿出個站㗎  
 
-[![](https://c1.staticflickr.com/5/4382/37411208991_fe29153bc7_z.jpg)](https://c1.staticflickr.com/5/4382/37411208991_fe29153bc7_z.jpg)
+![](/images/hokkaido6a.jpg)
 
-啦啦啦～ 朝早就飲吓**雪印 - ソフトカツゲン**  
+啦啦啦～ 朝早就飲吓[雪印 ソフトカツゲン](https://hidie.net/hokkaido6a/)  
 當然因為係北海道限定嘅乳酸飲品  
 牛奶味重啲又冇咁甜嘅益力多  
 喂好好飲呀佢，北海道人真係好幸福呢  

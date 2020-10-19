@@ -16,7 +16,7 @@ tags : [travel-日本-北海道, flavor - 行膳積腹]
 
 ![](/images/hokkaido5k1.jpg)
 
-**むきほたて 宗谷產**
+**むきほたて 宗谷產**  
 大大隻連裙邊嘅先帶子  
 
 ![](/images/hokkaido5k2.jpg)
@@ -27,7 +27,7 @@ tags : [travel-日本-北海道, flavor - 行膳積腹]
 ![](/images/hokkaido5k3.jpg)
 
 半額唔買會心痛嘅魚生們（心）  
-  
+個價格一半但係鮮味依然啊！  
 
   
 {{<hokkaido>}}

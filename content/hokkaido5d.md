@@ -15,7 +15,7 @@ tags : [travel-日本-北海道, flavor - 飲！]
 
 ![](/images/hokkaido5d.jpg)
 
-仲有**Kirin**嘅**Guarana**（[キリンガラナ](https://hidie.net/hokkaido5d/)）  
+仲有**Kirin**嘅**Guarana（キリンガラナ）**  
 北海道嘅可樂就係佢！  
 亦都只係得北海道先有得賣  
 

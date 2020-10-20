@@ -40,32 +40,32 @@ tags : [travel-日本-北海道]
 有三秒諗過不如出去追風睇浪  
 但係要珍惜生命啊！  
 
-[![](https://c1.staticflickr.com/5/4449/36750941813_f4996ea2a2_z.jpg)](https://c1.staticflickr.com/5/4449/36750941813_f4996ea2a2_z.jpg)
+![](/images/hokkaido6e.jpg)
 
-行去**稚内副港市場**  
+行去[稚内副港市場](https://hidie.net/hokkaido6e/)  
 
-[![](https://c1.staticflickr.com/5/4456/37164321750_90e88c1b22_z.jpg)](https://c1.staticflickr.com/5/4456/37164321750_90e88c1b22_z.jpg)
+![](/images/hokkaido6e0.jpg)
 
 呢邊個市場極級遊客  
 冇嘢好行，求其兜個圈就算  
 
-[![](https://c1.staticflickr.com/5/4496/36750941513_c267329241_z.jpg)](https://c1.staticflickr.com/5/4496/36750941513_c267329241_z.jpg)
+![](/images/hokkaido6f.jpg)
 
-買咗枝**稚内牛乳**同**北海道ミルクブッセ**做簡單早餐  
+買咗枝[稚内牛乳](https://hidie.net/hokkaido6f/)同**北海道ミルクブッセ**做簡單早餐  
 
-[![](https://c1.staticflickr.com/5/4413/23569646088_195ec07bfb_z.jpg)](https://c1.staticflickr.com/5/4413/23569646088_195ec07bfb_z.jpg)
+![](/images/hokkaido6g0.jpg)
 
-呢個市場嘅**ギャラリー棟**就幾得意  
+呢個市場嘅[港ギャラリー](https://hidie.net/hokkaido6g/)就幾得意  
 
-[![](https://c1.staticflickr.com/5/4431/36712193274_99446dd3ff_z.jpg)](https://c1.staticflickr.com/5/4431/36712193274_99446dd3ff_z.jpg)
+![](/images/hokkaido6g.jpg)
 
 一條懷舊街仔（**稚内ノスタルジー**）  
 搞到玩太耐不知時日過  
 要急急急返去酒店check out  
 
-[![](https://c1.staticflickr.com/5/4427/37374729206_20f406d759_z.jpg)](https://c1.staticflickr.com/5/4427/37374729206_20f406d759_z.jpg)
+![](/images/hokkaido6i.jpg)
 
-然後食奔廚 @**青い鳥**  
+然後食奔廚 @[青い鳥](https://hidie.net/hokkaido6i/)  
 稚內嘅**塩ラーメン**  
 唔好睇個湯頭咁清就好似冇味咁  
 味道濃郁唔死鹹，香到爆～  

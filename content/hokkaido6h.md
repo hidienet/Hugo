@@ -6,7 +6,7 @@ images: ["/images/hokkaido6h.jpg"]
 tags : [travel-日本-北海道]
 ---
 
-看完條[懷舊街仔](https://hidie.net/hokkaido6g/)再去附近八吓...  
+去完條[懷舊街仔](https://hidie.net/hokkaido6g/)再去附近八吓...  
 
 ![](/images/hokkaido6h.jpg)
 

@@ -84,7 +84,7 @@ salon
 ![](/images/hokkaido6g18.jpg)
 
 **港ノスタルジー**  
-係將**「稚内港」駅舎**嘅部份復元  
+係將 **「稚内港」** 駅舎嘅部份復元  
 
 ![](/images/hokkaido6g19.jpg)
 

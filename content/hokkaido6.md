@@ -11,7 +11,7 @@ tags : [travel-日本-北海道]
 冇咩嘅咪又去浸溫泉囉  
 （擒晚只可以室內場今朝就有開埋露天嘅，更爽！）  
 
-[![](https://c1.staticflickr.com/5/4497/37379701432_89fc77dc95_z.jpg)](https://c1.staticflickr.com/5/4497/37379701432_89fc77dc95_z.jpg)
+![](/images/hokkaido6j.jpg)
 
 去返擒日無可能影到嘅**稚內駅**先  
 條最北嘅鐵路係穿出個站㗎  
@@ -70,35 +70,35 @@ tags : [travel-日本-北海道]
 唔好睇個湯頭咁清就好似冇味咁  
 味道濃郁唔死鹹，香到爆～  
 
-[![](https://c1.staticflickr.com/5/4490/37374814316_94ee0704aa_z.jpg)](https://c1.staticflickr.com/5/4490/37374814316_94ee0704aa_z.jpg)
+![](/images/hokkaido6j0.jpg)
 
-食完就早少少拖行李去車站  
-等車嗰陣有隻カワイイ突然走咗出嚟  
+食完就早少少拖行李去[車站](https://hidie.net/hokkaido6j/)  
+等車嗰陣有隻ゆるキャラ突然走咗出嚟  
 佢成身海帶，叫**出汁之介**   
 
-[![](https://c1.staticflickr.com/5/4507/36751479253_a9288c6060_z.jpg)](https://c1.staticflickr.com/5/4507/36751479253_a9288c6060_z.jpg)
+![](/images/hokkaido6k.jpg)
 
-稚內 → 旭川  
+[稚內 → 旭川](https://hidie.net/hokkaido6k/)  
 （**特急サロベツ、261系**）  
 
-[![](https://c1.staticflickr.com/5/4365/37391184462_489bb82830_z.jpg)](https://c1.staticflickr.com/5/4365/37391184462_489bb82830_z.jpg)
+![](/images/hokkaido6k0.jpg)
 
 byebye **JR日本最北端の駅**（揮手）  
 
-[![](https://c1.staticflickr.com/5/4422/36751672203_9aba1148a4_z.jpg)](https://c1.staticflickr.com/5/4422/36751672203_9aba1148a4_z.jpg)
+![](/images/hokkaido6k00.jpg)
 
 話說擒日打風喎...  
 
-[![](https://c1.staticflickr.com/5/4470/37422305381_4ca2af9467_z.jpg)](https://c1.staticflickr.com/5/4470/37422305381_4ca2af9467_z.jpg)
+![](/images/hokkaido6l.jpg)
 
-tea time就食超豐富嘅稚內の駅弁「**海の七つ星**」  
+tea time就食超豐富嘅稚內の駅弁「[海の七つ星](https://hidie.net/hokkaido6l/)」  
 有蟹、海膽、数の子、元貝、螺、三文魚同口爆子  
 好食到癲！！！  
 
-[![](https://c1.staticflickr.com/5/4472/36751914343_dc084a6e72_z.jpg)](https://c1.staticflickr.com/5/4472/36751914343_dc084a6e72_z.jpg)
+![](/images/hokkaido6m.jpg)
 
 飲嘢就係北海道限定嘅酸酸地果味水  
-**I LOHAS(い・ろ・は・す) - ハスカップ**  
+[I LOHAS(い・ろ・は・す) - ハスカップ](https://hidie.net/hokkaido6/)  
 
 [![](https://c1.staticflickr.com/5/4382/37391560802_45283a245a_z.jpg)](https://c1.staticflickr.com/5/4382/37391560802_45283a245a_z.jpg)
 

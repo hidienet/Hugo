@@ -293,7 +293,7 @@ Yangon Circular同Yangon-Pyay Line 區間
 
 係大味咋喎唔代表污糟  
 啲魚乾一望就知處理得好乾淨  
-魚皮勁有光澤令立立咁都幾吸引  
+魚皮勁有光澤炩擸擸咁都幾吸引  
 
 ![](/images/yangon3z62.jpg)
 

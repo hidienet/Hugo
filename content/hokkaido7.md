@@ -6,7 +6,7 @@ aliases: [ "/2017/10/day7.html" ]
 tags : [travel-日本-北海道]
 ---
 
-酒店包和/洋輕食set  
+酒店包和/洋[輕食set](https://hidie.net/hokkaido7a/)  
 食完飯仔，精神同腸胃都OK飽滿  
 就出發遠征去**二条市場**  
 

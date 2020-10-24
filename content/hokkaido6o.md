@@ -1,6 +1,6 @@
 ---
 title: '[食道鉄道北海道] Day6：札幌到着 @札幌駅'
-date: 2020-10-24T13:30:00.000+08:00
+date: 2020-10-24T16:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido6o.jpg"]
 tags : [travel-日本-北海道, enthusiasm - 鐵道時光]

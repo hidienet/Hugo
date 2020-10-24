@@ -100,57 +100,57 @@ tea time就食超豐富嘅稚內の駅弁「[海の七つ星](https://hidie.net/
 飲嘢就係北海道限定嘅酸酸地果味水  
 [I LOHAS(い・ろ・は・す) - ハスカップ](https://hidie.net/hokkaido6/)  
 
-[![](https://c1.staticflickr.com/5/4382/37391560802_45283a245a_z.jpg)](https://c1.staticflickr.com/5/4382/37391560802_45283a245a_z.jpg)
+![](/images/hokkaido6n.jpg)
 
-旭川 → 札幌  
+[旭川 → 札幌](https://hidie.net/hokkaido6n/)  
 （**特急ラッピング、789系0代**）  
 
-[![](https://c1.staticflickr.com/5/4383/37391623552_23ed9f2b31_z.jpg)](https://c1.staticflickr.com/5/4383/37391623552_23ed9f2b31_z.jpg)
+![](/images/hokkaido6o.jpg)
 
-**札幌（札幌駅）**  
+[札幌（札幌駅）](https://hidie.net/hokkaido6o/)  
 放低行李之後再响站附近完成「任務」  
 （話說係之前响大阪mission fail，今次終於mission complete）  
 就繼續走出去覓食  
 
-[![](https://c1.staticflickr.com/5/4473/36713034214_84aed87b9d_z.jpg)](https://c1.staticflickr.com/5/4473/36713034214_84aed87b9d_z.jpg)
+![](/images/hokkaido6p1.jpg)
 
-慢慢咁行，沿途就會見到啲地標...   
+慢慢咁行，沿途就會見到啲[地標](https://hidie.net/hokkaido6p/)...   
 首先係**札幌市時計台**  
 
-[![](https://c1.staticflickr.com/5/4363/36752167553_00e728d44e_z.jpg)](https://c1.staticflickr.com/5/4363/36752167553_00e728d44e_z.jpg)
+![](/images/hokkaido6p2.jpg)
 
 同**さっぽろテレビ塔**  
 
-[![](https://c1.staticflickr.com/5/4352/36752215813_8491ac04fa_z.jpg)](https://c1.staticflickr.com/5/4352/36752215813_8491ac04fa_z.jpg)
+![](/images/hokkaido6p3.jpg)
 
 再見到好可愛嘅**札幌市電**  
 
-[![](https://c1.staticflickr.com/5/4429/37391819982_7c8d260d1a_z.jpg)](https://c1.staticflickr.com/5/4429/37391819982_7c8d260d1a_z.jpg)
+![](/images/hokkaido6p4.jpg)
 
 and **狸小路商店街**  
 
-[![](https://c1.staticflickr.com/5/4498/37422793151_c8d27e4da0_z.jpg)](https://c1.staticflickr.com/5/4498/37422793151_c8d27e4da0_z.jpg)
+![](/images/hokkaido6q.jpg)
 
 落住雨咁一口氣行咗2公里  
-就係為咗嚟**五坪**食**厚岸産のカキ**呀  
+就係為咗嚟[五坪](https://hidie.net/hokkaido6q/)食**厚岸産のカキ**呀  
 好大隻好好食啦仲好好好抵食  
 老細係超nice嗰隻  
 真心極級推介！！！  
 
-[![](https://c1.staticflickr.com/5/4366/23570809688_b39be2060f_z.jpg)](https://c1.staticflickr.com/5/4366/23570809688_b39be2060f_z.jpg)
+![](/images/hokkaido6r.jpg)
 
-食完幾隻蠔就走去**いただきます。** 等位  
+食完幾隻蠔就走去[いただきます。](https://hidie.net/hokkaido6r/) 等位  
 有諗過食ジンギスカン (成吉思汗)就去元祖店だるま  
 不過只有いただきます。係全北海道産羊嘛  
 嫩滑唔羶又帶肉香  
 呀呀呀真係好好味呢～  
 
-[![](https://c1.staticflickr.com/5/4452/36752547733_2ca0fc3153_z.jpg)](https://c1.staticflickr.com/5/4452/36752547733_2ca0fc3153_z.jpg)
+![](/images/hokkaido6s.jpg)
 
 好夜喇加上今日都幾勞碌吓  
 係咁意兜咗轉**ドン・キホーテ**  
 就返酒店休息喇  
-無計啦，房裡面有**按摩椅**  
+無計啦，房裡面有[按摩椅](https://hidie.net/hokkaido6s/)  
 （係呀每間房都有㗎）  
 死霸住唔郁㗎喇我！  
 有咩聽朝先講啦～～～  

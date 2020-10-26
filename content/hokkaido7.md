@@ -27,53 +27,53 @@ tags : [travel-日本-北海道]
 
 裡裡外外都行吓咁囉  
 
-![](/images/hokkaido7bc.jpg)
+![](/images/hokkaido7c.jpg)
 
 唔多人唔迫咁都算幾好行嘅  
 
-[![](https://c1.staticflickr.com/5/4337/37378647776_affcd94d96_z.jpg)](https://c1.staticflickr.com/5/4337/37378647776_affcd94d96_z.jpg)
+![](/images/hokkaido7d1.jpg)
 
 然後行返嚟大通公園  
 今個月係有[さっぽろオータムフェスト](https://hidie.net/hokkaido7d/)  
 成條公園橫跨八條街拎晒嚟做fair  
 慢慢行睇吓有咩食  
 
-[![](https://c1.staticflickr.com/5/4463/36755219973_048ea0aba6_z.jpg)](https://c1.staticflickr.com/5/4463/36755219973_048ea0aba6_z.jpg)
+![](/images/hokkaido7d2.jpg)
 
 **大通公園7丁目BAR**  
 
-[![](https://c1.staticflickr.com/5/4398/37378648906_7e1fd32e08_z.jpg)](https://c1.staticflickr.com/5/4398/37378648906_7e1fd32e08_z.jpg)
+![](/images/hokkaido7d3.jpg)
 
 仲有屋台！  
 
-[![](https://c1.staticflickr.com/5/4332/37378646016_bc0a6ffff1_z.jpg)](https://c1.staticflickr.com/5/4332/37378646016_bc0a6ffff1_z.jpg)
+![](/images/hokkaido7d4.jpg)
 
 **10丁目嘅LOGOSワールド**  
 呢條街係燒肉為主  
 有埋帳幕嘅感覺真係好寫意  
 
-[![](https://c1.staticflickr.com/5/4348/36755219093_74f2037592_z.jpg)](https://c1.staticflickr.com/5/4348/36755219093_74f2037592_z.jpg)
+![](/images/hokkaido7d5.jpg)
 
 除咗北海道嘢，仲有世界各地嘅嘢  
 
-[![](https://c1.staticflickr.com/5/4359/36755217503_764c5ee46f_z.jpg)](https://c1.staticflickr.com/5/4359/36755217503_764c5ee46f_z.jpg)
+![](/images/hokkaido7e.jpg)
 
 揀咗個**摩周湖**嘅[ハーフメロンソフトクリーム](https://hidie.net/hokkaido7e/)食  
 蜜瓜香甜牛奶雪糕濃濃滑滑  
 好好食呀呀呀呀呀（心）  
 
-[![](https://c1.staticflickr.com/5/4480/36755219443_6e7a19e7bc_z.jpg)](https://c1.staticflickr.com/5/4480/36755219443_6e7a19e7bc_z.jpg)
+![](/images/hokkaido7f0.jpg)
 
 行到嚟**札幌市資料館**  
-就知道行晒成條大通公園喇  
+就知道行晒成條[大通公園](https://hidie.net/hokkaido7f/)喇  
 
-[![](https://c1.staticflickr.com/5/4460/36716116624_a645e00d88_z.jpg)](https://c1.staticflickr.com/5/4460/36716116624_a645e00d88_z.jpg)
+![](/images/hokkaido7f.jpg)
 
 折返途中經過**北海道庁旧本庁舎**  
 
 [![](https://c1.staticflickr.com/5/4348/37425889991_64c82dd531_z.jpg)](https://c1.staticflickr.com/5/4348/37425889991_64c82dd531_z.jpg)
 
-札幌 → 小樽  
+[札幌 → 小樽](https://hidie.net/hokkaido7g/)  
 （**区間快速 いしかりライナー、731系**）  
   
 因為坐唔啱位，影唔到**石狩湾**呀  

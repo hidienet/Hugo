@@ -8,33 +8,33 @@ tags : [travel-日本-北海道]
 
 酒店包和/洋[輕食set](https://hidie.net/hokkaido7a/)  
 食完飯仔，精神同腸胃都OK飽滿  
-就出發遠征去**二条市場**  
+就出發遠征去[二条市場](https://hidie.net/hokkaido7c/)  
 
-[![](https://c1.staticflickr.com/5/4451/37377743646_8ee51a5650_z.jpg)](https://c1.staticflickr.com/5/4451/37377743646_8ee51a5650_z.jpg)
+![](/images/hokkaido7b.jpg)
 
-兜兩兜就坐低食**海鮮丼** @**どんぶり茶屋**  
+兜兩兜就坐低食**海鮮丼** @[どんぶり茶屋](https://hidie.net/hokkaido7b/)  
 啲海鮮係市場直送嘅新鮮素材  
 冇唔好食嘅道理  
   
 結果係兩個鐘頭內食咗兩碗飯  
 都算係自己嘅一個壯舉！  
 
-[![](https://c1.staticflickr.com/5/4340/37167815600_977690d402_z.jpg)](https://c1.staticflickr.com/5/4340/37167815600_977690d402_z.jpg)
+![](/images/hokkaido7c1.jpg)
 
 食完再兜多次買少少嘢先  
 
-[![](https://c1.staticflickr.com/5/4360/37424966081_b95cd76879_z.jpg)](https://c1.staticflickr.com/5/4360/37424966081_b95cd76879_z.jpg)
+![](/images/hokkaido7c2.jpg)
 
 裡裡外外都行吓咁囉  
 
-[![](https://c1.staticflickr.com/5/4419/37167815420_e7210eab9a_z.jpg)](https://c1.staticflickr.com/5/4419/37167815420_e7210eab9a_z.jpg)
+![](/images/hokkaido7bc.jpg)
 
 唔多人唔迫咁都算幾好行嘅  
 
 [![](https://c1.staticflickr.com/5/4337/37378647776_affcd94d96_z.jpg)](https://c1.staticflickr.com/5/4337/37378647776_affcd94d96_z.jpg)
 
 然後行返嚟大通公園  
-今個月係有**さっぽろオータムフェスト**  
+今個月係有[さっぽろオータムフェスト](https://hidie.net/hokkaido7d/)  
 成條公園橫跨八條街拎晒嚟做fair  
 慢慢行睇吓有咩食  
 
@@ -58,7 +58,7 @@ tags : [travel-日本-北海道]
 
 [![](https://c1.staticflickr.com/5/4359/36755217503_764c5ee46f_z.jpg)](https://c1.staticflickr.com/5/4359/36755217503_764c5ee46f_z.jpg)
 
-揀咗個**摩周湖**嘅**ハーフメロンソフトクリーム**食  
+揀咗個**摩周湖**嘅[ハーフメロンソフトクリーム](https://hidie.net/hokkaido7e/)食  
 蜜瓜香甜牛奶雪糕濃濃滑滑  
 好好食呀呀呀呀呀（心）  
 

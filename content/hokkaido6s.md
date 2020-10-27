@@ -1,5 +1,5 @@
 ---
-title: '[食道鉄道北海道] Day6：end of the day'
+title: '[食道鉄道北海道] Day6：end of the day w/按摩椅'
 date: 2020-10-25T19:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido6s.jpg"]

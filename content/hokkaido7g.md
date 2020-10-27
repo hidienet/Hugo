@@ -16,7 +16,7 @@ tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
 
 ![](/images/hokkaido7g1.jpg)
   
-因為坐唔啱位，影唔到石狩湾呀  
+因為坐唔啱位，影唔到**石狩湾**呀  
 不過有見到啦冇遺憾嘅...  
   
   

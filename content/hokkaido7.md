@@ -91,7 +91,7 @@ tags : [travel-日本-北海道]
 
 ![](/images/hokkaido7j.jpg)
 
-响超過50年歷史嘅[若雞時代なると](https://hidie.net/hokkaido7j/)食**若雞半身揚げ**  
+响超過50年歷史嘅[若鶏時代なると](https://hidie.net/hokkaido7j/)食**若鶏半身揚げ**  
 將隻雞直炸，同釧路嘅一舊舊含粉漿ザンギ唔同  
 
 [![](https://c1.staticflickr.com/5/4388/36756618253_90abc745fd_z.jpg)](https://c1.staticflickr.com/5/4388/36756618253_90abc745fd_z.jpg)

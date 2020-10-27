@@ -71,7 +71,7 @@ tags : [travel-日本-北海道]
 
 折返途中經過**北海道庁旧本庁舎**  
 
-[![](https://c1.staticflickr.com/5/4348/37425889991_64c82dd531_z.jpg)](https://c1.staticflickr.com/5/4348/37425889991_64c82dd531_z.jpg)
+![](/images/hokkaido7g.jpg)
 
 [札幌 → 小樽](https://hidie.net/hokkaido7g/)  
 （**区間快速 いしかりライナー、731系**）  
@@ -79,19 +79,19 @@ tags : [travel-日本-北海道]
 因為坐唔啱位，影唔到**石狩湾**呀  
 不過有見到啦冇遺憾嘅...  
 
-[![](https://c1.staticflickr.com/5/4402/36716483164_fded501234_z.jpg)](https://c1.staticflickr.com/5/4402/36716483164_fded501234_z.jpg)
+![](/images/hokkaido7h.jpg)
 
-**小樽（小樽駅）**  
+[小樽（小樽駅）](https://hidie.net/hokkaido7h/)  
 呢鑊終於冇搬行李  
 只係嚟行吓啫  
 
-[![](https://c1.staticflickr.com/5/4464/37169772430_e297eb10c7_z.jpg)](https://c1.staticflickr.com/5/4464/37169772430_e297eb10c7_z.jpg)
+![](/images/hokkaido7i.jpg)
 
-嚟小樽當然要飲**小樽ビール**啦  
+嚟小樽當然要飲[小樽ビール](https://hidie.net/hokkaido7i/)啦  
 
-[![](https://c1.staticflickr.com/5/4437/37169772060_d031e72a07_z.jpg)](https://c1.staticflickr.com/5/4437/37169772060_d031e72a07_z.jpg)
+![](/images/hokkaido7j.jpg)
 
-响超過50年歷史嘅**若雞時代なると**食**若雞半身揚げ**  
+响超過50年歷史嘅[若雞時代なると](https://hidie.net/hokkaido7j/)食**若雞半身揚げ**  
 將隻雞直炸，同釧路嘅一舊舊含粉漿ザンギ唔同  
 
 [![](https://c1.staticflickr.com/5/4388/36756618253_90abc745fd_z.jpg)](https://c1.staticflickr.com/5/4388/36756618253_90abc745fd_z.jpg)

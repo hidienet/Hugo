@@ -3,7 +3,7 @@ title: '[飯] SUPERDON (スーパー丼) - 特上北海道海鮮丼'
 date: 2019-02-12T19:11:00.002+08:00
 draft: false
 aliases: [ "/2019/02/superdon.html" ]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 因為工作而好很嬲  

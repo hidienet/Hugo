@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day5：日本最北端稚內駅到着'
 date: 2020-10-17T14:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido5e.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 食吓又瞓吓咁就過咗差唔多四粒鐘

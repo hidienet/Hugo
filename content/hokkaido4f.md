@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day4：急急趕白趕一趟 @網走駅'
 date: 2020-10-13T16:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido4f.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 食好晒嘢然後哎吔哎吔有啲趕咁行返去酒店拎行李  

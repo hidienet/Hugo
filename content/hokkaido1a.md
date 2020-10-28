@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day1：Hokkaido Rail Pass | 北海道鐵路周�
 date: 2020-09-24T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido1a.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 清晨動身朝早起飛晏晝先到北海道

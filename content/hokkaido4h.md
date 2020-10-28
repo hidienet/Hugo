@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day4：旭川到着 @旭川駅'
 date: 2020-10-14T11:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido4h.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 經過三粒鐘零九個字...  

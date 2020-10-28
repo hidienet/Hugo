@@ -3,7 +3,7 @@ title: '[東京箱根食買浸] Day6：新幹線 x skyliner x きつねうどん
 date: 2013-11-04T14:00:00.000+08:00
 draft: false
 aliases: [ "/2013/11/day6-x-skyliner-x.html" ]
-tags : [travel-日本-東京御殿場箱根, enthusiasm - 鐵道時光]
+tags : [travel-日本-東京御殿場箱根, satisfaction - 搭條鐵]
 ---
 
 搭乘巴士到新幹線經上野去成田空港  

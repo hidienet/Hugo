@@ -3,7 +3,7 @@ title: '[臺東瘋食遊] Day8：臺鐵便當 排骨便當'
 date: 2016-03-01T19:30:00.000+08:00
 draft: false
 aliases: [ "/2016/03/day8.html" ]
-tags : [flavor - 行膳積腹, enthusiasm - 鐵道時光, travel - 臺灣・臺東、知本]
+tags : [flavor - 行膳積腹, satisfaction - 搭條鐵, travel - 臺灣・臺東、知本]
 ---
 
 火車便當呀～ 終於俾我恨到喇（撒花）  

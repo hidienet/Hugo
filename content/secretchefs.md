@@ -3,7 +3,7 @@ title: '[牛] 秘 Secret Chefs'
 date: 2020-04-16T21:28:00.000+08:00
 draft: false
 aliases: [ "/2020/04/secret-chefs.html" ]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 作為一枚animal lover  

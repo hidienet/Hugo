@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day3：骨付き阿波尾鶏 一鴻'
 date: 2020-04-13T11:05:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day3_13.html" ]
-tags : [flavor - 行膳積腹, travel-日本-四國, flavor - 飲！]
+tags : [flavor - 行膳積腹, travel-日本-四國, flavor - 飲！, satisfaction - 搭條鐵]
 ---
 
 chur完碗麵再行兩行就食晚餐  

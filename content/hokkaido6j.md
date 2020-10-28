@@ -1,5 +1,5 @@
 ---
-title: '[食道鉄道北海道] Day6：稚內駅 & 出汁之介'
+title: '[食道鉄道北海道] Day6：稚內駅 w/出汁之介'
 date: 2020-10-23T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido6j.jpg"]

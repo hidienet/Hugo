@@ -3,7 +3,7 @@ title: '[pancake] 蜜庵本膳'
 date: 2019-12-05T23:07:00.000+08:00
 draft: false
 aliases: [ "/2019/12/pancake.html" ]
-tags : [flavor - 行膳積腹, flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, flavor - 螞蟻族, satisfaction - 黃店懲罰日]
 ---
 
 港式日食唔係求其貨，其實都幾難得...  

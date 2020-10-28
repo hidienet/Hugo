@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day1：新千歳空港 → 南千歲 → 帯広'
 date: 2020-09-25T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido1c.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 買埋[便當](https://hidie.net/hokkaido1d/)（空弁同駅弁咪又係お弁当）  

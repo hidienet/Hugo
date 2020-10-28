@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day5：C12 231号機、大洲城、宇土線3兄
 date: 2020-04-21T10:46:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day5c12-2313.html" ]
-tags : [travel-日本-四國, enthusiasm - 鐵道時光]
+tags : [travel-日本-四國, satisfaction - 搭條鐵]
 ---
 
 搭特急列車由松山到宇和島需時個半鐘  

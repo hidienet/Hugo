@@ -3,7 +3,7 @@ title: '[臺南喪食遊] Day4：我終於到了六龜！'
 date: 2013-10-21T18:00:00.000+08:00
 draft: false
 aliases: [ "/2013/10/day4_2870.html" ]
-tags : [travel - 臺灣・臺南、六龜, enthusiasm - 低溫慢煮]
+tags : [travel - 臺灣・臺南、六龜, satisfaction - 計劃泡湯了]
 ---
 
 由台南到六龜：11時多坐的士出發﹣1200搭火車﹣1400轉巴士﹣＊有意外，最後民宿有人駕車接載，現在已經1800！  

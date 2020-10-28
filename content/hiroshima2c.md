@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 2：Visit Hiroshima Tourist Pass'
 date: 2020-08-28T16:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima2c.jpg"]
-tags : [travel-日本-廣島, enthusiasm - 鐵道時光]
+tags : [travel-日本-廣島, satisfaction - 搭條鐵]
 ---
 
 食飽就買個pass周圍走   

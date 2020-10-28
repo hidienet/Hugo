@@ -94,9 +94,9 @@ tags : [travel-日本-北海道]
 响超過50年歷史嘅[若鶏時代なると](https://hidie.net/hokkaido7j/)食**若鶏半身揚げ**  
 將隻雞直炸，同釧路嘅一舊舊含粉漿ザンギ唔同  
 
-[![](https://c1.staticflickr.com/5/4388/36756618253_90abc745fd_z.jpg)](https://c1.staticflickr.com/5/4388/36756618253_90abc745fd_z.jpg)
+![](/images/hokkaido7l.jpg)
 
-食飽行去廢棄線嘅**手宮線跡地**  
+食飽行去廢棄線嘅[手宮線跡地](https://hidie.net/hokkaido7l/)  
 
 [![](https://c1.staticflickr.com/5/4369/36756886553_724a4ccbaa_z.jpg)](https://c1.staticflickr.com/5/4369/36756886553_724a4ccbaa_z.jpg)
 

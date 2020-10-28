@@ -3,7 +3,7 @@ title: '[麵] 三星台菜食堂 Tristar Kitchen - 噶瑪蘭威士忌三星麵'
 date: 2020-05-14T21:42:00.000+08:00
 draft: false
 aliases: [ "/2020/05/tristar-kitchen.html" ]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 仲未有得去臺灣呀呀呀（淚）  

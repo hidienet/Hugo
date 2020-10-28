@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day2：Río Duero、Ponte D. Luís I'
 date: 2017-11-27T09:37:00.000+08:00
 draft: false
 aliases: [ "/2017/11/day2rio-dueroponte-d-luis-i.html" ]
-tags : [travel-葡萄牙, enthusiasm - 鐵道時光]
+tags : [travel-葡萄牙, satisfaction - 搭條鐵]
 ---
 
 身處**Río Duero**  

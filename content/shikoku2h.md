@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day2：わたや こんぴら温泉'
 date: 2020-04-03T16:31:00.002+08:00
 draft: false
 aliases: [ "/2020/04/day2_34.html" ]
-tags : [travel-日本-四國, enthusiasm - 低溫慢煮]
+tags : [travel-日本-四國, satisfaction - 計劃泡湯了]
 ---
 
 成身濕到癲同埋琴平係**こんぴら温泉郷**嘛…  

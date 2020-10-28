@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 8：特急「指宿のたまて箱
 date: 2017-06-15T09:27:00.000+08:00
 draft: false
 aliases: [ "/2017/06/happy-days-day-8_15.html" ]
-tags : [flavor - 飲！, enthusiasm - 鐵道時光, travel-日本-鹿兒島宮崎]
+tags : [flavor - 飲！, satisfaction - 搭條鐵, travel-日本-鹿兒島宮崎]
 ---
 
 點解行程要急到要棄景點？  

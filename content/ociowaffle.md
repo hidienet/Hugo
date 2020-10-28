@@ -3,7 +3,7 @@ title: '[waffle] ocio waffle w/chocolate sauce'
 date: 2013-10-09T15:30:00.000+08:00
 draft: false
 aliases: [ "/2013/10/waffle-ocio-waffle-wchocolate-sauce.html" ]
-tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
+tags : [flavor - 螞蟻族, satisfaction - 黃店懲罰日]
 ---
 
 即叫即做，新鮮熱烘烘上枱  

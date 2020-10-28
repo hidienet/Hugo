@@ -3,7 +3,7 @@ title: '[広島！食紀行] Day 6：串燒蠔 | 宮島回程'
 date: 2020-09-16T12:30:00.000+08:00
 draft: false
 images: ["/images/hiroshima6m.jpg"]
-tags : [travel-日本-廣島, flavor - 小食部, enthusiasm - 鐵道時光]
+tags : [travel-日本-廣島, flavor - 小食部, satisfaction - 搭條鐵]
 ---
 
 臨上船前又聞到好鬼香嘅味道...

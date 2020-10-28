@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day6：稚內 → 旭川'
 date: 2020-10-23T13:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido6k.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 走喇走喇，離開日本最最最北喇～  

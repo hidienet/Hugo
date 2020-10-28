@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day2：馬車道 → 横浜赤レンガ倉庫'
 date: 2020-07-10T12:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa2j.jpg"]
-tags : [travel-日本-神奈川, enthusiasm - 鐵道時光]
+tags : [travel-日本-神奈川, satisfaction - 搭條鐵]
 ---
 
 地下鉄again

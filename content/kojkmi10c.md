@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 10： 鹿児島空港 － 天然�
 date: 2017-06-27T09:11:00.000+08:00
 draft: false
 aliases: [ "/2017/06/happy-days-day-10_27.html" ]
-tags : [travel-日本-鹿兒島宮崎, enthusiasm - 低溫慢煮]
+tags : [travel-日本-鹿兒島宮崎, satisfaction - 計劃泡湯了]
 ---
 
 臨走都要無料足湯！  

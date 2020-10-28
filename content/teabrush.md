@@ -3,7 +3,7 @@ title: '[icecream] 茶墨 TeaBrush'
 date: 2020-10-11T16:30:00.000+08:00
 draft: false
 images: ["/images/teabrush.jpg"]
-tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
+tags : [flavor - 螞蟻族, satisfaction - 黃店懲罰日]
 ---
 
 後teatime時間...

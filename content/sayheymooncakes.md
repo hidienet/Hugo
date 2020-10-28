@@ -3,7 +3,7 @@ title: '[mooncake] 四喜麵包西餅 迷你伯爵茶味奶黃月餅'
 date: 2019-09-13T20:05:00.000+08:00
 draft: false
 aliases: [ "/2019/09/mooncake.html" ]
-tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
+tags : [flavor - 螞蟻族, satisfaction - 黃店懲罰日]
 ---
 
 同過往嘅中秋一樣收到好很多月餅  

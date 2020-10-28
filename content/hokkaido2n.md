@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day2：帯広 → 釧路'
 date: 2020-10-02T12:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido2n.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 睇完[vintage樣](https://hidie.net/hokkaido2m/)嘅車款

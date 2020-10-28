@@ -3,7 +3,7 @@ title: '[牛] 616牛肉火鍋專門店'
 date: 2020-06-16T00:00:00.000+08:00
 draft: false
 images: ["/images/beef616.jpg"]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 晌616食616(心)  

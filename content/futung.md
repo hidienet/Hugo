@@ -3,7 +3,7 @@ title: '[鴨] 富東閣 片皮鴨'
 date: 2020-10-15T19:30:00.000+08:00
 draft: false
 images: ["/images/futung.jpg"]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 人哋青衣荃灣將軍澳百幾隻百幾隻咁訂外賣  

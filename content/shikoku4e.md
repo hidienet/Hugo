@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day4：松山駅'
 date: 2020-04-16T10:19:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day4_16.html" ]
-tags : [travel-日本-四國, enthusiasm - 鐵道時光]
+tags : [travel-日本-四國, satisfaction - 搭條鐵]
 ---
 
 坐住架アンパンマン列車  

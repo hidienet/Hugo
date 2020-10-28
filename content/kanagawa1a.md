@@ -2,7 +2,7 @@
 title: '[神奈川衝撞旅] Day1：羽田 → 三浦半島'
 date: 2020-06-15T15:30:00.000+08:00
 draft: false
-tags : [travel-日本-神奈川, enthusiasm - 鐵道時光]
+tags : [travel-日本-神奈川, satisfaction - 搭條鐵]
 ---
 
 凌晨起飛清晨落機 

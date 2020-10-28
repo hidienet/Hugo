@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day7：中村 → 須崎'
 date: 2020-05-15T15:57:00.041+08:00
 draft: false
 aliases: [ "/2020/05/day7_47.html" ]
-tags : [travel-日本-四國, enthusiasm - 鐵道時光]
+tags : [travel-日本-四國, satisfaction - 搭條鐵]
 ---
 
 繼續アンパンマン列車路途中...  

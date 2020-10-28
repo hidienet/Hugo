@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day7：小樽到着 @小樽駅'
 date: 2020-10-28T12:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido7h.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
  
 係咁多日以嚟唯一一日車程响一粒鐘內～    

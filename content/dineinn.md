@@ -3,7 +3,7 @@ title: '[飯] 開餐 Dine Inn'
 date: 2020-10-11T18:30:00.000+08:00
 draft: false
 images: ["/images/dineinn.jpg"]
-tags : [flavor - 行膳積腹, flavor - 飲！, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
 
 夠鐘開餐喇～～～

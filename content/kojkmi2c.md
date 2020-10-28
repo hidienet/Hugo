@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 2：霧島神宮駅、きりしま
 date: 2017-01-13T09:30:00.000+08:00
 draft: false
 aliases: [ "/2017/01/happy-days-day-2_13.html" ]
-tags : [travel-日本-鹿兒島宮崎, enthusiasm - 低溫慢煮, enthusiasm - 鐵道時光]
+tags : [travel-日本-鹿兒島宮崎, satisfaction - 計劃泡湯了, satisfaction - 搭條鐵]
 ---
 
 搭巴士由霧島神宮到**霧島神宮駅**  

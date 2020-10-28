@@ -3,7 +3,7 @@ title: '[美] Just’er Bar & Restaurant'
 date: 2020-10-10T19:30:00.000+08:00
 draft: false
 images: ["/images/juster.jpg"]
-tags : [flavor - 行膳積腹, flavor - 飲！, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
 
 雙十節喎！唔係唔使賀賀佢呀？

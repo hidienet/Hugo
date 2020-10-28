@@ -3,7 +3,7 @@ title: '[Happy Days！鹿児島宮崎！] Day 6：足湯 @ ドルフィンポー
 date: 2017-03-27T09:11:00.000+08:00
 draft: false
 aliases: [ "/2017/03/happy-days-day-6_27.html" ]
-tags : [travel-日本-鹿兒島宮崎, enthusiasm - 低溫慢煮]
+tags : [travel-日本-鹿兒島宮崎, satisfaction - 計劃泡湯了]
 ---
 
 去旅行，搭車又搭船之後  

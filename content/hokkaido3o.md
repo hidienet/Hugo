@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day3：釧網本線'
 date: 2020-10-09T16:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido3o.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 話說今日係完成一！整！條！**釧網本線**   

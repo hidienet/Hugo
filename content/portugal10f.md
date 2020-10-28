@@ -3,7 +3,7 @@ title: '[抱抱葡萄牙] Day10：Ascensor da Bica'
 date: 2018-05-15T09:18:00.000+08:00
 draft: false
 aliases: [ "/2018/05/day10ascensor-da-bica.html" ]
-tags : [travel-葡萄牙, enthusiasm - 鐵道時光]
+tags : [travel-葡萄牙, satisfaction - 搭條鐵]
 ---
 
 呃遊客定俾相當價值去體驗人哋啲舊嘢只差一線...  

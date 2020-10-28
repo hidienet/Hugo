@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day1：北の海 幸づくし | 白老牛ロー�
 date: 2020-09-25T12:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido1d.jpg"]
-tags : [travel-日本-北海道, flavor - 行膳積腹, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, flavor - 行膳積腹, satisfaction - 搭條鐵]
 ---
 
 列車食tea時間...  

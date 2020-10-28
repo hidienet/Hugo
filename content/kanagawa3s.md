@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：森永 ビスケットサンド ミルクキ
 date: 2020-07-24T14:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3s.jpg"]
-tags : [flavor - 螞蟻族, enthusiasm - 鐵道時光, travel-日本-神奈川]
+tags : [flavor - 螞蟻族, satisfaction - 搭條鐵, travel-日本-神奈川]
 ---
 
 啱先食咗幾串又飲咗少少落肚仲有甜品送  

@@ -3,7 +3,7 @@ title: '[臺東瘋食遊] Day2：日安臺東'
 date: 2016-01-05T12:30:00.000+08:00
 draft: false
 aliases: [ "/2016/01/day2.html" ]
-tags : [travel - 臺灣・臺東、知本, enthusiasm - 鐵道時光]
+tags : [travel - 臺灣・臺東、知本, satisfaction - 搭條鐵]
 ---
 
 好白癡咁平訂臺中機票  

@@ -3,7 +3,7 @@ title: '[牛] 印尼餐廳1968 - 巴東牛肉'
 date: 2015-02-01T20:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/1968.html" ]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 我真的真的好喜歡吃這個牛肉！  

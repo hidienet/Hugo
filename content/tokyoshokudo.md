@@ -3,7 +3,7 @@ title: '[鰻] 東京食堂 Tokyo Shokudo'
 date: 2020-09-24T19:30:00.000+08:00
 draft: false
 images: ["/images/tokyoshokudo.jpg"]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 終於可以四條友出街食飯（yeah!）

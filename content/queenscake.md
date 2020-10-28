@@ -3,7 +3,7 @@ title: '[cake] 皇后餅店 漢堡包蛋糕'
 date: 2014-10-05T15:30:00.000+08:00
 draft: false
 aliases: [ "/2014/10/cake.html" ]
-tags : [flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
+tags : [flavor - 螞蟻族, satisfaction - 黃店懲罰日]
 ---
 
 漢堡包？蛋糕！  

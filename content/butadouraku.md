@@ -3,7 +3,7 @@ title: '[麵] 豚道樂 Butadouraku - 濃濃厚豬骨拉麵'
 date: 2020-04-09T21:14:00.000+08:00
 draft: false
 aliases: [ "/2020/04/butadouraku.html" ]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 似係過江龍；其實係港人港拉麵啦～  

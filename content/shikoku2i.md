@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day2：琴平 → 高松（琴電琴平駅、高
 date: 2020-04-04T11:14:00.002+08:00
 draft: false
 aliases: [ "/2020/04/day2-jr_4.html" ]
-tags : [travel-日本-四國, enthusiasm - 鐵道時光]
+tags : [travel-日本-四國, satisfaction - 搭條鐵]
 ---
 
 搭ことでん（琴電）由琴平返**高松築港**  

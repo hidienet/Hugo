@@ -3,7 +3,7 @@ title: '[明明遊慶州 偏向釜山行] Day7：허심청（虛心廳）'
 date: 2014-01-20T10:00:00.000+08:00
 draft: false
 aliases: [ "/2014/01/day7.html" ]
-tags : [travel-南韓-慶州釜山, enthusiasm - 低溫慢煮]
+tags : [travel-南韓-慶州釜山, satisfaction - 計劃泡湯了]
 ---
 
 「最開心 浸溫泉 浸溫泉⋯⋯」  

@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day4：栗林公園'
 date: 2020-04-14T15:22:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day4_14.html" ]
-tags : [travel-日本-四國, enthusiasm - 鐵道時光]
+tags : [travel-日本-四國, satisfaction - 搭條鐵]
 ---
 
 食飽就入呢個有四百年歷史  

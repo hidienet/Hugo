@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day1：帯広到着 @帯広駅'
 date: 2020-09-25T15:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido1e.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 由新千歳空港轉車搭咗2粒幾鐘車...

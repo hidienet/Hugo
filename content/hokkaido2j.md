@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day2：十勝最初の鉄道'
 date: 2020-10-01T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido2j.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 買好晒甜食們...

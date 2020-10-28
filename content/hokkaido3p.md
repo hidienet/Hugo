@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day3：網走到着 @網走駅'
 date: 2020-10-09T19:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido3p.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 成條**釧網本線**  

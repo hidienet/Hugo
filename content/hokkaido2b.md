@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day2：幸福駅'
 date: 2020-09-28T12:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido2b.jpg"]
-tags : [travel-日本-北海道, flavor - 螞蟻族, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, flavor - 螞蟻族, satisfaction - 搭條鐵]
 ---
 
 今朝就會離開帯広  

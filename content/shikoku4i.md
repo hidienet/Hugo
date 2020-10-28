@@ -3,7 +3,7 @@ title: '[食の四国ツアー] Day4：道後温泉本館'
 date: 2020-04-18T11:09:00.001+08:00
 draft: false
 aliases: [ "/2020/04/day4_18.html" ]
-tags : [travel-日本-四國, enthusiasm - 低溫慢煮]
+tags : [travel-日本-四國, satisfaction - 計劃泡湯了]
 ---
 
 冇好似「少爺」(坊っちゃん) 咁嫌棄松山呢個所謂鄉下嘅地方  

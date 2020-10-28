@@ -3,7 +3,7 @@ title: '[神奈川衝撞旅] Day3：江ノ島電鉄 - 和田塚 → 稲村ヶ崎
 date: 2020-07-22T08:30:00.000+08:00
 draft: false
 images: ["/images/kanagawa3m.jpg"]
-tags : [travel-日本-神奈川, enthusiasm - 鐵道時光]
+tags : [travel-日本-神奈川, satisfaction - 搭條鐵]
 ---
 
 個[day pass](https://hidie.net/kanagawa3b/)包咗**江ノ島電鉄線**  

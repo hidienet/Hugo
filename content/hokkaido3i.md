@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day3：くしろ湿原ノロッコ号プリン'
 date: 2020-10-07T16:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido3i.jpg"]
-tags : [travel-日本-北海道, flavor - 螞蟻族, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, flavor - 螞蟻族, satisfaction - 搭條鐵]
 ---
 
 飽還飽，甜品胃依然正常運作

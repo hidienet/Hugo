@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day6：稚內駅 & 出汁之介'
 date: 2020-10-23T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido6j.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 
 食完麵就早少少拖行李去車站

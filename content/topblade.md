@@ -3,7 +3,7 @@ title: '[牛] Top Blade Steak Lab'
 date: 2020-08-27T19:30:00.000+08:00
 draft: false
 images: ["/images/topblade.jpg"]
-tags : [flavor - 行膳積腹, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 將Steak House帶返屋企～

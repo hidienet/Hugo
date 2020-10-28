@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day7：札幌 → 小樽'
 date: 2020-10-28T08:30:00.000+08:00
 draft: false
 images: ["/images/hokkaido7g.jpg"]
-tags : [travel-日本-北海道, enthusiasm - 鐵道時光]
+tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
  
 暫別札幌，day trip都要搭個鐵路  

@@ -3,7 +3,7 @@ title: '[waffle] 夏雪 Summer Ice'
 date: 2019-07-14T11:37:00.001+08:00
 draft: false
 aliases: [ "/2019/07/waffle-summer-ice.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！, flavor - 螞蟻族, enthusiasm - 黃色經濟圈]
+tags : [flavor - 行膳積腹, flavor - 飲！, flavor - 螞蟻族, satisfaction - 黃店懲罰日]
 ---
 
 夏雪，呢間好好食嘅waffle有兩間舖  

@@ -15,7 +15,7 @@ tags : [travel-日本-北海道]
 
 ![](/images/hokkaido7k1.jpg)
 
-相比一陣會去嘅**堺町通り商店街**  
+相比一陣會去嘅[堺町通り商店街](https://hidie.net/hokkaido7n/)  
 呢條街就少遊客得多  
 因為佢係當地人嘅主要消費地段  
 自然同遊客區有分別啊！  

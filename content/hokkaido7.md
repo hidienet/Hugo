@@ -98,9 +98,9 @@ tags : [travel-日本-北海道]
 
 食飽行去廢棄線嘅[手宮線跡地](https://hidie.net/hokkaido7l/)  
 
-[![](https://c1.staticflickr.com/5/4369/36756886553_724a4ccbaa_z.jpg)](https://c1.staticflickr.com/5/4369/36756886553_724a4ccbaa_z.jpg)
+![](/images/hokkaido7n.jpg)
 
-殺落**堺町通り商店街**  
+殺落[堺町通り商店街](https://hidie.net/hokkaido7n/)  
 
 [![](https://c1.staticflickr.com/5/4459/37380239076_895fefce57_z.jpg)](https://c1.staticflickr.com/5/4459/37380239076_895fefce57_z.jpg)
 

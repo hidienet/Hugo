@@ -102,10 +102,10 @@ tags : [travel-日本-北海道]
 
 殺落[堺町通り商店街](https://hidie.net/hokkaido7n/)  
 
-[![](https://c1.staticflickr.com/5/4459/37380239076_895fefce57_z.jpg)](https://c1.staticflickr.com/5/4459/37380239076_895fefce57_z.jpg)
+![](/images/hokkaido7o.jpg)
 
 （**ドゥーブルフロマージュ**）  
-行吓行吓又食吓 @**ルタオ LeTAO**  
+行吓行吓又食吓 @[ルタオ LeTAO](https://hidie.net/hokkaido7o/)  
 
 [![](https://c1.staticflickr.com/5/4338/36717592514_f2579334d0_z.jpg)](https://c1.staticflickr.com/5/4338/36717592514_f2579334d0_z.jpg)
 

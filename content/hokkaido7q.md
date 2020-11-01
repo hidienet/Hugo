@@ -8,7 +8,7 @@ tags : [travel-日本-北海道, flavor - 行膳積腹]
 
 運河方向步行中...  
 
-![](/images/hokkaido7q.jpg)
+![](/images/hokkaido7q1.jpg)
 
 **かま栄 工場直売店**  
 路途中見到かま栄本店（since 1905）  
@@ -19,7 +19,7 @@ tags : [travel-日本-北海道, flavor - 行膳積腹]
 **パンロールについて**  
 一入嚟就鎖定呢碌panroll乖乖畀錢坐低食  
 
-![](/images/hokkaido7q.jpg)
+![](/images/hokkaido7q2.jpg)
 
 呢款美味嘅小樽B級食物  
 係用麵包包住新鮮魚漿再拎去炸  

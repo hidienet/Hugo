@@ -13,16 +13,21 @@ tags : [travel-日本-北海道, flavor - 螞蟻族]
 **ルタオ LeTAO**  
 咁大個圓形包裝盒放响度  
 一陣唔食你都唔得啦～  
+  
+唔同十勝[六花亭](https://hidie.net/hokkaido2h/)[柳月](https://hidie.net/hokkaido2i/)[クランベリー](https://hidie.net/hokkaido2e/)咁開咗幾廿年  
+呢間1998年先由小樽開業  
+但係好味嘅嘢唔係單靠歷史嘅  
 
 ![](/images/hokkaido7o2.jpg)
 
 **ドゥーブルフロマージュ | FROMAGE DOUBLE**    
 係兩層唔同texture嘅芝士蛋糕  
+用嘅都係全北海道材料  
 下層係焗過嘅實少少  
 上層就輕身浮雲系  
 兩隻嘅芝士味都好出分開食一齊食都美味  
 外面再加蛋糕碎碎令成件蛋糕唔會漿口  
-難怪話嚟到一定要試佢呢～  
+入口即化嘅感覺... 難怪話嚟到一定要試佢呢～  
 
 ![](/images/hokkaido7o3.jpg)
 

@@ -107,42 +107,42 @@ tags : [travel-日本-北海道]
 （**ドゥーブルフロマージュ**）  
 行吓行吓又食吓 @[ルタオ LeTAO](https://hidie.net/hokkaido7o/)  
 
-[![](https://c1.staticflickr.com/5/4338/36717592514_f2579334d0_z.jpg)](https://c1.staticflickr.com/5/4338/36717592514_f2579334d0_z.jpg)
+![](/images/hokkaido7p0.jpg)
 
-**小樽八音鐘堂**：行到嚟啱啱遇着個鐘响度響  
+[オルゴール堂](https://hidie.net/hokkaido7o/)：行到嚟啱啱遇着個鐘响度響  
 
-[![](https://c1.staticflickr.com/5/4331/36717592214_6430996ff8_z.jpg)](https://c1.staticflickr.com/5/4331/36717592214_6430996ff8_z.jpg)
+![](/images/hokkaido7p.jpg)
 
 行到**Märchen Square**就兜另一邊  
 
-[![](https://c1.staticflickr.com/5/4353/23575578198_5225fdd4ed_z.jpg)](https://c1.staticflickr.com/5/4353/23575578198_5225fdd4ed_z.jpg)
+![](/images/hokkaido7q.jpg)
 
-行行吓見到**かま栄**本店  
+行行吓見到[かま栄](https://hidie.net/hokkaido7q/)本店  
 （since 1905）  
 唔係唔食**パンロールについて**呀嘛？  
 麵包包住新鮮魚漿再拎去炸  
 熱辣辣外脆內厚身又彈牙  
 真係極品級小食呀！  
 
-[![](https://c1.staticflickr.com/5/4403/37380768026_8451bd825c_z.jpg)](https://c1.staticflickr.com/5/4403/37380768026_8451bd825c_z.jpg)
+![](/images/hokkaido7r.jpg)
 
-終於兜返到**出拔小路**  
+終於兜返到[出拔小路](https://hidie.net/hokkaido7r/)  
 
-[![](https://c1.staticflickr.com/5/4477/37427683521_a2824072a6_z.jpg)](https://c1.staticflickr.com/5/4477/37427683521_a2824072a6_z.jpg)
+![](/images/hokkaido7s1.jpg)
 
 見到**旧浪華倉庫**  
 即係而家嘅**小樽運河食堂**  
 
-[![](https://c1.staticflickr.com/5/4499/36757400473_fecc3c3f44_z.jpg)](https://c1.staticflickr.com/5/4499/36757400473_fecc3c3f44_z.jpg)
+![](/images/hokkaido7s.jpg)
 
-就代表嚟到呢次小樽遊嘅最後一站：**小樽運河**  
+就代表嚟到呢次小樽遊嘅最後一站：[小樽運河](https://hidie.net/hokkaido7s/)  
 
-[![](https://c1.staticflickr.com/5/4484/37380767636_e620ec9b74_z.jpg)](https://c1.staticflickr.com/5/4484/37380767636_e620ec9b74_z.jpg)
+![](/images/hokkaido7s2.jpg)
 
 唔係非常特別不過都算幾靚嘅...  
 影完相就返札幌喇  
   
-小樽 → 札幌  
+[小樽](https://hidie.net/hokkaido7/) → 札幌  
 （**快速エアポート**）  
   
 ～7日 JR北海道鐵路周遊券旅程完結～  

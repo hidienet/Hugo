@@ -2,7 +2,7 @@
 title: '[食道鉄道北海道] Day7：（小樽駅）小樽 → 札幌'
 date: 2020-11-02T17:30:00.000+08:00
 draft: false
-images: ["/images/hokkaido7s.jpg"]
+images: ["/images/hokkaido7t.jpg"]
 tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 ---
 

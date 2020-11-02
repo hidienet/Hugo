@@ -98,7 +98,7 @@ tea time就食超豐富嘅稚內の駅弁「[海の七つ星](https://hidie.net/
 ![](/images/hokkaido6m.jpg)
 
 飲嘢就係北海道限定嘅酸酸地果味水  
-[I LOHAS(い・ろ・は・す) - ハスカップ](https://hidie.net/hokkaido6/)  
+[I LOHAS(い・ろ・は・す) - ハスカップ](https://hidie.net/hokkaido6m/)  
 
 ![](/images/hokkaido6n.jpg)
 

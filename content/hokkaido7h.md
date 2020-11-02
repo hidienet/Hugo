@@ -12,6 +12,17 @@ tags : [travel-日本-北海道, satisfaction - 搭條鐵]
 
 話咁快就到達小樽！   
 
+![](/images/hokkaido7t4.jpg)
+
+呢個站嘅**JR北海道「北の大地の入場券」**  
+係石狩湾同運河  
+
+![](/images/hokkaido7t5.jpg)
+
+張飛都係依然齋睇唔買  
+揼個車站印仔就滿足  
+運河景again  
+
 ![](/images/hokkaido7h2.jpg)
 
 **小樽（小樽駅）**  

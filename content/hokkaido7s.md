@@ -40,7 +40,7 @@ but飽飽就入都無入去喇～
 ![](/images/hokkaido7s8.jpg)
 
 影完相就返札幌喇  
-（塊彩色玻璃窗可靚）  
+（塊彩色玻璃窗好靚）  
 
 ![](/images/hokkaido7s9.jpg)
 

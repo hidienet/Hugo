@@ -8,12 +8,12 @@ tags : [travel-日本-北海道, flavor - 螞蟻族]
 
 响札幌嘅百貨公司B1行經**morimoto**  
 
-![](/images/hokkaido7u.jpg)
+![](/images/hokkaido7u1.jpg)
 
 見到**ハスカップ ジュエリー**  
 就忍唔住買返件嚟食  
 
-![](/images/hokkaido7u.jpg)
+![](/images/hokkaido7u2.jpg)
 
 北海道特産果実[ハスカップ](https://hidie.net/hokkaido6m/)  
 帶住優雅嘅酸甜味道  

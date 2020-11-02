@@ -149,13 +149,13 @@ tags : [travel-日本-北海道]
   
   
 
-[![](https://c1.staticflickr.com/5/4511/37170851080_f2709a9936_z.jpg)](https://c1.staticflickr.com/5/4511/37170851080_f2709a9936_z.jpg)
+![](/images/hokkaido7u.jpg)
 
 响札幌嘅百貨公司B1行經[morimoto](https://hidie.net/hokkaido7u/)  
 見到**ハスカップ ジュエリー**就忍唔住買返件嚟食  
 唔平㗎佢，但值得嘅值得嘅  
 
-[![](https://c1.staticflickr.com/5/4504/23576111278_35a634d473_z.jpg)](https://c1.staticflickr.com/5/4504/23576111278_35a634d473_z.jpg)
+![](/images/hokkaido7v.jpg)
 
 而今次整個旅程嘅最後一餐晚餐  
 係去呢個今次旅程去唔到最東嘅根室  
@@ -165,7 +165,7 @@ tags : [travel-日本-北海道]
 拳頭咁大嘅**根室産 活ホッキ刺し**  
 哈哈哈，食得好滿足呀～  
 
-[![](https://c1.staticflickr.com/5/4429/37397356852_cb2da50eae_z.jpg)](https://c1.staticflickr.com/5/4429/37397356852_cb2da50eae_z.jpg)
+![](/images/hokkaido7w.jpg)
 
 相比起一般旅程同個人習慣  
 今次旅程係飲多咗好多樽裝飲品同汽水  

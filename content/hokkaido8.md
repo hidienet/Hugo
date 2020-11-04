@@ -8,9 +8,9 @@ tags : [travel-日本-北海道]
 
 酒店响車站附近有咩好處？  
 
-![](https://c1.staticflickr.com/5/4386/37381658196_f6305affbb_z.jpg)
+![](/images/hokkaido8a.jpg)
 
-就係可以响酒店打開隻窗就影到火車！！！  
+就係可以响酒店打開隻窗就[影到火車](https://hidie.net/hokkaido8a/)！！！  
 （特急スーパーとかち、261系，即係去帯広嗰架）  
 仲要係札幌駅呀呢度  
 超多班次好頻密好多車呀  
@@ -20,15 +20,15 @@ tags : [travel-日本-北海道]
   
 一朝早慢慢影  
 （影完又走去瞓又起身再影過）  
-影到夠咪落樓食酒店包嘅早餐囉  
+影到夠咪落樓食酒店包嘅[早餐](https://hidie.net/hokkaido8b/)囉  
   
 食完check out掉低行李  
-就响札幌駅周圍啲商場行吓  
+就响[札幌駅](https://hidie.net/hokkaido8c/)周圍啲商場行吓  
 行夠喇就拎行李搭車喇  
 
-![](https://c1.staticflickr.com/5/4488/37428842971_5af1eae513_z.jpg)
+![](/images/hokkaido8d.jpg)
 
-札幌 → 新千歳空港  
+[札幌 → 新千歳空港](https://hidie.net/hokkaido8d/)  
 （快速エアポート、721系）  
   
 JR pass得7日今日唔包嘛  
@@ -41,17 +41,17 @@ JR pass得7日今日唔包嘛
   
 ...好一個由鉄道開始亦由鉄道終結嘅旅程  
 
-![](https://c1.staticflickr.com/5/4497/37428913971_46bbaed41d_z.jpg)
+![](/images/hokkaido8e.jpg)
 
-**新千歳空港（新千歳空港駅）**  
+[新千歳空港（新千歳空港駅）](https://hidie.net/hokkaido8e/)  
 今次旅程嘅最後一站喇  
   
 响day 1嚟空港嗰陣已經行過呢度啲商舖  
 所以再嚟就唔特別行喇  
 
-![](https://c1.staticflickr.com/5/4424/36758842503_2dba99b50f_z.jpg)
+![](/images/hokkaido8f.jpg)
 
-直接去等位食lunch啦 @**スープカレ Lavi**  
+直接去等位食lunch啦 @[スープカレ Lavi](https://hidie.net/hokkaido8/)  
 比起札幌函館旭川ラーメン  
 北海道料理嘅湯咖喱就特別好多喇  
 呢兜係**チキンto野菜のカレー (焙煎えびスープ)**  
@@ -60,21 +60,21 @@ JR pass得7日今日唔包嘛
 但北海道啲咖喱鑊鑊唔係辣就係好辣  
 蝦夷，真係唔同啲！  
 
-![](https://c1.staticflickr.com/5/4387/36719863624_ac43cef849_z.jpg)
+![](/images/hokkaido8g.jpg)
 
 食完去返国際線  
-途中經過**ハローキティ ハッピーフライト**  
+途中經過[ハローキティ ハッピーフライト](https://hidie.net/hokkaido8g/)  
 梗係因為大口仔先影低佢啦  
 冇單獨大口仔嘅嘢買，慳返囉～  
 
-![](https://c1.staticflickr.com/5/4435/37398876072_8475ac9b50_z.jpg)
+![](/images/hokkaido8h1.jpg)
 
 再經過**ドラえもん わくわくスカイパーク**  
 呢次就買到嘢喇！  
 
-![](https://c1.staticflickr.com/5/4399/37398877402_5c294bcb55_z.jpg)
+![](/images/hokkaido8h.jpg)
 
-**ドラえもんの焼印入りの限定どら焼き（栗入り）**  
+[ドラえもんの焼印入りの限定どら焼き（栗入り）](https://hidie.net/hokkaido8h/)  
 有成粒栗子响裡面㗎  
   
   

@@ -8,7 +8,7 @@ tags : [lifestyle - 港女港旅, flavor - 螞蟻族]
 
 近近地就去到嘅世界地質公園  
 
-![](/images/mashichau.jpg)
+![](/images/mashichau0.jpg)
 
 GO！  
 

@@ -3,7 +3,7 @@ title: '[食道鉄道北海道] Day1：新千歳空港 → 帯広'
 date: 2017-09-28T09:22:00.000+08:00
 draft: false
 aliases: [ "/2017/09/day1_28.html" ]
-tags : [lifestyle - 逃離852, travel-日本-北海道]
+tags : [travel-日本-北海道]
 ---
 
 清晨動身朝早起飛晏晝先到北海道  

@@ -6,7 +6,7 @@ images: ["/images/hokkaido8d7n.jpg"]
 tags : [travel-日本-北海道, lifestyle - 逃離852]
 ---
 
-搭住鉄道，食夠一圈北海道（心）  
+... 搭住鉄道，食夠一圈北海道（心）  
   
   
 #### Day1：[新千歳空港 → 帯広](https://hidie.net/hokkaido1/)  
@@ -158,3 +158,5 @@ tags : [travel-日本-北海道, lifestyle - 逃離852]
 
 
 ![](/images/hokkaido8d7n.jpg)
+
+滿滿鉄道

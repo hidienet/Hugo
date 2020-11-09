@@ -7,7 +7,11 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Sun, 09 Aug 2020 16:30:00 +0800</lastBuildDate><atom:link href="https://hidie.net/tags/amusement-games/index.xml" rel="self" type="application/rss+xml" />
+    <lastBuildDate>Sun, 09 Aug 2020 16:30:00 +0800</lastBuildDate>
+    
+	<atom:link href="https://hidie.net/tags/amusement-games/index.xml" rel="self" type="application/rss+xml" />
+    
+    
     <item>
       <title>[board game] Machi Koro | 街コロ</title>
       <link>https://hidie.net/machikoro/</link>
@@ -210,7 +214,7 @@ based on樂施會講嘅社區議題
       <guid>https://hidie.net/splendor/</guid>
       <description>有人聚集又係玩game時喇～
 响寶物滿滿嘅日子
-玩呢副&amp;quot;Splendor&amp;quot;（璀璨寶石）就最好不過
+玩呢副&amp;quot;Splendor&amp;rdquo;（璀璨寶石）就最好不過
 個遊戲容易上手
 儲寶石儲到夠分就贏喇
 不過都係嗰句易學難精啦

@@ -11,7 +11,7 @@ tags : [flavor - 螞蟻族]
 
 ![](/images/hanabatake.jpg)
 
-**花畑牧場 生キャラメル **  
+**花畑牧場 生キャラメル**  
 係同sapporo drug store crossover㗎呢～   
 
 ![](/images/hanabatake1.jpg)

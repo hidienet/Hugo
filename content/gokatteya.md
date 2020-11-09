@@ -1,5 +1,5 @@
 ---
-title: '五勝手屋ミニ丸缶羊かん'
+title: '[和菓子] 五勝手屋ミニ丸缶羊かん'
 date: 2020-11-08T16:30:00.000+08:00
 draft: false
 images: ["/images/gokatteya.jpg"]

@@ -7,7 +7,11 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Mon, 25 May 2020 10:38:00 +0800</lastBuildDate><atom:link href="https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%9B%9B%E5%9C%8B/index.xml" rel="self" type="application/rss+xml" />
+    <lastBuildDate>Mon, 25 May 2020 10:38:00 +0800</lastBuildDate>
+    
+	<atom:link href="https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E5%9B%9B%E5%9C%8B/index.xml" rel="self" type="application/rss+xml" />
+    
+    
     <item>
       <title>食の四国ツアー（8D7N）</title>
       <link>https://hidie.net/shikoku8d7n/</link>

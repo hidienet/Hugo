@@ -23,23 +23,23 @@ tags : [flavor - 行膳積腹, flavor - 飲！, satisfaction - 黃店懲罰日]
 **Fuller's Honey Dew**  
 蜜糖味重嘅Golden Ale（心）
 
-![](/images/poms4.jpg)
+![](/images/poms7.jpg)
 
 **德國腸拼盤小食**  
 有酒飲都要搵嘢送吓酒  
 呢個香腸薯條盤係同兩支啤酒一set  
 絕對係happy hour恩物（呵呵）  
 
-![](/images/poms5.jpg)
+![](/images/poms4.jpg)
 
 是日餐湯係蘑菇湯，唔算好稀OK啦～
 
-![](/images/poms6.jpg)
+![](/images/poms5.jpg)
 
 **煙三文魚意大利醋沙律**  
 基本款，啲嘢新鮮就唔會難食  
 
-![](/images/poms7.jpg)
+![](/images/poms6.jpg)
 
 啲三文魚都叫有心思地砌咗朵花㗎！  
 

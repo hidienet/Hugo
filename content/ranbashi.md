@@ -6,7 +6,7 @@ images: ["/images/ranbashi.jpg"]
 tags : [flavor - 行膳積腹, flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
 
-終～ 於～ 捱到星期五喇～～～  
+終～ 於～ 捱到星期五喇（黑色嘅）～～～  
 
 ![](/images/ranbashi1.jpg)
 

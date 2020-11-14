@@ -2,7 +2,7 @@
 title: '[cheers!] WOFT'
 date: 2020-11-14T14:30:00.000+08:00
 draft: false
-images: ["/images/labeat.jpg"]
+images: ["/images/.jpg"]
 tags : [flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
  

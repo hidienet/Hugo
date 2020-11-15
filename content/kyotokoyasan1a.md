@@ -16,6 +16,10 @@ tags : [travel-日本-京都高野山, satisfaction - 搭條鐵]
 巴士電車咩都坐得  
 觀光點又會有折扣優惠  
 （之後有用啦梗係）  
+
+![](/images/kyotokoyasan1a1.jpg)
+
+連埋免費嘅sim card  
 好啦出發GOGOGO！  
 
   

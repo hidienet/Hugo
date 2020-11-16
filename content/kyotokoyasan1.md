@@ -49,17 +49,17 @@ tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 
 望吓人哋輕舟已過萬重山  
 
-![](https://yehdzw.ch.files.1drv.com/y4miVqCCvZM4yqQH7OQbzs2gdo6LK9OhbreNOX_S96nMMSO0n6-Ri80ccVPc2IMhOOwBcxoLKQq_mdk5_IMKfjsG2d922FU0j9FEt4u2SdirXgxqOwVMSfBKM0GBR3ydyMpaI6IFMc-AR3CqZXbb5rhMVzzJ0_W1a_MWiApHtvBEhvwhyUAIspzAU09_0Uy6joxZh2eYMI2KCHP-les98TLIw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1f1.jpg)
 
 行到過去就係時候食晏 @**湯豆腐 嵯峨野**  
 嗌支「招牌」**清酒 嵯峨野**，係**伏見の地酒**  
 
-![](https://yehjzw.ch.files.1drv.com/y4mYmm3dTCnmifibogMtXQgV2CVtuYjBDOavGZ1hEomae_x-Oolt0Z4h7E_tHlQ_xunJVcNZ8XMwTEWPWFNkpv67E9SwMinx15byLbee1MTv_URWEAgjhFanHNGHgIaD_Cnqp4_wyohaD4psRSBI8nKVgLVKB8sueka0YdcLi2Siyx5TNXiWlHwp6aReJ6Kj0uQImJPqd8NFLgfuSbv76taYA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1f2.jpg)
 
 **湯豆腐定食**  
 間舖得一個set，都只係得一個set  
 
-![](https://aohkfg.ch.files.1drv.com/y4ms858y2-OdjuuhFOd6mgUYOuYiU4bsBrGuD1inw_H-eHFoqdw_3gD9aIzpkjT8LKyVVzyZXO2X9A7MObATjAoAw4GaFTxi-qlC3GydGIigXNn8rMl3xaVU0mlkD9AxRwx2e-30rH43Uk8t-65NKP02nIbfFLVoDchk_9x5CTL1pszQ3hnrC8yQXaLuMKy4mepcv949-QvGSyjA0wU4FKG2w?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1f.jpg)
 
 **湯！豆！腐！**  
 一個字：好食！  

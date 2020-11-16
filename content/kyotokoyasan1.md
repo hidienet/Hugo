@@ -41,11 +41,11 @@ tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 @[eX cafe イクスカフェ 京都嵐山本店](https://hidie.net/kyotokoyasan1d/)  
 自己炭燒串団子，仲有杯京都唔可以冇嘅抹茶（呵呵呵）  
 
-![](https://yohdzw.ch.files.1drv.com/y4m81o97qZQJj0jJfw88w81QmuuPwNp9H2Jor9TmjpF_883pdqfDNp3SYHb0BoMk_UmtFOkbw9_vXbyHXTyMPR1stcE9hDLlD3wnKM9ThHr3KtMS8haDhEsTGzWq15p_h2q4VIiB7CD5SGppsiievAS3iEd7LsHM-O7zsKKUm0MJw6eD0HweV_lLAX4gEHCyxgIH1BeNvK5oCESfLfbW0rBoA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1e1.jpg)
 
-食完就漫步人生路一陣  
+食完就[漫步](https://hidie.net/kyotokoyasan1e/)人生路一陣  
 
-![](https://yohgzw.ch.files.1drv.com/y4mZaZOZVXciSu5rhLRvRvV8PvjgjI1rwYo5XwuLmGfU4ERLCRdb3vrUo6aJ5_2ISfjP-BMTaFMuAqpES6VmBzTEdE2hBfbJV9BpQx2Sg89oI5mbwkP1poVYlpK1lz4OnQuqEcNIfRrnwlJTWeEHOD_Jp1_UunRELov7sXrvtjh91dhMzzHdGJYXEkCqrMh5KOMuGkoNVlEzvP_pSQAWpQ7Vg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1e2.jpg)
 
 望吓人哋輕舟已過萬重山  
 

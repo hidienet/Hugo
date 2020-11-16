@@ -22,7 +22,7 @@ tags : [travel-日本-京都高野山, satisfaction - 搭條鐵]
 
 時刻表同陀錶都好似架車咁復古  
 
-![](/images/kyotokoyasan1a3.jpg)
+![](/images/kyotokoyasan1b3.jpg)
 
 **嵐山 (阪急線)**  
 搭咗兩粒鐘終於到喇，yeah！  

@@ -64,11 +64,11 @@ tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 **湯！豆！腐！**  
 一個字：好食！  
 
-![](https://aehrfg.ch.files.1drv.com/y4m8uqgBhBJwdTWdWc5lXC_0hZuGA4JOMJn2_lm-kKDOMpkV21SvEQLGZIjS9Nu2phsT5DqEJEWYta5RKc3UxDdGwmEV3MKZApMfyPU3vUJMtvCHkJ2peUkNdu_z9-VOU7VaUraFxRgYRZ77O8h5PEWA1FG9SFUHYNA85a955m0_6oguSp0l-9S2xeipBNlSsZPE7idX9JXiA5WAJVy7Fxa7g?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1g1.jpg)
 
-**嵐電 嵐山駅**  
+[嵐電 嵐山駅](https://hidie.net/kyotokoyasan1g/)  
 
-![](https://auhofg.ch.files.1drv.com/y4mgdXAKACn4AbhjKUhEFKBUq0FzBQhbUEbhfNF2eA6ncVsowY8tdtP9IfHdOBheQ7eywsBbfO4iw_AAzlmSs1n8xi2GdQVJ6GuqwWK7udINZVYw565AvGXphx3yAjYCO4uF3OCcVlEnHoS-q3aq8uwJKHNUwJm4Hl-42Vh4xKQX0P5l2OY-GnWzc5mBOtgSUhXM_uKxEtyfKpTcFpe-R7iaA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1g.jpg)
 
 to **龍安寺駅**  
 （好靚呀架電車）  

@@ -9,9 +9,9 @@ tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 凌晨機，清晨落機  
 玩到盡時間一啲都唔嘥  
 
-![](https://aoginw.ch.files.1drv.com/y4mzf7dOwWX31rtDoaPhpyadJFNCGqzZ3vFxLiJAdj--RKjOnJQ-X1KD3efZE5EKviK4hBVGXY4QNnp6xi7CSlK3TXzAcZBe_OLE3yAhpTYRg9azM8fIpUR1-kPQi_YwAnwGCpooGbzo1LjRRE2hyOHhJPCkDAGatVFTggR9P_ECfW-XL_cx5UkGZQUB1_cTCK_xXdBqOyuPKAum7dURZ6-Fg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1a.jpg)
 
-著陸先買張**KANSAI THRU PASS（3 Day Pass）**  
+著陸先買張[KANSAI THRU PASS（3 Day Pass）](https://hidie.net/kyotokoyasan1a/)  
 可以唔駛連續用行程可以輕鬆啲  
 
 ![](https://aehczw.ch.files.1drv.com/y4m-JuWVwsIN1WYREzXWJyDIPuGHhLHvtadY194EgQdMMttDjnV77NGyoDwkuZ1LPwcBXf-Uad-h_bZM3jcGmoSh9hmLNIpm6IlklN92pB6qsYa2wDJ-V79f-jBrshPF1M9z6kX3XMei9yyK0YZhd3EvUe1rUskldG-UqFLB5C900PmMK59dblpz82jfxX3IIcr34HigaBEd7mTIoQR4DsCkA?width=660&height=371&cropmode=none)

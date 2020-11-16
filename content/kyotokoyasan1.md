@@ -34,11 +34,11 @@ tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 
 **葛野大堰**... 吸啖空氣都清新過人  
 
-![](https://zehlzw.ch.files.1drv.com/y4mAEmeO38ZKVWVHmkko20MFl88X6U86xK3k53nW_ik_GVj-L0nv5wWE5r6AKGWXvP4c2fliEOG1G1maaHzTIdF9uW0bhuNU27aLhDhVvHMTOYge138SlGdl0SY8GjBb0WvJcACHnTYMY0QSOAQAEu0VSOnRDZkgaeAIHk_ycXUdBNkRQldbVKYLf1uP5Bz979HwnN0FKccBOAXd0Zhje3F9A?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1d.jpg)
 
 **ほくほく、お団子セット**  
 放低行李就終於食早餐  
-@**eX cafe イクスカフェ 京都嵐山本店**  
+@[eX cafe イクスカフェ 京都嵐山本店](https://hidie.net/kyotokoyasan1d/)  
 自己炭燒串団子，仲有杯京都唔可以冇嘅抹茶（呵呵呵）  
 
 ![](https://yohdzw.ch.files.1drv.com/y4m81o97qZQJj0jJfw88w81QmuuPwNp9H2Jor9TmjpF_883pdqfDNp3SYHb0BoMk_UmtFOkbw9_vXbyHXTyMPR1stcE9hDLlD3wnKM9ThHr3KtMS8haDhEsTGzWq15p_h2q4VIiB7CD5SGppsiievAS3iEd7LsHM-O7zsKKUm0MJw6eD0HweV_lLAX4gEHCyxgIH1BeNvK5oCESfLfbW0rBoA?width=660&height=371&cropmode=none)

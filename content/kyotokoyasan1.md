@@ -14,13 +14,13 @@ tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 著陸先買張[KANSAI THRU PASS（3 Day Pass）](https://hidie.net/kyotokoyasan1a/)  
 可以唔駛連續用行程可以輕鬆啲  
 
-![](https://aehczw.ch.files.1drv.com/y4m-JuWVwsIN1WYREzXWJyDIPuGHhLHvtadY194EgQdMMttDjnV77NGyoDwkuZ1LPwcBXf-Uad-h_bZM3jcGmoSh9hmLNIpm6IlklN92pB6qsYa2wDJ-V79f-jBrshPF1M9z6kX3XMei9yyK0YZhd3EvUe1rUskldG-UqFLB5C900PmMK59dblpz82jfxX3IIcr34HigaBEd7mTIoQR4DsCkA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1b.jpg)
 
 関西空港 (鉄道) → 天下茶屋 → 淡路 → 桂 → ...  
 
-![](https://auhezw.ch.files.1drv.com/y4mC88NmpGgzbqxLoj05Lw0603nQ5zDNWjANgjI-dYQzC2PaDXD2qL-xGqV7Zyb8daaYr8reSAZD4Zycr0qYAgJGhjY1fj1SpXjRVuteSiBoeTobpLg4kXir_rhKj_6HVOUfFOsYJTKQb_vF2H09QZotgw4u9MUMx61rSbekCGEAUZ7RfxPxOO_E-7H_CQeiT_yq7fpKfZKgpJN9Qr7LHKpJA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1b3.jpg)
 
-到喇！**嵐山 (阪急線)**  
+到喇！[嵐山 (阪急線)](https://hidie.net/kyotokoyasan1b/)  
 
 ![](https://auhizw.ch.files.1drv.com/y4mTi8hnjf5h8Lh4_444o_9Runm_5bp2qUaYPGJJJ_xgvZQw-qlJFcB8IOZ89JlZkEaMhWs4HkdPzju8B2N1BV3VHwOWp3izKpmqNs60VjpEyuy7Y0xX_quGbLx9n0PYN9KbdgP1hMwGDAQ2iJYpLb445HP9-oH9hq5pSqmFgKh86H_0lzSLws_oy_Nh6SqZUGLqYeOFqq7cNjLxT2aaWnLZw?width=660&height=371&cropmode=none)
 

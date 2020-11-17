@@ -73,25 +73,25 @@ tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 to **龍安寺駅**  
 （好靚呀架電車）  
 
-![](https://zuhofg.ch.files.1drv.com/y4mrdSqQcvQx0_a73a0pD1qnVRMQU5-QlhB2crsyQ6oQJ8TUfTF8KkBqqU1OlrY_10n0721KUAw7zoMVgnie5iE1GtcM-VedIKVXcOAzJdwQNDZReDXetRQ_KxBjZznZpBga3ymo6qoud2n8lfFEF6FpJBbhEldcT8jetpz-zNIRPCzjMsY92vtojk8pkIkKFvngnsLdH_rchAaeqCcoWBgRw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1h6.jpg)
 
-文化遺產之一嘅**石庭** @**龍安寺**  
+文化遺產之一嘅**石庭** @[龍安寺](https://hidie.net/kyotokoyasan1h/)  
 
-![](https://zphnfg.ch.files.1drv.com/y4m7bpTqFqRukyIhitsxh2W0dKBZh55ymFYpmiZRrbObSZhiKbFTOGTR-JmGAOBW81KCqZtm_4LmzMR9aR6Q5vI9NQwe-4lUz8ExG7mM9CJywP7TsOFPCBDCWkKfExu0Jr_mm8oBcTeDSz2tI6H4ITP1iIQ23nS3QbvrqfOn0JoJT667u6U0pitRkGJnaY-rOsxTjAviEpwaATUxpBpUoAC6Q?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1h10.jpg)
 
 ～小器～  
 
-![](https://yohkfg.ch.files.1drv.com/y4mvL5qfS1-9UQgAsEKsDRQ7OzxgfoJWto-re6N7ciL2ZxM-vIKtsY9_QRt5Mf2jqfxoXFXRuz7Cv8DFmK2ogCoNF2RNcWIGr2nhr2WTDrIZp0QiZC5Iqq_Surnyn2NKlGT2sa2mSPwXOfA1cFkfwoQUoFNDXdkkNZa4esJ7dgetyRmUsCNFlGe02sr-NvCnOxRYn_6UAJBlVLhrhDXu_khnw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1h11.jpg)
 
 裡面個殿  
 
-![](https://zejqig.ch.files.1drv.com/y4mGXHi1ou-QsdExc1MqN0Tx-XyYLROEyaOKjiCLDhK2iEAezNxO0ZDufw8cn5MPORAKfOias6GJfNUss43MiOZzgoN3OF7r7_fdgl4QPBdMtWaVa-Y0zfpMbhjCzTeXsr5YKz7YWRToGr0irsYSSdT0TvuESk1emoCwdbXa4-dQTSxW3twrfMcFoIDJPi0wVCUHGm6fNrQFhGYRD22sN-oWQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1h26.jpg)
 
 望埋個**鏡容池**就搭巴士去下一站  
 
-![](https://yojpig.ch.files.1drv.com/y4ml3VXVdv5Qu69dy1EvdSBQlHAToVLO-D-ab15b_LV17O4NX1a3RC3mJKTDql2yPv-L5yPayevX7GQ-kKoRIIZUXtYu6EmMgvQMN3LKa1BVQoNuYfNkUc95nhEhJ6IInSYl3f1NyyFZEYAJpcNDPLztj5rNW-xmj3GsBSZ7_CIoK2RGtR6_qi89wdRYzn0qtFXjMUe8DPuuPIfP9VWVqgrPg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1i.jpg)
 
-**舎利殿 金閣** @**金閣寺**  
+**舎利殿 金閣** @[金閣寺](https://hidie.net/kyotokoyasan1i/)  
 太陽射正，金光閃閃呢！  
 
 ![](https://zegulq.ch.files.1drv.com/y4mUPo68muhVtmTpqK2zVnEEsyFYTDjbZplQR4gSAjduOUv7KWwPJx-XvGVByMJIeWh94WvIpMbaAdo1-2aHm0EfY7B1sMbNt53w6S3kAhhLPrqKTNvUQANHocLNHQVzyMUQlAiK9AibFtYc8dbAf0nFbv3JUECJqecWiOGHLdPruZfQKgkDqs706E_KE4MDRwmeUaeJXluYmvHacu_7qP6Tw?width=660&height=371&cropmode=none)

@@ -78,7 +78,7 @@ auntie借個細路嚟抱吓
 
 ![](/images/botticelli16.jpg)
 
-幻彩詠香江
+唔怪得話啲雷射筆好L危險啦  
 
 ![](/images/botticelli17.jpg)
 

@@ -94,14 +94,14 @@ to **龍安寺駅**
 **舎利殿 金閣** @[金閣寺](https://hidie.net/kyotokoyasan1i/)  
 太陽射正，金光閃閃呢！  
 
-![](https://zegulq.ch.files.1drv.com/y4mUPo68muhVtmTpqK2zVnEEsyFYTDjbZplQR4gSAjduOUv7KWwPJx-XvGVByMJIeWh94WvIpMbaAdo1-2aHm0EfY7B1sMbNt53w6S3kAhhLPrqKTNvUQANHocLNHQVzyMUQlAiK9AibFtYc8dbAf0nFbv3JUECJqecWiOGHLdPruZfQKgkDqs706E_KE4MDRwmeUaeJXluYmvHacu_7qP6Tw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1i16.jpg)
 
 **不動堂**  
 
 ![](https://zugtlq.ch.files.1drv.com/y4mUZ6x5r72ql8m7J1U-F3aBDUQcs9CX8jhiy9qxSuVERhYMbYK87WKqoRnvS-OCdmZfaggidl8MtFDBbeCDRrrOjKeaQOjTYdiV7wzmo_XP9Ibbquhbs6ZMwjoOw9w0GlUNx6VEmGBtRbFGa6BP4JByiuxVOdOtT1l4CKWF6XNHsbd6uzoyDcm2orF8dFpucEk2Uqo9BBJnye2pzeDUxNFUg?width=660&height=371&cropmode=none)
 
-出咗金閣寺再上巴士  
-到世界遺產：**元離宮二条城**  
+出咗金閣寺再上[巴士](https://hidie.net/kyotokoyasan1j/)  
+到世界遺產：[元離宮二条城](https://hidie.net/kyotokoyasan1k/)  
 
 ![](https://aojloq.ch.files.1drv.com/y4m3lJJoJkHop2H64eig2G4vO-u2XTdp82CCsq0uI4k3d3663EgnOjSBwQfsm_Jqm7EyoJcayin6KfZEd6mQqi6U_Tm_YjSUso94aUdhsdztrf6cEy6B673BXPfLfs08cP69-APCqQaKidQQxwrbpjycsQglnZMcaKOZlPeJq0ufQHsXYC3f3X5tc7ouGpk6gKJyXzejH_lJmlYy2TyNKQ48Q?width=660&height=371&cropmode=none)
 

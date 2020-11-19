@@ -98,16 +98,16 @@ to **龍安寺駅**
 
 **不動堂**  
 
-![](https://zugtlq.ch.files.1drv.com/y4mUZ6x5r72ql8m7J1U-F3aBDUQcs9CX8jhiy9qxSuVERhYMbYK87WKqoRnvS-OCdmZfaggidl8MtFDBbeCDRrrOjKeaQOjTYdiV7wzmo_XP9Ibbquhbs6ZMwjoOw9w0GlUNx6VEmGBtRbFGa6BP4JByiuxVOdOtT1l4CKWF6XNHsbd6uzoyDcm2orF8dFpucEk2Uqo9BBJnye2pzeDUxNFUg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1k1.jpg)
 
 出咗金閣寺再上[巴士](https://hidie.net/kyotokoyasan1j/)  
 到世界遺產：[元離宮二条城](https://hidie.net/kyotokoyasan1k/)  
 
-![](https://aojloq.ch.files.1drv.com/y4m3lJJoJkHop2H64eig2G4vO-u2XTdp82CCsq0uI4k3d3663EgnOjSBwQfsm_Jqm7EyoJcayin6KfZEd6mQqi6U_Tm_YjSUso94aUdhsdztrf6cEy6B673BXPfLfs08cP69-APCqQaKidQQxwrbpjycsQglnZMcaKOZlPeJq0ufQHsXYC3f3X5tc7ouGpk6gKJyXzejH_lJmlYy2TyNKQ48Q?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1k7.jpg)
 
 **国宝・二の丸御殿**  
 
-![](https://zujnoq.ch.files.1drv.com/y4mx-Q16vemsiLRDVm2cYz8HJGjGAAjtnc5h0au_pNiCluIImAQaxEGn5SKjk7E04F6oVpUYzVPv5aoS8iw8Ssw3hFDb51g3sjAkGXg9iUc-HRdKTLDnY2hSh6Lym-iiOCKUxViHmZIxaavZ0GUFy336Ego4LL9taL_6QDRXRLponhxFM37uU3-eI2VhVY0dbooEgC0c4CyLabbndMLysd99Q?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1k21.jpg)
 
 行行吓都四點幾已經係黃昏樣  
 

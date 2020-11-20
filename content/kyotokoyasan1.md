@@ -111,7 +111,7 @@ to **龍安寺駅**
 
 行行吓都四點幾已經係黃昏樣  
 
-![](https://yojjoq.ch.files.1drv.com/y4m_X3n9lJWLIKOEg8cpgrmEKbXi4Xd2N7RUBTIP5KV_eK_Euw7iBpzoEkbgRJijOwpKCaKIwfpSJiL9uWyrdg7YKl8G3bDyOK_Mw_qfRfVMg4Xas993Ep0iCwN-xNTDX_cRnqDZk6c-oQuvhzQcVCctAxT-coIIn7_9Lnvs2jsHCUEadg3GUux3-WmCZHUHKpX0U5WQ2_PPUjnvwhmF2IYvQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1m1.jpg)
 
 二條城前 → 太秦天神川 | 嵐電天神川 → **嵐山**  
 ...再去**四条大宮**  
@@ -128,7 +128,7 @@ C/P 值高到上月球！
 
 呢舊燒原隻蒜頭連稅都只係一百円咋chimagun
 
-![](https://auhfzw.ch.files.1drv.com/y4m5rVLJUikte21uRx8z6EYaG5wt96zYClFbqjeslt7Lx9Jw7GR-RzuYWpBafRG7JTaYAipyLC1eK8tOAwtS5TGUH-PeK9-NBgN0RXxdVO9wZ6VucgRhY8cIZ9HcD7PpOjq2GszOOLfD2QwlJvcEJ-31NsK2JGmOGachBCk9yjpgUzwpE_1qHL0eaenPv5fpy096GbUlqxW7T-54GtUsp5Ogw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1m.jpg)
 
 過門不入嘅**駅の足湯**，冇浸呀返房瞓喇～  
   

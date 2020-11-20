@@ -51,7 +51,7 @@ tags : [lifestyle - 逃離852, travel-日本-京都高野山]
 
 ![](/images/kyotokoyasan1f1.jpg)
 
-行到過去就係時候食晏 @**湯豆腐 嵯峨野**  
+行到過去就係時候食晏 @[湯豆腐 嵯峨野](https://hidie.net/kyotokoyasan1f/)  
 嗌支「招牌」**清酒 嵯峨野**，係**伏見の地酒**  
 
 ![](/images/kyotokoyasan1f2.jpg)

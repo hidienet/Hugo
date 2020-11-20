@@ -116,15 +116,15 @@ to **龍安寺駅**
 二條城前 → 太秦天神川 | 嵐電天神川 → **嵐山**  
 ...再去**四条大宮**  
 
-![](https://yejroq.ch.files.1drv.com/y4m6sd6Z_9293AG1Hkvd7rmEPDuklf57b7xK3CfFsdoLjTE2iTC65MedAHeEb8LYFyoq0oqaRSij4Z954PBENB3SK7rUFkucBOP_TorJb6XUFbuHzQ7ySi94orQiN1B24OsPNt1hRYfNRtCIaJ9kGdWDeY3km4KIzlg_4qLb7Dem0FaPk3yfutkt_rdkBa6c8b0Ky1z4S4hZERzfnyf-7QX3g?width=371&height=660&cropmode=none)
+![](/images/kyotokoyasan1l9.jpg)
 
-晚餐企响度食 @**立ち呑み 庶民**  
+晚餐企响度食 @[立ち呑み 庶民](https://hidie.net/kyotokoyasan1l/)  
 
-![](https://yejjoq.ch.files.1drv.com/y4meaketluQMz-IYyJetRAa4dyUVrPlBDjGMUu0Tn0s1WUZc4ueygH_GndvFpIhxeh8YnRbrABs9G5T2qlC0-iprIpJAFhsflQXplI72mzpAioRxU0kodPLOV8X04J4qy6flDg17MKU5LQDcKYrtfeZfH6qQZ3Vt7GEepqdx7hD4Gygc1zDv_UPZgjVlUYv4oXTSmTIt7v1A-VXGLkUgTFOaA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1l.jpg)
 
 C/P 值高到上月球！  
 
-![](https://yejnoq.ch.files.1drv.com/y4mSChZ4HXZ_hWStgIu5lMTcSd-dgQEBE9Eo6dno2GvVaxVjo9hPqybwPvxkoZFyg03conYyy0kv7peLnNd8IqW_xPzdn0x3-gzVGqGFVhbZX_pGxqeRwiZTkwuSG6kYGnZ0PFyHvDbMPcPhjIMeE0yh0P-a6ka_5y8smRXKoINnE0cRoRONEM1-GaeWuIBDHR9l1h_7ftvflp6teB6Xb3nrg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan1l5.jpg)
 
 呢舊燒原隻蒜頭連稅都只係一百円咋chimagun
 

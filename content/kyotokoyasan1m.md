@@ -1,6 +1,6 @@
 ---
 title: '[錦秋京都高野山] Day1：嵐山駅 - 嵐山温泉 駅の足湯'
-date: 2020-11-20T18:30:00.000+08:00
+date: 2020-11-20T22:30:00.000+08:00
 draft: false
 images: ["/images/kyotokoyasan1m.jpg"]
 tags : [travel-日本-京都高野山, satisfaction - 搭條鐵, satisfaction - 計劃泡湯了]

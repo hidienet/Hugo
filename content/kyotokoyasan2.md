@@ -6,13 +6,13 @@ aliases: [ "/2019/11/day2.html" ]
 tags : [travel-日本-京都高野山]
 ---
 
-住嵐山，行去竹林好方便...  
+住嵐山，行去[竹林](https://hidie.net/kyotokoyasan2a/)好方便...  
 
-![](https://zphdzw.ch.files.1drv.com/y4m2Y3o16C9KfHrALOIWMJ4L9txGeRAxKmCrAgvIIw26n_xWkhxxjBpSVIL9jIji5B92YJcamPUfLyEerhkYBFvYP-Ub51xuctYNjjSAQM8o3ZnxhhVhWA9_TQudt_6SF_Vpy5xg2sAkySZEkTKuzh34WZ-yCzZSgl4kOf82Ef_dIPt81HPUZAUTSvFmpx43Yd8gtIn7OeMbw70JhOBdSZRUg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2a.jpg)
 
 竹林深處人\_\_！  
 
-![](https://zphkzw.ch.files.1drv.com/y4mgVp_8AfCQnA5_c2CyyVLuauSSzXxNU5TviHZy0bNBoALCJvz-ogaaXRGK75vnbVHN2EXHofknG071v4LKLytg6Zn0WkcKrWyJR2qdUIetqABKuAAnlS7u5CS20qmaJNxsz-n8S9I2QQGc2lRN69tVWimArFW9Dez_E3yLaRNc3xz7U3YQfJv2sc6qn-cF2QsOxftWhkdRiODnuZO09Xkhw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2a7.jpg)
 
 穿過竹林嘅路段  
 

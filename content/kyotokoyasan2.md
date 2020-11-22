@@ -10,7 +10,7 @@ tags : [travel-日本-京都高野山]
 
 ![](/images/kyotokoyasan2a.jpg)
 
-竹林深處人\_\_！  
+竹林深處人\_ \_！  
 
 ![](/images/kyotokoyasan2a7.jpg)
 

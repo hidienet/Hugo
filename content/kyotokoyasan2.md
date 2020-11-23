@@ -24,38 +24,39 @@ tags : [travel-日本-京都高野山]
 
 睇蒸氣火車yeah yeah yeah（同piano）  
 
-![](https://auhsfg.ch.files.1drv.com/y4moEYfe1F7iC__-74ztpCjfvYaPA6ZZf496cn7w5hNjllcJ8njGZGYl7VAoN0i58Onepb_SNXh92IMx6cPfMP-pWYPYmOT_2fNsbzdjvh8pzyJ3yapxBkuGt6OM_pP4UtFlCanIUV5eR-L1jeeGJp-Kw8F7l3kqMmQ3z9F98-_6KzgtR3nng8bEQdl7-BRmJorCFGMdt0nBrNdyka5qZx0Iw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2c.jpg)
 
 [嵯峨野トロッコ列車](https://hidie.net/kyotokoyasan2c/)  
 齋睇當然唔係主要目的啦  
 
-![](https://zohofg.ch.files.1drv.com/y4meWjm1ZNIM7qxtBb1ie5Y0lyBnFQbg3CQ2J7dybeuc7jAR5tZrvxIvFpjULARLWm5dNq3A-FyJj0q-eETN_sooQjCwRthRroZe5dRIH7buJjXYWShETsOYwjSIbBJYmO_ImuZ4aS6EisSw_fuZwuKWNdz2_X3HqefbvYMKkC4pyY6M4otZbkgsIse-DVHtejIKiSjnkYI9a7SHF3FZYdrGw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2c3.jpg)
 
 要搭先係王道嘛！！！  
 
-![](https://zohsfg.ch.files.1drv.com/y4mu83SPFlYRXEPiwBANzkrUpIH9zMN0MLs9M4vv10iu1e9OVA7udf-JWbLxdsWKWLGgx3DdflXm67JZx2E76zvObmf7i5G9X3zwrCqmbf_8VQKS_5en_kCkGwpBo9dgEX5Dm1rPEpECYHLQ4I2v5kKdHB9aqOnfW5t5FcPQHEGea41A37PrwTrlixsOXCS_yGYu2gQC5gLPTqBz5urTACWrA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2d3.jpg)
 
+[トロッコ嵯峨駅 → トロッコ亀岡駅](https://hidie.net/kyotokoyasan2d/)  
 總站上車先排到靚位啦  
 
-![](https://aogdiw.ch.files.1drv.com/y4mzREvEDUYT7Nsc_4WB2_udYQBzF4-jSR5ZkN_RjGHfA7hS4ZIy-Pwsm8q6RgH2-d6Dj9FYF7kUoHWqbmMl7-DVLXrfE9JYs5HM4bQ2uBrt-H1D_CGViZZA4aa7vsjH2N_K0Bc1GFs268kf7iXhISUrUNT-oSEyXJcTSnEqQlRAisLZ2AlgAw4WQwrXSdt_Nm3rp2zQnNjOx_moOc71oM3zg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2d7.jpg)
 
 行經**保津峽**  
 
-![](https://apgaiw.ch.files.1drv.com/y4mBNANZyNmgyEBf2fmFxZy93pJbhoiptvK9nXz3JBJac3Njgyf44kXj3NtYyJfq1T10FkePNaLa64hkxV-crYxlDVfRmJrB9fe0gfwiXw9a4hD_RqWb4449wGBCBq0-Re4wPPariFS31A3deS79wkklLH5vykhdPZ-1Mk2pQi6E2YK5Wz6OQbcBf4luObg2uhD4EXv0gtOPNmS1PsEThrvQQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2d8.jpg)
 
 排排企換廁紙（大誤）  
 
-![](https://zughiw.ch.files.1drv.com/y4mEUQGGNP_EP1ozSrWdw9Qzyb2y80Id35Ht2fULLgPPY2mi6AzJryNFvFHGBuoxL5VAE8JPmaRpvx6HB0m9VNpd2ZG4M4w_mFoKu9Q5G3z1Hsos6HW35uMrt5_DWP4Aje0CB0iSU0KVZHcn3X6Vk3XcalZAqB-zSkgzJtsP0UMUCoI3N1N9yaDiGRu0743SDoOOuknDIdASiVg1jtK98R5Kg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2d15.jpg)
 
 哎吔吔越嚟越好大霧啊～～～  
 
-![](https://zegciw.ch.files.1drv.com/y4m_SGcDWsuMSyEUk2yAGeqV8y1uvawC2G2NoKKhvhtooqYs3cqrN28k9kO4Xwc1I4JliCe7vQCP23ukb6akHIouyYM1r1fq6Fq6wmO5HnXkgEtyS8HposFzr2gUknsvf3fdNhRzbBRUpo6vykQqXT3uZbpBlr1V0jMIMlMF0U5N1IKa9VNTSVEbiRNXOOMIiZKr-vwuBq1_SithoijxASTQQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2d16.jpg)
 
 落火車再轉巴士去**保津川下り 乗船場**  
 
 ![](https://aogwlq.ch.files.1drv.com/y4mkgJNBJECNtExNGpwsyfa2_o7UEc0Jb0xcwCRgw4u5f3gOE4gvc07A8XdEKnEUksU34HU1cOHocq0YulixJP054_NQCvPYu0pwegfQX8Wj-3JGkqdV9hHkDjyOM2D5geMmwwsnO9UzzcWIVZCFgF1zsFJDIdo7ahixM8W51TrcDGjI5aKOWGt-2vmJd--q-4yCDgcSXNSvLykqNbLsgDL4Q?width=660&height=371&cropmode=none)
 
-**保津川下り**  
+[保津川下り](https://hidie.net/kyotokoyasan2e/)  
 坐船遊保津川，落返下游  
 
 ![](https://augwlq.ch.files.1drv.com/y4mKich3yASHdjbTFbsdnrR93EnMyFbGh2XFJJzdul6K6t1XJjjr4YxnmFGRRLfWFbPfZOrY21mbM8rMLPpsqPMF3iqhJCiq-I_nQMkKHDq9lpuuRq-g0c_H5ic4F9OjuZsEvuSdGVRJouPTx-Cy3LuOiiiw_5EMC9aZ0QBH4xwhq3JdMezhl_EySb3aia9wV7LfsVq40daaKN4eVmByZyg0Q?width=371&height=660&cropmode=none)

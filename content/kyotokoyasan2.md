@@ -16,17 +16,17 @@ tags : [travel-日本-京都高野山]
 
 穿過竹林嘅路段  
 
-![](https://yehczw.ch.files.1drv.com/y4mphL9QMfu_zxFe9m9-1SoQpQzK2wQ6-4f1tVeoU4HJqDmizpSfnaE_bwgHLswgZbXa3G0o_cpMt_BfAg6R1axGWfjirPOhB7J3utiXcm10QdGLzkwAxvqMWXvZlZg14YrbJWdjuxtwBU7cvBGm9GbK2UB-Y-IJYQi1TnSe6BHutNqV2wIqdWxnjtDYyzALGZH9XAnI-VgNq2CKj5EneKlWQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2b.jpg)
 
-再行去**19世紀ホール**  
+再行去[19世紀ホール](https://hidie.net/kyotokoyasan2b/)  
 
-![](https://auhmfg.ch.files.1drv.com/y4m7r3fEy0q7C_wk1pFgHPFr2hSyae3heNaufDInpqWEj9v0iBPp2V7R17oW9PhS4q3J9nIPJXv0Plrcv1Sp1AReRwVR7IRzu1ZLiu5EvWE1qWsSLKsoXasWe8yGSCfwcp9J5j101Gbd9LLTBhcwUlxuPLKX0Bw1LesZkjP25MKOoAuArGWowV4ERE1tsAkRYC1ikyzZMvOgFm2qYAGcsbQ2Q?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2b7.jpg)
 
 睇蒸氣火車yeah yeah yeah（同piano）  
 
 ![](https://auhsfg.ch.files.1drv.com/y4moEYfe1F7iC__-74ztpCjfvYaPA6ZZf496cn7w5hNjllcJ8njGZGYl7VAoN0i58Onepb_SNXh92IMx6cPfMP-pWYPYmOT_2fNsbzdjvh8pzyJ3yapxBkuGt6OM_pP4UtFlCanIUV5eR-L1jeeGJp-Kw8F7l3kqMmQ3z9F98-_6KzgtR3nng8bEQdl7-BRmJorCFGMdt0nBrNdyka5qZx0Iw?width=660&height=371&cropmode=none)
 
-**嵯峨野トロッコ列車**  
+[嵯峨野トロッコ列車](https://hidie.net/kyotokoyasan2c/)  
 齋睇當然唔係主要目的啦  
 
 ![](https://zohofg.ch.files.1drv.com/y4meWjm1ZNIM7qxtBb1ie5Y0lyBnFQbg3CQ2J7dybeuc7jAR5tZrvxIvFpjULARLWm5dNq3A-FyJj0q-eETN_sooQjCwRthRroZe5dRIH7buJjXYWShETsOYwjSIbBJYmO_ImuZ4aS6EisSw_fuZwuKWNdz2_X3HqefbvYMKkC4pyY6M4otZbkgsIse-DVHtejIKiSjnkYI9a7SHF3FZYdrGw?width=660&height=371&cropmode=none)

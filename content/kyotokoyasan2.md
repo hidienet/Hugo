@@ -90,11 +90,11 @@ but 過一陣有飽飽食就skip咗唔買喇
 
 又返到**葛野大堰**  
 
-![](https://yejioq.ch.files.1drv.com/y4mzfsps6pAlZYIlhZGZ1JMELI1Yz1u4rvp9wW5mVw0MPnvV3rcUdRBXenLrWQ7lgvD0ugMRRD9SGJKS6GwBGT5RuaHGKgzLfF7AhyPsWRGPSKJOUiOiITqAsegBuOMrJtIARMXf3zRHRqqkmtLHYKJocNq7N1hzd62B5-zsRUwz7LQM9SuaPLBLcYr3CSgycdOoPiurLHx6OlzBHSIwKkUgg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2f.jpg)
 
 今日嘅brunch係食**懷石料理** @[花筏](https://hidie.net/kyotokoyasan2f/)  
 
-![](https://auhhzw.ch.files.1drv.com/y4m3Qf-9thSMGrFu3IPsGgfpNt-8NfMKrIYyF80kPnaf_KWwNN588iCtBoxM91b35LU1zZtrFCiy225kxbP2kXgk3canSJCRGr0tXa_Y6ey4Am1UOAXDpoeCiBgA73fHg8UIrl28z2y7vzfk52pZZxXB_RU0v29HOxB9S0txsa9sSHQBQkpQ6EZ3nVuafuEamqw4VhSJJoPMYJ_04S8RECVng?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2f12.jpg)
 
 甜品係秋令嘅柿，甜！到！震！！！  
 

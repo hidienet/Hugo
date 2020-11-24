@@ -98,31 +98,31 @@ but 過一陣有飽飽食就skip咗唔買喇
 
 甜品係秋令嘅柿，甜！到！震！！！  
 
-![](https://aphczw.ch.files.1drv.com/y4mUDMzvvdfTc1SjGJI8749aajnYdtTZejwj0o7xhWQN2S8Wsp3Z7sD4Xo55Z3-IOu6uo24pfOV6HUDQbl7cBwK89qJnafPT6uvNjsOmx4Y5t5v24e0ertfh0lXd0_ra3NAaUqRQ6voR4HX73G_x2gvy0_XRwHVZPJ8Jzz6FXrJNK9EAFkBC5g9KnhnhxK7jv9FvhjZfFQX9laA6V7bzHH-ow?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2g0.jpg)
 
 食到好飽梗係要周圍行消化吓  
 
-![](https://zphezw.ch.files.1drv.com/y4m1hxprGTgtJY2vDHR7BfttpbXpXcwnr-dhmdmV7IXkSlEutBC_g1XXsI2rgMLviiCoE46s9s12RTqmcxZR9ROjOuVsrd4h5H7jUEEmJuOGi5ikyhWQpI5Y8e3xTTsJX7e_DqlcZRHVSmo3aJlSuwNDal3DHge3lXxsyIR0BbGuU0FXl77JfNi-_VVrY8cFFVdFzKCCaVM9i7TKs9NaP3tXA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2g.jpg)
 
-去世界遺產嘅**天龍寺**兜吓兜吓就最啱  
+去世界遺產嘅[天龍寺](https://hidie.net/kyotokoyasan2g/)兜吓兜吓就最啱  
 
-![](https://aphkzw.ch.files.1drv.com/y4mZrXesC0UkhDPeoRX2ifApn1o0G-dliKvQCDN4oCX175f3RRB6FTSn96kekEN_JTylnNxg2sl8-7uD7dTzJbc3P6Sf78Kj981Q7XxXMyr6-OOi4Ksuc-jpU21fzdXibMlhWnRZXMb95LVwKwKSY0rrjJEXE7O0HXtkfPQWmwsBqtgTSF3sZRt-FEaQ8zJLcFcKuaG4HFCtoLfeW17DuYZwA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2g5.jpg)
 
 裡面嘅**弘源寺**  
 
-![](https://zuhgzw.ch.files.1drv.com/y4msBz7ZfKQqXqMHGO3UdLckyuHkpwLrL0F_M615l3BHtmOqPk9rmhdDQVd9RlCJE98PMTI9nmMnb83awgSBLDeRvCTOkYuLUCUuypHMspVWjXMK3niL2_NsjTalSw1eSpn80arezE952r7kHbQ95zpRPJLKz2c5gTV5zZBhqFEd3QohrH4ZaosMbps1dklynvwcLa6qoRNhgMMhE52DFnk8w?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2g11.jpg)
 
 有啲秋意嘅**曹源池庭園**  
 
-![](https://zphlzw.ch.files.1drv.com/y4mPmlahCMPtjaViBo6YiZZAL2PP-TjwhN5FsFaNA_PLkUO0AaejebCULPxalpK9fFu0u4VopwZ2MuZw8YNAm9HKMWlTQtYVEC5ZIGXlTN3aXex_sz8FUmLGWSIV7LMsx1i7cYfFfTJXBImUtLqU6qiYtapBfbyU4UpUEdi1o35H4gI5BXpilLMj3jD2IDQjZToxN8lwlcU-AgtoOAzZn4phQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2g12.jpg)
 
 叫得做天龍寺，當然會有**雲龍**  
 
-![](https://zohlfg.ch.files.1drv.com/y4mdBGKai5V7r8j6rxl4IOn4VoleEiyTQovZOWLQdMvGQhML1EXmrCoSHpp10oZjID0yqF8fozT6asbIXMF3yQvIWcI64SsPcfEDiO48SUe3K2RHoA_kCdq5NmeBinKGOypiyUSt7wlXiaZ-SfmFQY6BUe9iH8pJPNvnrheNWX6gZzulKf0QZs7TtSvMl0SQEBSI0xpJA6A9UFGAYow8pVxzg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2g22.jpg)
 
 運貨嘅  
 
-![](https://zphkfg.ch.files.1drv.com/y4mPvRT6w26AmfhKha37oXqM_CseOfCHNc1r-R83iY0XVnnm4SWJBFQjcHaeNpdZk7kaSsmikvyWaSdwShxmK9c0gt-UxPCbB4wF429PvtSAzsD90hqMTI6zyUpjuMLXibQwx0fi2pL_NvJYTrn90KyG_pU-_d7sQNFgjy5_AS5q0hA29IzQhu1z395ntpUSm2cvEKVbQhWj36pUORrT-rLbg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2g26.jpg)
 
 地方舒服嘅；係多人咗少少啫...  
 

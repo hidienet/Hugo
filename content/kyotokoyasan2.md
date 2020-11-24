@@ -54,45 +54,45 @@ tags : [travel-日本-京都高野山]
 
 落火車再轉巴士去**保津川下り 乗船場**  
 
-![](https://aogwlq.ch.files.1drv.com/y4mkgJNBJECNtExNGpwsyfa2_o7UEc0Jb0xcwCRgw4u5f3gOE4gvc07A8XdEKnEUksU34HU1cOHocq0YulixJP054_NQCvPYu0pwegfQX8Wj-3JGkqdV9hHkDjyOM2D5geMmwwsnO9UzzcWIVZCFgF1zsFJDIdo7ahixM8W51TrcDGjI5aKOWGt-2vmJd--q-4yCDgcSXNSvLykqNbLsgDL4Q?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2e2.jpg)
 
 [保津川下り](https://hidie.net/kyotokoyasan2e/)  
 坐船遊保津川，落返下游  
 
-![](https://augwlq.ch.files.1drv.com/y4mKich3yASHdjbTFbsdnrR93EnMyFbGh2XFJJzdul6K6t1XJjjr4YxnmFGRRLfWFbPfZOrY21mbM8rMLPpsqPMF3iqhJCiq-I_nQMkKHDq9lpuuRq-g0c_H5ic4F9OjuZsEvuSdGVRJouPTx-Cy3LuOiiiw_5EMC9aZ0QBH4xwhq3JdMezhl_EySb3aia9wV7LfsVq40daaKN4eVmByZyg0Q?width=371&height=660&cropmode=none)
+![](/images/kyotokoyasan2e9.jpg)
 
 **保津川下り ビール**  
 有呢隻船嘅beer（心）  
 
-![](https://aog2lq.ch.files.1drv.com/y4mpyANY0utSjDPU41Qu3M8PlZe11vTPa4AdyGOI0NUBsZg6L5T7dDB1BGtRPxyiOReCsfJraRrmjPYl9rDDnsUrIH1qeh6iJx2ADEWypYwVBpb4LI0ndxcsqn96wbB37A9uxmw7zRW72oY06w-tQoQ4zkomdm_8Hm0wOlVJH11Pjk7yEnUdloqV7aylp7N8DKkQJqOHkgoHzsT9L979d2C5w?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2e10.jpg)
 
 仲好大霧呢～  
 
-![](https://apgulq.ch.files.1drv.com/y4mTeUo6uOSdig1gC5UNfDE0Ucg98D7HM4VeWW2PF-_oYiU7gVbDieA9Yjd67IhruaxC6DSsdgiuXeZ3SKS3_KzXXLUMLOpQeCd77qQbm3xvEkPBKf9iw9s070uU2TKUH7BmffMdIcIFYxFaDq54XDtCc0uM94p44b6KcyQ53xL7xsLHfVe240x57dIyrKa3eNHzIe4oST802YYGWzmWBhBLg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2e11.jpg)
 
 夏天可以玩急流㗎  
 
-![](https://zogwlq.ch.files.1drv.com/y4mCEBcpv0eKVHyCd7lL03eSXriBqdvYE24tpciRqVlkWCW3TY9qKAYhJzxb3s0OwVd4Tjo-1bqp1SZqe2vU35NlFolwB9n_rq2I00P_lTM69sxo8rtOF2lcnrzY-P8iIIC9LLqEBP0mxUOUOkOn3TM0t0V3Uh13vaG8DOEXHi9pds5hVemx417ENktKwYPD8LCjUDIBNLGARH7CHBNSMZ-Sg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2e12.jpg)
 
 水嘅周圍都係石仔  
 叔叔撐船好辛苦（貴啲都值得）  
 
-![](https://yog2lq.ch.files.1drv.com/y4mbKT6MBtMbwkU1eGxqAlb8Jsw9Tvrk-6xepSQM-jG2UBsvE5soXSI8zFUG7p_l93Vue-GfjXotOive32StOJUDfijFyRJ7JlkSw3eTm7860ZD-ZzVs_Ksl4xc4LoFMy509G0JerW1fZxvU5m5luGbdqXRc5sbFKeTe6hJgk55CmwhlolVN_jCf_AZCoexUE5ha8wTC9-y9utvj6Mo2_vD4A?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2e.jpg)
 
 啲霧散晒，又再同太陽見面  
 
-![](https://zejkoq.ch.files.1drv.com/y4mKuz89Jos5C1D3CrkaRZIyIy7W6-70ARnP5VP-JHYQzhMQS4YX3MKyqsnmswqtgKvJlPXts1lrqVCLezuKY1WDGKmE_m2lM5teGdhlFQ7oV-bZXjqMjDEZyoiP2zuyTSOzoAb3O-azMzCc2xKZ8KM9o9PkeqF_mIjSCFmnwvCNeHwFQJl9UZB5PU8Z-YqdEmStO3LvHIGGJU0kdZHE8bgpQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2e30.jpg)
 
 落船前有商店船黐埋嚟行  
 but 過一陣有飽飽食就skip咗唔買喇  
 
-![](https://yojnoq.ch.files.1drv.com/y4mEUDhR-tuKg9rmxZblNzR8NR8V2ukWVpdXuF5EjUAiBYkyHJPa6pOhWbE0eRo5t4WPayBeCxFHE50aPrE2l9y5Kp4a_PtMNAjNKm7sGXGon0zVqBo6n9KOxGsSz2ngHEFOjFW1YA_8AM3mKFMz-SA4F1Sy0TKhS_Bs5Js3TAdnvnO1n7FrEL2i-xx_VC2X6YT6dHkbDGRTESdp4hPM5qxUw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2e34.jpg)
 
 又返到**葛野大堰**  
 
 ![](https://yejioq.ch.files.1drv.com/y4mzfsps6pAlZYIlhZGZ1JMELI1Yz1u4rvp9wW5mVw0MPnvV3rcUdRBXenLrWQ7lgvD0ugMRRD9SGJKS6GwBGT5RuaHGKgzLfF7AhyPsWRGPSKJOUiOiITqAsegBuOMrJtIARMXf3zRHRqqkmtLHYKJocNq7N1hzd62B5-zsRUwz7LQM9SuaPLBLcYr3CSgycdOoPiurLHx6OlzBHSIwKkUgg?width=660&height=371&cropmode=none)
 
-今日嘅brunch係食**懷石料理** @**花筏**  
+今日嘅brunch係食**懷石料理** @[花筏](https://hidie.net/kyotokoyasan2f/)  
 
 ![](https://auhhzw.ch.files.1drv.com/y4m3Qf-9thSMGrFu3IPsGgfpNt-8NfMKrIYyF80kPnaf_KWwNN588iCtBoxM91b35LU1zZtrFCiy225kxbP2kXgk3canSJCRGr0tXa_Y6ey4Am1UOAXDpoeCiBgA73fHg8UIrl28z2y7vzfk52pZZxXB_RU0v29HOxB9S0txsa9sSHQBQkpQ6EZ3nVuafuEamqw4VhSJJoPMYJ_04S8RECVng?width=660&height=371&cropmode=none)
 

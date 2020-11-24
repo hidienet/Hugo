@@ -92,7 +92,7 @@ but 過一陣有飽飽食就skip咗唔買喇
 
 ![](/images/kyotokoyasan2f.jpg)
 
-今日嘅brunch係食**懷石料理** @[花筏](https://hidie.net/kyotokoyasan2f/)  
+今日嘅brunch係食**懐石料理** @[花筏](https://hidie.net/kyotokoyasan2f/)  
 
 ![](/images/kyotokoyasan2f12.jpg)
 

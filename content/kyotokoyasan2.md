@@ -128,7 +128,7 @@ but 過一陣有飽飽食就skip咗唔買喇
 
 ![](https://aogfiw.ch.files.1drv.com/y4myi-r-Dp_qkQO9kpqwqw_D_28UmQxWJOq2-UnKksQ50CAJLhSKvnp35W8QhKDFQy0wNvZsh9teGOsuNY6MsCXnDMdRXdXrjdcY1qAdGRJBHEC1ZFnyTk8IBs6dDG37Mp113HOlyneu6-cAocVilpQy-hnsko-DJajdBn3RJMtJGoImZL62ExUN8-PKtQXPAxg-dtdDwLoUpqDCMj2m8PFpw?width=660&height=371&cropmode=none)
 
-行上啲啲，响**亀山公園**望吓個京都  
+行上啲啲，响[嵐山公園 亀山地区](https://hidie.net/kyotokoyasan2h/)望吓個京都  
 
 ![](https://zojqig.ch.files.1drv.com/y4m5yRKmjr9nfU4FOwe510h74o0rjgaWcBMMS3cerGOYms6fLb-3_TBmKS9-PbH8bkcsWH7c4egXXKfNOdU1u-h6USW_-SZ4GI7z57FV6xcPsJCQwVgCuCE94tIdbOtS8IDurgzN2WQnaZsqA2c7mRtVnzxCAjohSW2OwTe2EX5kNZI5TPAEPwAgtPXHwMpmdWsN94U1fIeJ0hLNelPXaq6aw?width=660&height=371&cropmode=none)
 

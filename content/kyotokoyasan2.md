@@ -126,21 +126,21 @@ but 過一陣有飽飽食就skip咗唔買喇
 
 地方舒服嘅；係多人咗少少啫...  
 
-![](https://aogfiw.ch.files.1drv.com/y4myi-r-Dp_qkQO9kpqwqw_D_28UmQxWJOq2-UnKksQ50CAJLhSKvnp35W8QhKDFQy0wNvZsh9teGOsuNY6MsCXnDMdRXdXrjdcY1qAdGRJBHEC1ZFnyTk8IBs6dDG37Mp113HOlyneu6-cAocVilpQy-hnsko-DJajdBn3RJMtJGoImZL62ExUN8-PKtQXPAxg-dtdDwLoUpqDCMj2m8PFpw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2h2.jpg)
 
 行上啲啲，响[嵐山公園 亀山地区](https://hidie.net/kyotokoyasan2h/)望吓個京都  
 
-![](https://zojqig.ch.files.1drv.com/y4m5yRKmjr9nfU4FOwe510h74o0rjgaWcBMMS3cerGOYms6fLb-3_TBmKS9-PbH8bkcsWH7c4egXXKfNOdU1u-h6USW_-SZ4GI7z57FV6xcPsJCQwVgCuCE94tIdbOtS8IDurgzN2WQnaZsqA2c7mRtVnzxCAjohSW2OwTe2EX5kNZI5TPAEPwAgtPXHwMpmdWsN94U1fIeJ0hLNelPXaq6aw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2h8.jpg)
 
 紅葉與**嵐山羅漢**石像們  
 
-![](https://zpjqig.ch.files.1drv.com/y4m8RLOoAfjPM1jZY1Vo3oH31TSxeo-ZxBVrEpZvmSBIBPVE3irOJx9dVDgHO5xX1sTtK91AhdB0qIvc8IXdAC0dZUZK05OoV9qXq2OQR2Xy760sd-AQVDuh52S7-9vX1M8w4vQiJbnpJO2oTR7_usn-IpKBLYhbNKFJiQYyrmxb5hqG_1QOQZghh04nWT7lf9fjQ6ZGHMDXoCAnuCntLUXiA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2h12.jpg)
 
 實在太好行夠晒舒服  
 
 ![](https://yogdiw.ch.files.1drv.com/y4mGWINlGFvRTiztjaPmTrQhF_bFrbr5F0e3mX1DI63jWG5YcdBzod-eULNV2XyMbqdHzdBSk9w4XBpUPx_oOw7-N_XSs9GmGBhYIiB6yotkQJLuOeY9O5kAEYGwCrmmsB6iMbVwkXLM8meWPfeJVWk1XyEG_tnVVFEfR5IPOSlBvdtmhEYrTXO7oMJWbF30959dTI9Q4_TERqbaOyDn4MxMA?width=371&height=660&cropmode=none)
 
-嚟到嵐山梗係要隊杯 **%ARABICA**  
+嚟到嵐山梗係要隊杯 [%ARABICA](https://hidie.net/kyotokoyasan2i/)  
 
 ![](https://aogulq.ch.files.1drv.com/y4mPsN23TiNMxONNo52hfRZWjiGipZMltaJMJrSHBF8R6muuSqUWaChPe8xajZTCIDgBn5K7WLQzeYkWWRWvm-OeX5shUN0ZmtnDzTO4nHT-499470tkdw5AICdGMz_bRFyYwx_PFdOVDKfRLUoea-kRlwbFW-icbuZKZ8a2m5OnfOfU0MUFXk0Empvw6nZ7_7N0MkXWSr4ThIpEpHWljR1Cg?width=660&height=371&cropmode=none)
 

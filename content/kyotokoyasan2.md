@@ -138,7 +138,7 @@ but 過一陣有飽飽食就skip咗唔買喇
 
 實在太好行夠晒舒服  
 
-![](https://yogdiw.ch.files.1drv.com/y4mGWINlGFvRTiztjaPmTrQhF_bFrbr5F0e3mX1DI63jWG5YcdBzod-eULNV2XyMbqdHzdBSk9w4XBpUPx_oOw7-N_XSs9GmGBhYIiB6yotkQJLuOeY9O5kAEYGwCrmmsB6iMbVwkXLM8meWPfeJVWk1XyEG_tnVVFEfR5IPOSlBvdtmhEYrTXO7oMJWbF30959dTI9Q4_TERqbaOyDn4MxMA?width=371&height=660&cropmode=none)
+![](/images/kyotokoyasan2i1.jpg)
 
 嚟到嵐山梗係要隊杯 [%ARABICA](https://hidie.net/kyotokoyasan2i/)  
 

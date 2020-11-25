@@ -142,20 +142,20 @@ but 過一陣有飽飽食就skip咗唔買喇
 
 嚟到嵐山梗係要隊杯 [%ARABICA](https://hidie.net/kyotokoyasan2i/)  
 
-![](https://aogulq.ch.files.1drv.com/y4mPsN23TiNMxONNo52hfRZWjiGipZMltaJMJrSHBF8R6muuSqUWaChPe8xajZTCIDgBn5K7WLQzeYkWWRWvm-OeX5shUN0ZmtnDzTO4nHT-499470tkdw5AICdGMz_bRFyYwx_PFdOVDKfRLUoea-kRlwbFW-icbuZKZ8a2m5OnfOfU0MUFXk0Empvw6nZ7_7N0MkXWSr4ThIpEpHWljR1Cg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2j.jpg)
 
 話咁快就日落  
 
-![](https://aegulq.ch.files.1drv.com/y4mG9EWgqQqt6imYc6G9L7Ro6KnQGecKMGv8Tq9VB1BuGe8jSFt2IjxMTcTwKCXra-Iia3AL7v0m479uQYvaARHmBUCQBFeXCvFD2FDqMT-GwdBHwa2OQfZXB5COtgKxaZmluE3u04MU2raf8e6-eaVl6EUEqjakdIiU58kQm7qbfeS9pNJqXiuYcORpakGUrN_fREqZoI6s09oNabuQIWxIA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan2k.jpg)
 
-晚餐 @**嵯峨とうふ 稲 本店**  
+晚餐 @[嵯峨とうふ 稲 本店](https://hidie.net/kyotokoyasan2k/)  
 話時話嵐山呢度啲嘢好早收  
 呢間係唯二叫收得晏啲嘅餐廳  
 close at 7pm，好多收6pm咁早要食晚餐死唔死  
 
-![](https://aogzlq.ch.files.1drv.com/y4m2WWCt3ly6SmqXdh9jwE_CP3inE8EbSwMleAGjSAxu3mHUzMb1E8yZ6WUV90DAoX51dfYVjUpbcOLbzM_PlEZQIi85hwq4LYvLEwp92Z2SXfl-3NnI18cYp3Oiap5oKQAVfID9hQO7ClYouVPVi38Zll4yT9jDxLeYI7YI-_bMov9fuOOI5Gl5LDfAwZQHYH5RKi1JzyueEoZ0t9cx7wg9g?width=371&height=660&cropmode=none)
+![](/images/kyotokoyasan2l.jpg)
 
-**地ビール**嘅**黄桜 京都麦酒 蔵のかほり**  
+**地ビール**嘅[黄桜 京都麦酒 蔵のかほり](https://hidie.net/kyotokoyasan2l/)  
 清酒風味嘅啤酒，其實最啱配炸嘢哈哈  
   
   

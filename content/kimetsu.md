@@ -8,7 +8,7 @@ tags : [amusement - animation, amusement - films]
 
 有睇開動畫，見上劇場版咪入場睇囉...  
 
-{{<youtube t0XGJGtaQh8>}}
+{{<youtube Iz2UD-TtaKQ>}}
 
 **劇場版「鬼滅の刃」無限列車編**  
 動畫同劇場版都係跟漫畫個劇情  

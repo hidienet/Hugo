@@ -6,19 +6,19 @@ aliases: [ "/2019/11/day3.html" ]
 tags : [travel-日本-京都高野山]
 ---
 
-清晨時分就起身出發...  
+清晨時分就起身[出發](https://hidie.net/kyotokoyasan3a/)...  
 
-![](https://aegzlq.ch.files.1drv.com/y4mPfjNG7-nebfzH9YWElxcQWiZesWMdXddbDJS-IsuOEyLlzCDb8TIRkMAF6lrSz201BQGZC-l_SV0vUFkR3xYYWO-Ccnrtbcm2tWW3OGiNjMyG6WX4OPsep8WJwsPQPgGIF94-KEjg1dMCxX8Cw6N0bMvw8Mc-YnooPP7uV6hEBUX1wkLpzmKG2TfR-yay-Sp97ZNYliqPgakjPvBJG6gEw?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan3a1.jpg)
 
 六時未滿天都未光  
 
-![](https://augulq.ch.files.1drv.com/y4m-x2mmNyGOVFlEqd-TTtDRJAfWx6-DJS8KtjDG_rvo4Yklsc-SvlP_mZfER3F1p9Lt9OzYjqetdxcY8CpCTvxKPS1gsxvTiN5qE4cbopikqT4R1xLmaINwheDEj1S2oecFS4dv-GfPXrxGaRCD8JA1SEFcWuVCc0rnp-eucPgAdJ4tDmM-4WqtnAS7ApBFjsZWsKmxq0jaJQGmyeuDf70kA?width=371&height=660&cropmode=none)
+![](/images/kyotokoyasan3a2.jpg)
 
 飲返杯籮神熱辣辣咖啡  
 
-![](https://apgylq.ch.files.1drv.com/y4m2Txq3s-U-Mb5AS2sse5HbXNhFeNIhYagpqcAJxep0SRZKRkRWhfl2YPiaBNXnO_vMEqfNv5ifiHV5MjPFwB2k3d0_4F190dUP3xtwaKVcRnpkAqaHKdWfDF4pVYymG8nn_0r7-hUGkk2gMa4n1kyHHUWT_L5vcKehW2MQOSufhhnHF6qxLR2nZ0f50h26UbXJVriJQj73LAMxlAD9vnKbg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan3b.jpg)
 
-**南海高野山ケーブル**  
+[南海高野山ケーブル](https://hidie.net/kyotokoyasan3b/)  
 嵐山(京福線) → 西院(京福線→阪急線) → 淡路 → 天下茶屋 → 橋本(和歌山県) → 極楽橋 →  
 
 ![](https://apgzlq.ch.files.1drv.com/y4mwnhp5cvdfoi6j4viTlFj_FiBlsOZX0Hgy0mlZwULQV4sy-JgzhN_iqV6LDc3fIM117VbxSmbTqWZNTpms9lZxDWTPDmqSZFPLrWYkjJVxZc1N8rlsD2p4wGfpHUYnVeEcICyOjY1K-3cSKkdd8-cF4c4OaCzOHWLyoUKw7pzBtuHhPo6QpTvUtYaawuPRtuCK3CEseudTx3dBXa67_faZQ?width=660&height=371&cropmode=none)

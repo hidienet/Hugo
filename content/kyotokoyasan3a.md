@@ -6,11 +6,11 @@ images: ["/images/kyotokoyasan3a.jpg"]
 tags : [travel-日本-京都高野山]
 ---
 
-今朝天未光就起身出發
+清晨時分就起身出發...  
 
 ![](/images/kyotokoyasan3a1.jpg)
 
-話咁快就離開京都同嵐山喇
+六時未滿天都未光  
 
 ![](/images/kyotokoyasan3a2.jpg)
 
@@ -18,6 +18,7 @@ tags : [travel-日本-京都高野山]
 
 ![](/images/kyotokoyasan3a.jpg)
 
+話咁快就離開京都同嵐山喇  
 起錨，GO～～～
   
   

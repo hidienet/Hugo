@@ -12,6 +12,7 @@ tags : [travel-日本-京都高野山, satisfaction - 搭條鐵]
 ![](/images/kyotokoyasan3b.jpg)
 
 搭埋呢架 **南海高野山ケーブル**  
+夾夾埋埋搭咗三粒幾鐘嘅車，終於...  
 
 ![](/images/kyotokoyasan3b1.jpg)
 

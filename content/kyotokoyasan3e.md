@@ -1,5 +1,5 @@
 ---
-title: '[錦秋京都高野山] Day3：金剛峰寺'
+title: '[錦秋京都高野山] Day3：金剛峰寺壇上伽藍'
 date: 2020-11-29T13:30:00.000+08:00
 draft: false
 images: ["/images/kyotokoyasan3e.jpg"]

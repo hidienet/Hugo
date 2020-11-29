@@ -94,30 +94,30 @@ brunch @御菓子司かさ國 （[みろく石本舗 かさ國](https://hidie.ne
 **精進料理 三鈷膳** @[花菱](https://hidie.net/kyotokoyasan3f/)  
 不枉排咗一粒鐘... 好好食！  
 
-![](https://zohjfg.ch.files.1drv.com/y4mAi760URuyHsz6ez9mzpPYKcFfBtKioCbgwHdRrV3Mn3b2Vn89BrDKKzJaM7sBrx6oX0TYATD3aIewHmvyZUAzieOnl9EEBoH8LsUpViw2D8aZCVofJ6fDDM96znNmLHK4_Lc1kqk624q0lVTW4BPOxeHZEYZZZ2TZ48jxfbsl9ZFxvt6MjV67J4cHRq1ObyxWZp0Cfmn4w5AlYUA2Cioxg?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan3g1.jpg)
 
 食完都唔係去瞓晏覺呀  
 
-![](https://zehqfg.ch.files.1drv.com/y4mrLRwgfPD77T2wOEvpPo3ySHYAQc9s9af529uzmlwoj1SMgi-UsFZoZWLlDAzk4Gtj77yxzGFgccCFotBqoOQOhIJfNCj1ZkosEaVsHV8dxULs5jaUA6zp0ITDLbM5kt8XrtZvgTss0O8xn5gBnUg0gw0zFjX1gG-fZg-frnNxpVR0mSYlyltN9XdWDIJUrHzNWyL7jZDguDqbw9aNxueWQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan3g2.jpg)
 
-又向山進發  
+又向山[進發](https://hidie.net/kyotokoyasan3g/)  
 
-![](https://zehmfg.ch.files.1drv.com/y4mIuVOWHv1IXCDj4gYLBTaX9vj3JnQFZ_d5zG2Yo0X4EJT2ufCkivd8wCNy4cGsrfp6_gYrojFqpkBmPFGG3InMXgt1jIgJorCQyUv1WM4FKtoAdezZYlEvyclYv7Z8uvOgCt1ziWyncc9ZFiB2hJNbQYfsc_uS9OTWJn-fWGqB5f9q1Y1Wyu8fH7Ed1wIVCFwqDpdE6I_YVySD5vfJ89cEA?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan3g4.jpg)
 
 **大門**  
 
-![](https://yohrfg.ch.files.1drv.com/y4mtsGtcb8Z2lIRgYTihqf9dnjqzehg4T1zCXyms4RNr8k7EYOdce0Mt7eyPrR83kT6T8kTO7fZFTbVqMXKgGH9QpOqNv0dfxaGjysW29Arkw6jyvb6B6wijItmHjW-M8HUytLLGExWANOj6AhnXeeBCyKJ2AKhimi0DSpwwx1wktkQjWby1MHwSQ7yRi8Rkp9lCjv0WAyGzRDgEETegtCUiQ?width=660&height=371&cropmode=none)
+![](/images/kyotokoyasan3h1.jpg)
 
-**赤松院**  
+[赤松院](https://hidie.net/kyotokoyasan3h/)  
 今晚「禪修」嘅地方  
 
-![](https://aogeiw.ch.files.1drv.com/y4mC5bYeKQerjJrfeEw48XGY3cZ7-FC9hqhPVpVJw7DYKONHjYk6zr9jLocOY9O9Gpvocf1Jh2d9Inn3SJgk8ZJjBmOkuxLiqgZZEwRmXpQ-BoVR9KeGckQ49xpann24BC3A2cnZu_Q2VG0zfc0HRt6PhXTlLvhEwQVnBTvc-U0Y-bS9u5YdBI_76h2QaHhauWdDeXj4CrQOVxsNMBic0aOLQ?width=660&height=371&cropmode=none)
+!![](/images/kyotokoyasan3h2.jpg)
 
 晚餐... 唔熱團式餐都係禪修嘅一部分啩（誤）  
 
 ![](https://aogaiw.ch.files.1drv.com/y4myIYrRsO8mQPbpfeTA0IdiVLT8h0nLdF4eLZ_bQ9iY_fqapzoey_9lTkYIn-OINdsTpe7Ru0VbhOEiDiswXj5wO1lFhZtOSiZDCRPKY_W3r3Fco2xOrp-nnBUHdAkg89LEEz1bE59KyAoAWrUWyFCG3q1biZaKBeA1f-GospEHmrE5IGGixhrnAHgoi7qQaOzSwW5k3LtuUhQzhTrpknKrg?width=371&height=660&cropmode=none)
 
-今晚會參加**高野山奥之院ナイトツアー**  
+今晚會參加[高野山奥之院ナイトツアー](https://hidie.net/kyotokoyasan3i/)  
 先响呢度企定定集合就一齊去夜訪墓碑同拜訪弘法大師・空海様喇  
 （恵光院→（約2キロ徒歩）→奥之院・御廟→御供所でツアー終了）  
   

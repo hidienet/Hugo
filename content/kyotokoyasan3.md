@@ -115,14 +115,13 @@ brunch @御菓子司かさ國 （[みろく石本舗 かさ國](https://hidie.ne
 
 晚餐... 唔熱團式餐都係禪修嘅一部分啩（誤）  
 
-![](https://aogaiw.ch.files.1drv.com/y4myIYrRsO8mQPbpfeTA0IdiVLT8h0nLdF4eLZ_bQ9iY_fqapzoey_9lTkYIn-OINdsTpe7Ru0VbhOEiDiswXj5wO1lFhZtOSiZDCRPKY_W3r3Fco2xOrp-nnBUHdAkg89LEEz1bE59KyAoAWrUWyFCG3q1biZaKBeA1f-GospEHmrE5IGGixhrnAHgoi7qQaOzSwW5k3LtuUhQzhTrpknKrg?width=371&height=660&cropmode=none)
+![](/images/kyotokoyasan3i.jpg)
 
 今晚會參加[高野山奥之院ナイトツアー](https://hidie.net/kyotokoyasan3i/)  
-先响呢度企定定集合就一齊去夜訪墓碑同拜訪弘法大師・空海様喇  
-（恵光院→（約2キロ徒歩）→奥之院・御廟→御供所でツアー終了）  
+ 
   
   
-又完一日喇～  
+然後，又完一日喇～  
   
   
 {{<kyotokoyasan>}}  

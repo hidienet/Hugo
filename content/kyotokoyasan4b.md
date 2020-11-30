@@ -57,7 +57,7 @@ tags : [travel-日本-京都高野山]
 
 ![](/images/kyotokoyasan4b11.jpg)
 
-纜車（心）  
+[南海高野山ケーブル](https://hidie.net/kyotokoyasan3b/)  
 
 ![](/images/kyotokoyasan4b12.jpg)
 

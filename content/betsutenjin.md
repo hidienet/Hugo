@@ -24,5 +24,4 @@ Made in Taiwan放心使用
 **0609 1M‧0616 2M+1‧0721 YL‧0831 PE**  
 [貼車](https://www.facebook.com/ramenbetsu/photos/a.2543679682439054/3033675220106162/?type=3&theater)唔得咁唯有周圍周圍周圍貼啦～～～  
 
-  
-{{<kyotokoyasan>}}  
+

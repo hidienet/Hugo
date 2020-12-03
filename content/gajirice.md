@@ -3,7 +3,7 @@ title: '[丼] 㗎仔飯'
 date: 2020-12-03T19:30:00.000+08:00
 draft: false
 images: ["/images/gajirice.jpg"]
-tags : [flavor - 行膳積腹, flavor - 飲！, satisfaction - 黃店懲罰日]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 限飯令又又又四變二...  

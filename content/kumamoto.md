@@ -10,7 +10,7 @@ tags : [travel-日本-熊本, lifestyle - 逃離852]
 
 ![](/images/kumamoto1.jpg)
 
-#### Day 1
+#### Night 1
   
 晏晝上機，坐兩粒幾三粒鐘機就去到熊本...  
 搭多一個鐘巴士就到市中心  
@@ -35,7 +35,7 @@ check in完放低行理响酒店就去搵食
 最後買咗杯**DIAMOND BREWING**嘅手工**黑啤**  
 跟住當然係返酒店浸溫泉啦（爽）    
   
-#### Day 2
+#### Day 1
 
 ![](/images/kumamoto4.jpg)
 
@@ -148,7 +148,8 @@ check in完放低行理响酒店就去搵食
 今晚叫杯**gluhwein**暖吓手先  
 之後當然又係返酒店浸溫泉啦啦啦  
   
-#### Day 3
+#### Day 2  
+話咁快就已經係last day  
 
 ![](/images/kumamoto32.jpg)
 
@@ -164,9 +165,19 @@ check in完放低行理响酒店就去搵食
 唔用酒店牙刷就有得送㗎喇  
 
 ![](/images/kumamoto34.jpg)
+
+**水前寺成趣園**  
+
+
 ![](/images/kumamoto35.jpg)
+
+每次見到都會鞭屍嘅「[千尾鯉魚 自由遨遊](https://hidie.net/yunnan3b/)」  
+
 ![](/images/kumamoto36.jpg)
 ![](/images/kumamoto37.jpg)
+
+**出水神社**  
+
 ![](/images/kumamoto38.jpg)
 ![](/images/kumamoto39.jpg)
 ![](/images/kumamoto40.jpg)

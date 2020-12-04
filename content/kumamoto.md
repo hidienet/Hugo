@@ -185,7 +185,13 @@ check in完放低行理响酒店就去搵食
 ![](/images/kumamoto42.jpg)
 ![](/images/kumamoto43.jpg)
 ![](/images/kumamoto44.jpg)
+
+**成趣園池**  
+
 ![](/images/kumamoto45.jpg)
+
+**古今伝授の間**  
+
 ![](/images/kumamoto46.jpg)
 ![](/images/kumamoto47.jpg)
 ![](/images/kumamoto48.jpg)

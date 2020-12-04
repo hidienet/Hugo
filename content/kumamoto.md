@@ -195,6 +195,13 @@ check in完放低行理响酒店就去搵食
 ![](/images/kumamoto46.jpg)
 ![](/images/kumamoto47.jpg)
 ![](/images/kumamoto48.jpg)
+
+**十六夜**  
+ふわっと弾力があるのに、口に入れると溶けるような口当たり。
+北海道産の手亡豆を使用した餡に卵の黄味をたっぷり入れた黄味餡を、
+卵白で作った真っ白い生地（淡雪羹）でくるみました。水前寺成趣園にある、
+古今伝授の間のお茶菓子にも使われています。
+
 ![](/images/kumamoto49.jpg)
 ![](/images/kumamoto50.jpg)
 ![](/images/kumamoto51.jpg)

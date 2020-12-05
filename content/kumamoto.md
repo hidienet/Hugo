@@ -1,6 +1,6 @@
 ---
 title: '熊本周末（2D2N）'
-date: 2020-12-06T12:30:00.000+08:00
+date: 2020-12-07T12:30:00.000+08:00
 draft: false
 images: ["/images/kumamoto.jpg"]
 tags : [travel-日本-熊本, lifestyle - 逃離852]
@@ -94,7 +94,8 @@ check in完放低行理响酒店就去搵食
 
 ![](/images/kumamoto16.jpg)
 
-用lunchbox食lunch  
+**懐食 田しろ - 昼餉の懐石**  
+用lunchbox(六角点心膳)食lunch  
 
 
 ![](/images/kumamoto17.jpg)

@@ -1,6 +1,6 @@
 ---
 title: '周末 Go to 熊本（2D2N）'
-date: 2020-12-07T21:30:00.000+08:00
+date: 2020-12-08T21:30:00.000+08:00
 draft: false
 images: ["/images/kumamoto.jpg"]
 tags : [travel-日本-熊本, lifestyle - 逃離852]

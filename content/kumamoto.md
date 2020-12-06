@@ -1,6 +1,6 @@
 ---
-title: '周末 Go to 熊本（2D2N）'
-date: 2020-12-08T21:30:00.000+08:00
+title: '周末 GoTo熊本（2D2N）'
+date: 2020-12-06T22:30:00.000+08:00
 draft: false
 images: ["/images/kumamoto.jpg"]
 tags : [travel-日本-熊本, lifestyle - 逃離852]
@@ -97,16 +97,17 @@ check in完放低行理响酒店就去搵食
 **懐食 田しろ - 昼餉の懐石**  
 用lunchbox(六角点心膳)食lunch  
 
-
 ![](/images/kumamoto17.jpg)
 
+小鉢2種・御吸物・御造り・煮物・焼物・揚げ物・御食事・香ノ物  
 
 ![](/images/kumamoto18.jpg)
 
+啲魚仔好好味！  
 
 ![](/images/kumamoto19.jpg)
 
-栗子說雪糕（心）  
+デザート：栗子雪糕（心）  
 個甜度配埋杯black coffee啱啱好  
 
 ![](/images/kumamoto20.jpg)
@@ -138,10 +139,24 @@ check in完放低行理响酒店就去搵食
 襯好天四圍兜吓
 
 ![](/images/kumamoto26.jpg)
+
+然後又係時候食晚餐（嘻）  
+
 ![](/images/kumamoto27.jpg)
+
+鮟鱇魚肝  
+
 ![](/images/kumamoto28.jpg)
+
+白子
+
 ![](/images/kumamoto29.jpg)
+
+脆炸河蝦
+
 ![](/images/kumamoto30.jpg)
+
+燒鰻魚串
 
 ![](/images/kumamoto63.jpg)
 
@@ -158,7 +173,7 @@ check in完放低行理响酒店就去搵食
 
 ![](/images/kumamoto31.jpg)
 
-
+熱辣辣**はやしのいきなり団子**  
 
 ![](/images/kumamoto33.jpg)
 
@@ -180,11 +195,19 @@ check in完放低行理响酒店就去搵食
 **出水神社**  
 
 ![](/images/kumamoto38.jpg)
+
+**細川家 銅像**  
+
 ![](/images/kumamoto39.jpg)
+
 ![](/images/kumamoto40.jpg)
+
 ![](/images/kumamoto41.jpg)
+
 ![](/images/kumamoto42.jpg)
+
 ![](/images/kumamoto43.jpg)
+
 ![](/images/kumamoto44.jpg)
 
 **成趣園池**  
@@ -194,38 +217,73 @@ check in完放低行理响酒店就去搵食
 **古今伝授の間**  
 
 ![](/images/kumamoto46.jpg)
+
 ![](/images/kumamoto47.jpg)
+
+咁正嘅地方梗係要嘆杯茶食件菓子啦～  
+
 ![](/images/kumamoto48.jpg)
 
 **十六夜**  
-ふわっと弾力があるのに、口に入れると溶けるような口当たり。
-北海道産の手亡豆を使用した餡に卵の黄味をたっぷり入れた黄味餡を、
-卵白で作った真っ白い生地（淡雪羹）でくるみました。水前寺成趣園にある、
-古今伝授の間のお茶菓子にも使われています。
+外皮係白い生地（淡雪羹）  
+柔軟又富彈性而且入口即溶好過癮  
+裡面係北海道産手亡豆  
+加埋濃郁蛋黃味嘅黄味餡，好正喔呵呵  
 
 ![](/images/kumamoto49.jpg)
+
+搭路面電車喇
+
 ![](/images/kumamoto50.jpg)
+
+**くまモンスクエア**  
+去くまモン営業部長室（熊本熊辦公室）  
+
 ![](/images/kumamoto51.jpg)
+
+揼返個印仔先～
+
 ![](/images/kumamoto52.jpg)
+
+**交流スペース(ステージ)**  
+仲有表演睇啊！  
+
 ![](/images/kumamoto53.jpg)
+
 ![](/images/kumamoto54.jpg)
+
 ![](/images/kumamoto55.jpg)
+
+**お宝展示物**  
+
 ![](/images/kumamoto56.jpg)
+
+**馬肉ダイニング馬桜**  
+食埋個lunch就差唔多完trip  
+
 ![](/images/kumamoto57.jpg)
 
-赤牛 + 馬 + 蓮藕
+個丼有齊赤牛 + 馬 + 蓮藕
 
 ![](/images/kumamoto58.jpg)
+
+係時候返酒店拎行李返歸喇～～～
+
 ![](/images/kumamoto59.jpg)
+
+臨走前飲啤酒啤酒 @**くまBAR**  
+
 ![](/images/kumamoto60.jpg)
 
-飲埋就準備走人
+**球磨（くま）焼酎や熊本の日本酒**  
+再飲埋set清酒set就搭車走人  
 
 ![](/images/kumamoto61.jpg)
 
 反正無訂飛機餐...  
 臨上機前再隊埋個便當先  
-（個盒可以[重用](https://hidie.net/fengming/)啊！）
+（個盒可以[重用](https://hidie.net/fengming/)啊！）  
   
   
   
+～完～

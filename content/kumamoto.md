@@ -190,6 +190,7 @@ check in完放低行理响酒店就去搵食
 每次見到都會鞭屍嘅「[千尾鯉魚 自由遨遊](https://hidie.net/yunnan3b/)」  
 
 ![](/images/kumamoto36.jpg)
+
 ![](/images/kumamoto37.jpg)
 
 **出水神社**  

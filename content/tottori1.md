@@ -8,7 +8,7 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 臨出發前一星期先話廚叉可能釘牌喎... -\_-  
 
-![](https://y3olig.ch.files.1drv.com/y4mQyhUgxFJy8iZIbCADbVq6KP4Tce6xApuSBgTF4eloZeinJRwapRcUxhyMdBCuOQaFUcDs3MWspzTQFtRTIpwfBTDyxKJvyIG6sD3pBq4NYGf41tEmz7F2H8qZgAmlKTA3CQHbnXuSddHLnkjUy8xs0SUgDAMbU5D-wJ7XXCw1TmGyBhCLoTWqmRWObD1jXiFFQRbm9kSKIwnfGid4d6vCw?width=660&height=371&cropmode=none)
+![](/images/tottori1a1.jpg)
 
 [米子鬼太郎空港](https://hidie.net/tottori1a/)到着，呵呵  
 
@@ -16,11 +16,11 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 嗨（揮手揮手）  
 
-![](https://zhoiig.ch.files.1drv.com/y4mQb59cD2DI_FtPAD5UbhlN-wZDQIsORyfRGlp_9m25JSxKnPivb6kNSI2s0_H9Xj8__oRz80ZwzgjsZo6u4ecOhkrnID752myjYOCyALhScCNE86ozqDNVnlfpfy9r7_NJmFLZsZ3dzSkBC8mKihIfXivPkIgFs2a1jSEAh08sJYekEQc2MV5IcOK8Gym0jhNTMVCfDLgHdCQD-G9PYFsXw?width=660&height=371&cropmode=none)
+![](/images/tottori1a14.jpg)
 
 印仔time  
 
-![](https://xxogig.ch.files.1drv.com/y4mQxoW_oxC_xn2fF6Omczt5xguR96jttbSQbp4WbzCETgZ2qCcR5o1mT3x8fTJ_5Gs7jBqvquM5832p-L31QM3cC5Rqst8nd22dqiO2tUEYek8lPoo8fM6e4rrIYlf_p5hc03HLnpBn8aHmCBTLCM84i7ahr7cc8GihPo8vc0d-iBUdJj5YgrWmhYl9ySFMfbBnN1KmdSjD8PGSityjR8cQQ?width=660&height=371&cropmode=none)
+![](/images/tottori1b1.jpg)
 
 巴士係2-3倍JR嘅價格...  
 

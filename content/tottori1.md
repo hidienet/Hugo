@@ -10,9 +10,9 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 ![](https://y3olig.ch.files.1drv.com/y4mQyhUgxFJy8iZIbCADbVq6KP4Tce6xApuSBgTF4eloZeinJRwapRcUxhyMdBCuOQaFUcDs3MWspzTQFtRTIpwfBTDyxKJvyIG6sD3pBq4NYGf41tEmz7F2H8qZgAmlKTA3CQHbnXuSddHLnkjUy8xs0SUgDAMbU5D-wJ7XXCw1TmGyBhCLoTWqmRWObD1jXiFFQRbm9kSKIwnfGid4d6vCw?width=660&height=371&cropmode=none)
 
-**米子鬼太郎空港**到着，呵呵  
+[米子鬼太郎空港](https://hidie.net/tottori1a/)到着，呵呵  
 
-![](https://y3ooig.ch.files.1drv.com/y4mRlgHd7xK4Z1NSqlHf5yukKgbnZODFmBXfpUuFlxJrnqg-OFeZ6wpuVRFQdvZkqancCEVX1O-RxhueoQcAxz0aqBc1mDcXtHp-n0cftaWNzvS1TLEzBSnzQpq1l06RxQdydWyN0Iwgzi4Yl_AewXRegc9sF1ym1fR2GAGVo708J1sj0WYDPbk85o5XgTP6AErgzWw7gxp6RDwulXP4xrrUQ?width=660&height=371&cropmode=none)
+![](/images/tottori1a.jpg)
 
 嗨（揮手揮手）  
 
@@ -24,7 +24,7 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 巴士係2-3倍JR嘅價格...  
 
-![](https://z3mlqw.ch.files.1drv.com/y4mI9JihTPP1Ir0GnxOAQ278JrRcFKnSiUT5oRWOs4ZqpROxSUpNd_Gfnsp_FpNqBSAJ3CKTBoXMqn69CU4Hd1xSD0zzv1pWa5bmj_EUKJrpV2wD7T9gaO2yqbqS1iAW6PAmysn9MGcPhe-hsIXJ9lHouBkJuhlN_L53wnse_cX5krNPZQZZ7UbrwxF2kWhQ63U94d7voLOv2D6lLujCalojg?width=660&height=371&cropmode=none)
+![](/images/tottori1.jpg)
 
 所以就慢慢拖行李去搭**JR**  
 （米子空港駅／「べとべとさん」駅 → **米子駅／「ねずみ男」駅**）  

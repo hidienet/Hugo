@@ -3,7 +3,7 @@ title: '[ドキドキ鳥取] Day2：ねこ娘列車'
 date: 2020-12-13T16:30:00.000+08:00
 draft: false
 images: ["/images/tottori2c.jpg"]
-tags : [travel-日本-鳥取]
+tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 ---
 
 坐餐廳當然會撳撳手機  

@@ -42,7 +42,7 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 落車  
 
-![](https://y3mqqw.ch.files.1drv.com/y4mWbPxXF9Aw1LwE3eeReh6ogSsASHgQNayYEzeVVUjx0OJuVvytcGyEaDwC91Bm6KL0d43uwX-iLkrrlqnQgxRyrbHi_gZnPe2zpU4B-O617vZHCDWgmG1J8GCwejfeeeBq0Pjglapb2ZPzMmlLkd04R1JfV_4AGpbOa7ealNBsjpL2pUdvQBQGDAGVVBhcM_LrgCkPO159Z2JmMueSWGttA?width=660&height=371&cropmode=none)
+![](/images/tottori1c.jpg)
 
 繼續影影影  
 

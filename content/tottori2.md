@@ -14,7 +14,7 @@ tags : [travel-日本-鳥取]
 [鳥取産 二十世紀梨 チューハイ](https://hidie.net/tottori2a/)  
 4%酒精啫朝早空肚飲都OK  
 
-![](https://0hnqqa.ch.files.1drv.com/y4muNe2Ma_tinhCpb64EqLp5s_QF9gd-6M2zT9jaORovXZLuD65ooisk9QxXBdw0Namkfe-Wh0EAanjSCnVkqpkA-ZunUYJ5x0SzNkjKUdCqXKwMTDSqycfKNyHMqdKViQvrPT80KoOOw4QXNPG8sj_ACEaFHCOcItU-L31pLMVYrAfcgbU4is2_Q7C3n36t5aBbmMN3ZoK0YT_1diuWfxwgA?width=660&height=371&cropmode=none)
+![](/images/tottori2a1.jpg)
 
 因為星期二境港魚市 （境港さかなセンター）冇開  
 諗唔到做咩咪望吓地圖有咩好去，不過都係去醫肚先...  

@@ -1,6 +1,6 @@
 ---
 title: '[ドキドキ鳥取] Day1：米子本通り商店街'
-date: 2020-12-11T07:30:00.000+08:00
+date: 2020-12-11T12:30:00.000+08:00
 draft: false
 images: ["/images/tottori1e.jpg"]
 tags : [travel-日本-鳥取]

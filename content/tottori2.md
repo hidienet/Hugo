@@ -19,9 +19,9 @@ tags : [travel-日本-鳥取]
 因為星期二境港魚市 （境港さかなセンター）冇開  
 諗唔到做咩咪望吓地圖有咩好去，不過都係去醫肚先...  
 
-![](https://0hobqa.ch.files.1drv.com/y4mzk6aAOy3I_7thf72qC-WvWtMDfigaXSGgXIpdkZX2CeInWd0akcMScbKFyfgvAqdeTwUM-irMY6ve-a9uE1qDrhaJ1HL1_9W6g-DUU_Z6tqSFQwuYxrAmZKcgtfwosqIqEqwgVv-04c_1lT1Md5g5tFx9JXKRsC6WETMvzMg8W_PoFlf_cK3Zd7RbTABXR1cEpy7lzHt_AXog-5LHgK7Ag?width=660&height=371&cropmode=none)
+![](/images/tottori2b.jpg)
 
-**四六時中 - プレミアム花籠（季節の天ぷらと蟹海鮮丼花籠）**  
+[四六時中 - プレミアム花籠](https://hidie.net/tottori2b/) **（季節の天ぷらと蟹海鮮丼花籠）**  
 見到店頭企牌有呢個一千円花籠  
 諗都唔再諗就走入去食  
 成籠嘢都好好食，仲有時令嘅蟹肉啊！  

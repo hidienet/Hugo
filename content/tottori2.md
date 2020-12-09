@@ -40,7 +40,7 @@ tags : [travel-日本-鳥取]
 
 今程係搭[ねこ娘列車](https://hidie.net/tottori2c/)  
 
-![](https://ynoaqa.ch.files.1drv.com/y4mFlGwV2I0rMkSgfNnXbG20OXNYpPehdd4At1GhJ8Uua1iMGVQKAmwBE83C9CdePCU49lytbMUtQ8TpN5w1f4gtuQJ7P9Gd_Vt4hUOb3fUgO9q0mVid5L61sgQ9O6Ra_snvY-SkKeGt3YHcewsU3POKQ0gIB5J6EYuXMu9qABVEU9ILd5zNOHO7FqmaX0c8JJKvX-ZTrqSPI8CaG2rGvwOzA?width=660&height=371&cropmode=none)
+![](/images/tottori2d.jpg)
 
 [高松町駅／「すねこすり」駅](https://hidie.net/tottori2d/)  
 未變身時候圓碌碌好得意  
@@ -50,7 +50,7 @@ tags : [travel-日本-鳥取]
 
 同爸爸say byebye先  
 
-![](https://y3nqqa.ch.files.1drv.com/y4mytjG0TVKcA1YDzF1wMK8YR9AmxhLgo8UJXNZ5QHlDt1djmZVRqhK3sFalZX-M8VsJj13HYR4J8diAD0bso3WhHJXa2KIEp_yvURwbLPwx7HQlYcm9lxPLMfyxk5E0Dbxy1zPqVprugZnRyblCJ03J2LRO0IklNOAkos0i5ZkT83rx1hWm6ivKZlXJ4RPdwBR9601BjwNmOwNAIQP-RfN-A?width=660&height=371&cropmode=none)
+![](/images/tottori2d1.jpg)
 
 荒蕪嘅高松町駅  
 
@@ -65,15 +65,15 @@ tags : [travel-日本-鳥取]
 
 ![](https://y3n9qa.ch.files.1drv.com/y4mOWgtuqU0OUnAG3ULKE3Sj_M1R8nRqFugn2C3Tmda-I6R4xYW5YHb_YMMI6t0dPBMz0_0sTHSVxYF5Wd6iKQOvvj7F1mvbx58ybioXWBRViWN97bhp5m7J_nnT9XDdTsAgdCurKmnr9dGAErHbilI7vYu1xhmmt2_OsiRs4K8Oc25dGXo6bcpBTzbbOAEKojoCcDCal2iKsUI2MpXQYHOKw?width=660&height=371&cropmode=none)
 
-行咗十幾分鐘終於行到竹内団地  
+行咗十幾分鐘終於行到[竹内団地](https://hidie.net/tottori2e/)  
 好～～～大～～～間～～超級市場SUPER CENTER PLANT-5 境港店  
 
-![](https://y3n7qa.ch.files.1drv.com/y4mrXSIyb_960IzkKUIpSqaBBcieEq7HKd_nz8rLYAlFNasBHAKm1_B_3wj8LK6VkLDoXc1fZV7IdUr1X81hhbzond606LPupzTzxlJK50dyq8UMM3hZnsBWfcu2hUz2tnYPZ4TOCN_3oTU4XH7X4ebGzdYcb39ZI5hUzkOQ_HkEIWthw8jnOBv8ANpjWy7WOPWuJ7m17pbrJY_MbZ_-ppo5Q?width=660&height=371&cropmode=none)
+![](/images/tottori2f1.jpg)
 
-**大漁市場なかうら**  
+[大漁市場なかうら](https://hidie.net/tottori2f/)  
 到喇到喇超興奮  
 
-![](https://y3n5qa.ch.files.1drv.com/y4mlvC7ei8Lw7DPdMgbVrIuI0030thUAkBlBPmdJ97UyV8KcG-XroQADNZzhW133v6pfrlNWrfDj2RhaKRrwrohiS06WHXJ7-ZTsMBRe7thuocP0qbeG_hNNrcnH6x7Lr6vKly_0TlHOFIPl-HQQEaJACNBM2OplsgEptMMvc87MYxnUwRRFzvqDGMpMvMSXtZwQtwYZkIgWNHB1-6xTuZpIw?width=660&height=371&cropmode=none)
+![](/images/tottori2f.jpg)
 
 門口有隻超巨型嘅鬼太郎同爸爸  
 左手攬住隻松葉蟹  
@@ -104,24 +104,15 @@ tags : [travel-日本-鳥取]
 而普通紅楚蟹個價格就低好多  
 兩種蟹食落唔同味肉質都唔同啦  
 
-![](https://xxn7qa.ch.files.1drv.com/y4mqmANzdtiTm9E0sGTkY4GskIItD31ragIf9vkfE_dtt83AZhx3Y8itgQ_qgZQyTDwT9LFqXl85-Mx6dQo1dEO8bx3dGPlLrOJarH0devnVmUUWdLkjCsVnFs9DKP1KtjyuVZ0AefXbghfJ_1K55Wld0zliD5SpllGSuunAze6rS6S0mTDArXV_JUpwOwXT69jNkDdu54cCU64gztsIyg1xQ?width=660&height=371&cropmode=none)
+![](/images/tottori2g.jpg)
 
 冇嘢啱買行出個市場  
-未肚餓就行吓大大間百円店Seria  
+未肚餓就行吓大大間[百円店Seria](https://hidie.net/tottori2g/)  
 
-![](https://xxobqa.ch.files.1drv.com/y4m1JvaoPF1C1JPSQN4FIec_0QN1vrAXU4-w-SNNCR5D_vll6zmoOSSxcsCjqhF5lHUYdlTBDyfzZ4xm0UNyECngmPA4c6MR9WMhMx6mY307xcPNI2VIaAMM0dEdcuyZ_6vs_Wfk1Hg_LhamYFwoMswrved7k2GaEDAR4lEqlKwsJghcYnbSQ0sDLz5jGIfeX8-EoWHJ_MOC1447YQssZBg9g?width=660&height=371&cropmode=none)
+![](/images/tottori2h2.jpg)
 
 行出嚟先見到呢架百円境港巴士**はまるーぷバス**（！）  
-係可愛嘅日野・ポンチョ車款（心）  
-
-![](https://xxnqqa.ch.files.1drv.com/y4mvvBAmoneL3Dc1j6sLN4UYHIWscBEyckFoY_KhNluG6Zw9EPzCXeG49aDgY_N2ebuiptfPhlwLcApe59HM98G9TPNJk3GtCPiKQjId21VsMa7UnoL6VmHjEhVpjxrd__liKTucQ7RR5Czah9Bh8oIvMVplkfQSF2DlQOLGLalV7J_ti3_wefCVYf73DcGHq7R1VrO1ALrhMF0G8aqfbnMlQ?width=660&height=371&cropmode=none)
-
-雖然一日得九班，經呢度只係得八班  
-但至少夜啲唔駛沿住荒蕪嘅路出返去車站  
-
-![](https://xxoaqa.ch.files.1drv.com/y4mUiumTEKxuIUVThfdPZtnkPrLXU2Jtw9zNceioxtLHfg9csrOdn-S7plwGnKhG2cUb5C7wx2pL5_Owf3x77U9QOlpUucsgeGmJl-cr0OAoGT1bBUCZCcaBZ0fOyB4zq9DJfPTGu7x8qFNcclAvVOkOTRSnnAw-ztxbg9lu2CvjYbOahipI8y8M5Rj-Y0h_N0DRLqKORKbJ4kGUO6sHVth8Q?width=660&height=371&cropmode=none)
-
-一陣見喇山田先生～  
+係可愛嘅日野・ポンチョ車款（心）   
 
 ![](https://xnnqqa.ch.files.1drv.com/y4mMaIqJp07kOGLeBQghRZFLitDmDVqGVFC7JrK0smTqfZIow1izf9kmaZOBsavAqjkLPps4x_1BHhesycuRkthBrrRwDRD65aKpPHOUS-sppdEDf_eQAq7xl-eoXPtrwnKxQjetyrbot71dogOBMkzPTCzLPldgF6wp8glyKoFRpBRjM0oMjVJEd81--ny8mJ5G70J_gka_stOwavnrCAtuQ?width=660&height=371&cropmode=none)
 
@@ -178,73 +169,37 @@ googbyeかにトロ丼同隻七千円原隻松葉蟹
 
 食到一檯碟，夠飽喇～  
 
-![](https://z3mtcq.ch.files.1drv.com/y4mOYDryoLr8IAlwxcWjunOs0eFOa7hJ5Byr93jkBlxkI0rff2KOZTPwmxp8yvho06DlxwY7fuWjdZhQR2VeJAXU2xXgU-LEcN9G1R30faubrEQ-xhBhCHzWEkZ6kV_VQb4ifrlqZ5IO55XrMwb1BqmAHs9Qy-EC3VU-oY53aYTlbWjvboSOjICHUftrGIdaxweR4r3W0YYDJZUZo7cGwvp9w?width=660&height=371&cropmode=none)
+![](/images/tottori2j.jpg)
 
 食完再係咁意行吓PLANT-5  
-（裡面有另一間百円店仔Can☆Do）  
-差唔多時間就出返站等車  
-
-![](https://znmbcq.ch.files.1drv.com/y4melf0vEeQ5NUjR5UAQ7sEccfulmp6y3s6AtGaMWHWiJqTGT36emODBJWvTu0qMTiR9unE6yDW9BQATUcqMqRcYe-bmEJbI28vzZFNcN1w7SFK4BztUkRnGkt-KyljcR2as9VyQv3DMZFiG5ZUtk1GDKeJsH9m5ItWJLDvdVI2N8r6FHHcbfeyHl5lDbZ2iNFIp5FbJR0DHEvYQjSM2d8C7w?width=660&height=371&cropmode=none)
-
-車廂裡面都係滿滿山田先生好得意  
-（プラント境港店前 → **米子鬼太郎空港**）  
+差唔多時間就出返站[等車](https://hidie.net/tottori2j/)  
+  
+プラント境港店前 → **米子鬼太郎空港**  
 
 ![](https://z3mbcq.ch.files.1drv.com/y4mD-3MrIgIL55wE8xzSJL9K9JHob411WW9caOtkkpKrbuHunMrj3H6iGly5rtfu_be2Wj7cU8p-_G7m0Cb0mkhDsPV2l3OfxHrytcfKpl6dpvfBHv1DPfDzJEjl1fEkX4VDkzGYN2aDWvptkZw467bLtPfSOCEFNZugE2tomqVCV1p7eP9tbW5jhYcqR4jpnTmJ6cTzz8zUeNxqucYlhwP5w?width=660&height=371&cropmode=none)
 
 米子鬼太郎空港已經係最近嘅車站  
 
-![](https://0hmucq.ch.files.1drv.com/y4m5pmxT3JKOfruSnULi46sgwMt6KHVy0viQykDCEfTnUvgwfuIK6Pv-9NWyEUyDmVRdpmD2UsWnoUCX_oi7FJT8LOs0H4EEI44x-weLjg2OwtQd4ZqBP5EyPD39L6W3mJUj4ChzetS3VDCAzcobLQdUHmgBjpB9UHNnV2dYZvYJVfns7z4830E7WLW5KiVAnZctB6TVAYBre4pDWEEHOdapQ?width=660&height=371&cropmode=none)
+![](/images/tottori2k.jpg)
 
 但因為下一班JR實在太耐  
-唯有「忍痛」搭貴啲嘅巴士（空港 → **米子駅**）  
+唯有「忍痛」搭貴啲嘅[巴士](https://hidie.net/tottori2k/)（空港 → **米子駅**）  
 仲係普通區間巴士冇鬼太郎車身... 淌血中  
 然而搭完程巴士返到米子駅根據個JR時間表睇  
 先啱啱會有車經過空港駅，都算慳咗唔少時間嘅  
 
-![](https://0hmacq.ch.files.1drv.com/y4mZnkvvxTKRcNg0hDExQxJ_SsKF3cp88VqydKzSn3ZAXAga6xEUB1k7wItXzgzTe_3elRPtreGonXHNub6QvxkI_3RD5hlG3YJypCMq-35kZGY9Qoi3p9kELVsAtefVNFhcQLZQMQCWr-cUdMkziXTze2dRUqmbbYOQ8ltAS7pHr0_EGNO1rQOJ_GiUU8vRAjYgTVgDdU9nO04U7eL5HqLSA?width=660&height=371&cropmode=none)
+![](/images/tottori2l.jpg)
 
-返到米子駅見到花迴廊嘅巴士  
-雖則呢個花迴廊係全日本最大不過對花冇咩極大興趣  
-
-![](https://yxmwcq.ch.files.1drv.com/y4mKPU9knl1HCeCKrucT3q1Depe3n2AQU1GlteDb7eCcKfY7mB9VrRjlXcPth6MX8X4fJaLObQPUFV8oxwhyxDz4OcGMZX7Dl-7JaMDSiEgwfs-VYGMEl9pbLkRlU7fHFFCyXt_3v0fDYw6wGvvXvu5iCqIT9Rmg6cjzhXutFRIRaMBf5Z3jBU7mJh-JWtM-Y8_zkjZNEmdK28lIz2frOzEew?width=371&height=660&cropmode=none)
-
-又係搵食時間，响大街行咗一round之後揀呢間**三代目網元 魚鮮水産 米子駅前店**  
-
-![](https://yxmvcq.ch.files.1drv.com/y4mEgPPtSO9K_J-UKY9FoKHz7rMGFMBl4a_iOCzywTmyDINWNKzd5Xw1DL4icjIMnMq-ZmEZFkublgiNy0umAqk4KA_cQzUhLtlqgC9iQFu4K6MDBP3l9jAy-cSecEhIE1tqr3RfA4ogE0d8WYiG5fImWmOBJkZThekL0hQF_cn-3A_jEpFy-zj3Txb9QlMJJCwrKKnKGW6eTDSzj57zBqwUQ?width=660&height=371&cropmode=none)
-
-**白ねぎの天ぷら**  
-米子呢度產嘅大蔥唔係唔食呀嘛？  
-好好食唔臭青味㗎！  
-
-![](https://yxmzcq.ch.files.1drv.com/y4ml0E__MGP20PniRFZyVGTujLcGJimeN-D08ZfumYNBm0wklMwxgvpxdsmsLYf9dR-6ZcKwJHIfmbUvCRj8pT_YiNdD9U6yCaJeFOtD5cfVgZkRP8hHcZfraC2qqSCISF2VmATnEoHWy3IjOHpmn_am3WYSZzXd0Qkh_DSuknoYZqtfatfchg_hjEgpEn_XjTifpIKUH5Biy7Us24QVcL3iw?width=660&height=371&cropmode=none)
-
-**しじみの酒蒸し**  
-激濃香甜鮮味嘅在地產細蜆仔  
-加埋當地濃郁加熱完都揮發唔去嘅地酒  
-無唔好食嘅道理囉OK？！  
-
-![](https://yxmccq.ch.files.1drv.com/y4mFxUphAapd5kgea7z6KOMXKhBOYttKnALZbtCLmpQOgUwdnzz_18g_3_ygXFynfiGvbNT3_9_1UExYEFixuFNbj4WhJVRxDW2ai419ub6LgjpEB1nAoPMjOSt2cVnRcatc5BVFKNEQWmGeE-1z9Uqp9tvxbp_MdrHV71uZT8HiJKVyvzAK0iUrHl-bHQu1D-4JEaJr-TBaOJ2gjRj4GaLWg?width=660&height=371&cropmode=none)
-
-隔離島根縣產牛嘅**まつなが牛すき焼き**  
-松永牛嘅味同擒晚[大山牛](https://www.hidie.net/2020/01/day1.html)嘅味都幾唔同喎  
-
-![](https://ynmwcq.ch.files.1drv.com/y4mlbegr37C8OyjSz_NZPcIXaU4nOwUxulrslwOu2TgPOrPH8g1d2ecp1yobtVkTTPxvY1TPTvtkYnkrSKxUnRNSLITOuCEk1cgdlL1os_Hq16P6EdEj53w_n4lIuBh3EC6u5SSQb-aQnqZb1qZ280qK4AD9ly89eKW6ui5xRUlsJP5xGB3pcJFdgiVxaGIR56pPZKGxuBE47q7YDlGnnCWqw?width=660&height=371&cropmode=none)
-
-鍾意食長芋，試吓呢隻山陰產新品種**ねばりっこ**  
-黏黏咁滑滑身食得狼狽卻好過癮  
-
-![](https://ynmycq.ch.files.1drv.com/y4m_DvRy-h8TEtYTbatnBnAZt3hXhRZzypHRMn46a-f29esp2i8MChJM1h3-EN-a96EvtvwXskeTciG0VUDdU5qbj_qKtcoUve7yzfnUMLcpte-jqSmnsMGRE061uKNFg7udSz3mtW90tgNrUlu-qpVrnynGXK_-E-0FR0jD0wX01USydOdlQe8yueXG8oxN-ML4xMe0cjgscqdT6OCEQy6-Q?width=660&height=371&cropmode=none)
-
+又係搵食時間，响大街行咗一round之後揀呢間[三代目網元 魚鮮水産 米子駅前店](https://hidie.net/tottori2l/)  
 晏晝食唔到松葉蟹唔緊要  
 **松葉ガニ 1杯 焼き**  
 唔係非常大隻，以居酒屋嘅咩都食食食嘅話  
 呢個size都唔錯吖～  
 
-![](https://ynmacq.ch.files.1drv.com/y4mb_7K9HmvgMaWQQwzaa7Zek3Zrje5kZNZwuSQD9-6n5sdGY0vi3i8YtuOIu4WCezlaxn3MyxWcMbZZt4xe9svK3aH0O6sJ9JCyBfTLvfP4dERCDYLO0ZACmuUFmjlnde8o0z-rbw8DQNhGK--E5SHMd_Z7fv9h5GuhFJ3cXfWve98gBoWdHPNRfh4ZulbUMJoEf1G9EmVtMhOqsQhi57mNw?width=371&height=660&cropmode=none)
+![](/images/tottori2l6.jpg)
 
 **初恋レモンサワー**  
 「初戀呀 我要初戀呀」  
-哈哈哈又幾好飲喎  
 
 ![](https://y3mucq.ch.files.1drv.com/y4mtijcMTCeD2qzh9TlNVxpaN8Ae07I8HLqJ19f-FQ0W4pN6s6eYIl4sszxOWHw9h-HE--DN_rcMmJoEbmER09GQlUBksbN4n8aaW7SxrcTSV7LGJUa_6c4hieKhjfDg1rBxO7pOiVp-QTLLARYeSu-XJvnb82pEetqvYtd4CBKj-zanq7X4eLZUYBCfpng_tOqOWFWyCa0pQSsf301VvZlYA?width=660&height=371&cropmode=none)
 

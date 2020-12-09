@@ -32,33 +32,17 @@ tags : [travel-日本-鳥取]
 因為兩度都係响境港市嘅竹内団地所以睇錯  
 好啦，慢慢食飽飽去搭JR出發啦 yeah  
 
-![](https://yxn5qa.ch.files.1drv.com/y4mkdwxstOdu4sq-tg4PNNK-9S_-5rBn3m4BDBFra--ixu7ch9RTJgxJM7AoBbwrNK8I-PxfFWqTr0RAjD64TuUUNow80F8-NIbjn4xGLgx4UR2CDIj8gVKzrkIZKCGf4dcRkdi3jZzaseRRdg0rbARQtwD3frvw79-AjyBqdoKKQH-5KseUJhC4GZ6wgMBGYP_0E4tV9vgQtv41V6IObWGkQ?width=660&height=371&cropmode=none)
+![](/images/tottori2c1.jpg)
 
 遠遠望到大山  
 
-![](https://yxnpqa.ch.files.1drv.com/y4mHrDIA-JQLg2xGcdUK6QDU28pSe6fWGjJSB-miauoXyLWvDux7ttrv-4WCTGKApnMW8eklTNZmrveZS1nyJTXNH0nFKYGBrntXCwr-pYcTg1keiN35BKvazdvLP6WmltTkFUi02dE_KSXAXxhnKtrFko5i42OTVWeUa9AKSHWfUIOi5DbBnCZzwpLFXfw74vFO0TIBSajM59T2KfSCuB4MA?width=660&height=371&cropmode=none)
+![](/images/tottori2c.jpg)
 
-今程係搭**ねこ娘列車**  
-
-![](https://yxn8qa.ch.files.1drv.com/y4mrVoFMx4Os7oXnKDQ7Hv_QdgI9yp5S8UL_5v6Wki4cc3x2vXCFIzjCGbIL3PHqCoQ0DjiCXNz5fFT4nczYJae1_PMnlSpdeNPOaYwdoVkaIzIQdj4LleWqTZgEnIDz-1gYOUI4hnZRQO0J4opnt4M_OCQJQ5tE62bd-CWS22R9fr2Otskx3bDlVHv8MWpwVJkL4KCm9GGm0lNkLA4L-EcKA?width=660&height=371&cropmode=none)
-
-紅色車身有住大大隻鬼太郎、爸爸同貓女  
-
-![](https://yxn9qa.ch.files.1drv.com/y4mAm8Gks1J5Ua8yntA2Df7QDKS9yOiGxR87FgIFHoEyaTjY26166fHOG1w3SICjlN-AkrXrp-8W2eACdPBXOhsRb6HCOE1yutFUk6VgwkFHZ8MIR2LeKXsfObMqupZrENercPP0n8kGkY67tH-wu4RHcSDMhNTeDLBDYusSi3Ti-Xnq34__ACZDRHHEh5Fm3j9qOjo9o9js1iizGcOSKBugw?width=371&height=660&cropmode=none)
-
-當然車廂裡面都有啦  
-
-![](https://yxn6qa.ch.files.1drv.com/y4mvKCTEzdpeCTsgOCcn7kTovZDV-X7Al6PxRR6-62tH5cU5vIyKvuk9m-DD4V88xwMnBDftDHQZUB_SDIZn4VTQRFo_kTPlr2GwAxeA46hGgdolVZVvzfP6Bq3QRKivIWI60WV9lh2Dg_WwmyE9AwElniJHRM8G-bVgZcJ0OTjng8CyeW_b880qpqGPghpzEiXPvQ8GEGNQQAwXgw0KvNXnA?width=660&height=371&cropmode=none)
-
-抬頭响天花都係大大隻  
-
-![](https://yxn7qa.ch.files.1drv.com/y4mMQbsmrieEqgysNhkvbHqy6eQn73Wv_9o1NovlmbNX7v4DNp4rYh-_STcN3VTxwARUOcn5_nPcJnPV2GngdcpIY1s5kmqcOTTbFB-AJ_iJui_qr3Tm9qSqG37R23UR9wWP_hN3DrIGuOO7fhU7XSx5eZPCa_rHB_urG9ddZIkzX246UtwtN2TGDJg_LjA64s9kOz7HACow1K31AdO5okxag?width=660&height=371&cropmode=none)
-
-唔少得凳上面㗎啦  
+今程係搭[ねこ娘列車](https://hidie.net/tottori2c/)  
 
 ![](https://ynoaqa.ch.files.1drv.com/y4mFlGwV2I0rMkSgfNnXbG20OXNYpPehdd4At1GhJ8Uua1iMGVQKAmwBE83C9CdePCU49lytbMUtQ8TpN5w1f4gtuQJ7P9Gd_Vt4hUOb3fUgO9q0mVid5L61sgQ9O6Ra_snvY-SkKeGt3YHcewsU3POKQ0gIB5J6EYuXMu9qABVEU9ILd5zNOHO7FqmaX0c8JJKvX-ZTrqSPI8CaG2rGvwOzA?width=660&height=371&cropmode=none)
 
-**高松町駅／「すねこすり」駅**  
+[高松町駅／「すねこすり」駅](https://hidie.net/tottori2d/)  
 未變身時候圓碌碌好得意  
 變咗做厄運のすねこすり就惡惡咁喇～  
 

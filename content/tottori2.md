@@ -9,11 +9,10 @@ tags : [travel-日本-鳥取]
 話說酒店嘅welcome drink係自己响雪櫃度揀  
 擒日冇飲今朝又渴渴哋就睇吓有咩好飲  
 
-![](https://0hn8qa.ch.files.1drv.com/y4m4MO0uyv5qdxcfgFcOHYedzQYIbghVtVtGCLG6X2dxeaK_E4pdklGZU4xSnpQGhzbZBTk-LvK8ANEgw6nHUYZxCQriKUd-F4sW1-UD71AZ6sa-J6H4k-p96yKs3jM4mc8lU94d1qTVKWZsBIVs4LYZnbjgG2wY-CAuBLGYG8_8EGa9edzX3umHcgdbeNdikTlY9HOkRecDGaAa0yJe9zmFw?width=371&height=660&cropmode=none)
+![](/images/tottori2a.jpg)
 
-**鳥取産 二十世紀梨 チューハイ**  
+[鳥取産 二十世紀梨 チューハイ](https://hidie.net/tottori2a/)  
 4%酒精啫朝早空肚飲都OK  
-個梨味好清新，甜甜哋咁又幾好飲喎～  
 
 ![](https://0hnqqa.ch.files.1drv.com/y4muNe2Ma_tinhCpb64EqLp5s_QF9gd-6M2zT9jaORovXZLuD65ooisk9QxXBdw0Namkfe-Wh0EAanjSCnVkqpkA-ZunUYJ5x0SzNkjKUdCqXKwMTDSqycfKNyHMqdKViQvrPT80KoOOw4QXNPG8sj_ACEaFHCOcItU-L31pLMVYrAfcgbU4is2_Q7C3n36t5aBbmMN3ZoK0YT_1diuWfxwgA?width=660&height=371&cropmode=none)
 

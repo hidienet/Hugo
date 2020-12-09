@@ -27,11 +27,11 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 ![](/images/tottori1.jpg)
 
 所以就慢慢拖行李去搭**JR**  
-（米子空港駅／「べとべとさん」駅 → **米子駅／「ねずみ男」駅**）  
+（[米子空港駅／「べとべとさん」駅](https://hidie.net/tottori1b/) → **米子駅／「ねずみ男」駅**）  
 
 ![](https://z3mqqw.ch.files.1drv.com/y4mnnHanmQEEWkSWhAiReVJYvHaYdsp87SBZolXCED7hhXPAQlym76qMaxx1Hk2nbSdZs74T7yIn7tl1CynQgqSy7mSfZcP2AXDwnbAIevCgBoL1Ns1SWcXRK5rolAlsy7lfotvdEPgocdSlv2juxbtDAE3cBZbUbCm5B3xs5JMVRZfQKwo2KcDjxsKG8IjDfmHe00Y3_umfvUz8E9vxDw8yA?width=660&height=371&cropmode=none)
 
-哈哈哈！一上已經係**鬼太郎列車**  
+哈哈哈！一上已經係[鬼太郎列車](https://hidie.net/tottori1c/)  
 抬頭望天花都係鬼太郎同目玉親父  
 
 ![](https://yxmlqw.ch.files.1drv.com/y4m3DvX3jGt101PY5uQlReT3An8hhXrSMcv6MZIbxbiyT0NbEGo4jT4fRQquOwKACR5svaM-aNOm6zDFjkbdmvYxgzcqBK-aPJXY3HaToIjoZ3liruFc0iI5PyKy1n--6ouCF0YUIEsThe6YsqzUPSrrXXeZi3MOVrpmmf6d8g4wkNdYA4rGe4LHTGarh9NhZFVEEZDARake9sAnsk9xs54FQ?width=660&height=371&cropmode=none)
@@ -50,9 +50,9 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 呢程係兩卡車，另一卡係**目玉おやじ列車**  
 
-![](https://ynmmqw.ch.files.1drv.com/y4m-kKmSlKxcQTxCNAbb1dwIerZyzGThQ0lZ6Ki1w3RIV56y7JfD2W4xHnejEIDfZ3TXHHC-nPoCktCnQ0gcCIcYfwAf4AqwJok1xv7jQjQ_uwlAoajJT4GKiuyPA37ozfwZ2dKEPZoo1sw2Ct_hMWdiGUouyjUGA_QbJoABPUNFTz-Pk743aanBJ5HvfMpMiE6oFx4dsGkCt1ptRQNRLqsfw?width=660&height=371&cropmode=none)
+![](/images/tottori1d.jpg)
 
-**米子駅／「ねずみ男」駅**  
+[米子駅／「ねずみ男」駅](https://hidie.net/tottori1d/)  
 
 ![](https://y3mkqw.ch.files.1drv.com/y4mqqZ8Wwvv0nRikYHwd-Se8SZXNBuimXXZni8k3t0Pwld8Rn0I5vxN3IrlUWqmgWXZPLt8hQeGx7ypXZs5c8CkJF_cMLdMIYPLz8uPVG8ysvA1asIRzu8sJLdgYgoJvbhvVovyLlRW20JF5admf0N222-zlVb0pyBEUZkmDqcqvXMdy-GdyBIzMSO6A07zgiOzOgZT5qlZCvfjIu17mNVgww?width=660&height=371&cropmode=none)
 
@@ -70,18 +70,18 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 先告別呢個0號月台，去酒店check in  
 
-![](https://zhmpqw.ch.files.1drv.com/y4moDK-5lGK8Cf_iyrz2gE24xoRYJv6_25CW_GtDTyiGm5NfCqHtaxVLyjkF7T7FOqKAyISeuCHozT-lUlS0zulztt78M727S9y5DGDxQcAkORKzqJj5pSGjtfdQjBul_3XBf3nmfhbhDsFh4lrxplplvFweFouXwZYm6v6acwKCjJYofrREW44QTjBkjNor9YuL2W4EUeFnUPYL6Ulkd322w?width=660&height=371&cropmode=none)
+![](/images/tottori1e1.jpg)
 
 然後就行去搵食  
 
-![](https://xxmiqw.ch.files.1drv.com/y4mJVudWM1oZiu3y9AnJMBuNrrtnCuGUFYcg_v2aU1oTEKOzXPgLmGmtMiWsbNtZUhHLT0Tavcbhkhr6h2fldcOqrU_8FtwSdiIrb1qORBHZYpFGxc-ZI2I1d7QULZC-IjX9MZgy3hRdKHzWUSJIIFaNxMTv4Pb89ioKr1u6ycTb4dfKNLqF6Xbpa6zcRRBy-LyQICq7XNrxrWaFCgtPGjl0A?width=660&height=371&cropmode=none)
+![](/images/tottori1e.jpg)
 
-話說呢條係午後六時嘅商店街  
+話說呢條係午後六時嘅[商店街](https://hidie.net/tottori1e/)  
 荒蕪到一個點...  
 
 ![](https://xxmkqw.ch.files.1drv.com/y4m6iSZkIYE7aZJPHmraw5O3XBpynLeeyUWQBkx7lcG3DqhYuAzR0IAus1DZp3532gjnbOKWpPnNRlonIZt9YrUtPqRP6TIGh4TeTt5CkPxAMPh0Jn8On0XAq4IT4I8sDFCGTAb8TJoU7_GGmFWui56cUpWgjBSlR8PUtqDF936eaQmqDszY7IrHeGOT2HuCYTZAJOg5nnD1xoB2sJowRjbiA?width=660&height=371&cropmode=none)
 
-終於嚟到**大山黒牛処 強小亭**  
+終於嚟到[大山黒牛処 強小亭](https://hidie.net/tottori1f/)  
 
 ![](https://xxmmqw.ch.files.1drv.com/y4mZUtOqs6sCZNirWHR6F3YQPkeiUOWi696XunD1RnpNjQ4CVKoHTlPYDSP2Iji4PX0QnHHchPwgwwz7R3fSLIc8sBJD4FqYVZLhHHphfjBXtodIA87R5FrL-tLVeDwmndPApZscHOoKar3ms3T6HBUL_dIIZJwZt4ZFsgxV8WQkrJPqJ2LyznIvT0TvNAZRKjP47XPLKuera1AyuazTgXYMQ?width=660&height=371&cropmode=none)
 
@@ -108,7 +108,7 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 燒呀燒，再加咗個內臟盤
 
-![](https://zxn7qa.ch.files.1drv.com/y4mwQPhjQkHgxvEgKKEuOa9SwLo6jxMK_T-QemTxu5e8YZZmpMFP0QCMr8ncWWEYFkGRRvHiZLD4FF8dea1q7SVWGkeshNYh7n2d-oNkxEv2XgOb6vB675tiaQagy8tkcA0jyem2PyAwkI5d-XOlCWBzsnVGl144dx3S6nK1Mq3myXXBBQ611k0Wl9xIspky0J2-ZYPFOn4jSnAvXHO0hPh2Q?width=660&height=371&cropmode=none)
+![](/images/tottori1f.jpg)
 
 本日の希少部位四種（邊打字邊流口水）
 
@@ -122,18 +122,11 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 好飽呀黐線！！！
 
-![](https://0hn6qa.ch.files.1drv.com/y4meEhV0K8fpfgvvWNfBWYzSV1sH5xTG7ynjhQ9wnojO99-cAlzq-SIgRdOqq_wFfOFh2-0U6EIf1bjDUfyA12C54uciYQba5FP1-JSPUW0wOw512whAXtmBjs5qCED8MCie6zZC3lL3USLCla1C3_0ZJJvduDWSzCjDTgHRaPBCs7XbrkkfTPo7Shx_LvT0ySIJGVjwuQDDYuQ8K1a_-wu-g?width=660&height=371&cropmode=none)
+![](/images/tottori1h.jpg)
 
-飽還飽，都係想食雪糕冰品  
+飽還飽，都係想食[雪糕 & 冰](https://hidie.net/tottori1h/)  
 有**Glicoアイスの実 いちご**，仲係mini sele迷你版  
 好似飲緊新鮮沙冰咁清新  
-
-![](https://0hn9qa.ch.files.1drv.com/y4mtsKdFktUzY5Y1nAxZh_eSdKf2RFIzIgihfK7iVTI-AfV1_GGp-CBWMttWdF1hCRPf3d72IcBJBJBKn2Zoq54a32LMCo53XYPbE6Uf6uoglYNqWdw6P6ND6btUhjNJZG-ZehP_eu7Z8gwQB5bUx4aEPA1znEyKPw-q-DOHfkXh6UmWf5pXeMq-yKIbk4pag2SHd3oSJaPXPTFo7SjnFgBHQ?width=660&height=371&cropmode=none)
-
-既然食咗包半份量嘅即係可以再擺嘢落肚  
-**明治 エッセル スーパーカップ レアチーズケーキ**  
-lemon cheesecake個檸檬味同cream cheese味都幾出  
-再加埋有粒粒餅碎係有啲似放咗入冰格嘅cheesecake喎～  
   
   
 好！食飽瞓 Zzz...  

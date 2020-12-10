@@ -24,7 +24,7 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 
 巴士係2-3倍JR嘅價格...  
 
-![](/images/tottori1.jpg)
+![](/images/tottori1b.jpg)
 
 所以就慢慢拖行李去搭**JR**  
 （[米子空港駅／「べとべとさん」駅](https://hidie.net/tottori1b/) → **米子駅／「ねずみ男」駅**）  

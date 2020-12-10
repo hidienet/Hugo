@@ -54,11 +54,7 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 
 ![](/images/tottori1d11.jpg)
 
-先告別呢個0號月台
-
-![](/images/tottori1d12.jpg)
-
-去咗酒店check in先...
-
-
+先告別呢個0號月台，去咗酒店check in...  
+  
+  
 {{<tottori>}}  

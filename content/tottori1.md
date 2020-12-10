@@ -29,24 +29,20 @@ tags : [lifestyle - 逃離852, travel-日本-鳥取]
 所以就慢慢拖行李去搭**JR**  
 （[米子空港駅／「べとべとさん」駅](https://hidie.net/tottori1b/) → **米子駅／「ねずみ男」駅**）  
 
-![](https://z3mqqw.ch.files.1drv.com/y4mnnHanmQEEWkSWhAiReVJYvHaYdsp87SBZolXCED7hhXPAQlym76qMaxx1Hk2nbSdZs74T7yIn7tl1CynQgqSy7mSfZcP2AXDwnbAIevCgBoL1Ns1SWcXRK5rolAlsy7lfotvdEPgocdSlv2juxbtDAE3cBZbUbCm5B3xs5JMVRZfQKwo2KcDjxsKG8IjDfmHe00Y3_umfvUz8E9vxDw8yA?width=660&height=371&cropmode=none)
+![](/images/tottori1c6.jpg)
 
 哈哈哈！一上已經係[鬼太郎列車](https://hidie.net/tottori1c/)  
 抬頭望天花都係鬼太郎同目玉親父  
 
-![](https://yxmlqw.ch.files.1drv.com/y4m3DvX3jGt101PY5uQlReT3An8hhXrSMcv6MZIbxbiyT0NbEGo4jT4fRQquOwKACR5svaM-aNOm6zDFjkbdmvYxgzcqBK-aPJXY3HaToIjoZ3liruFc0iI5PyKy1n--6ouCF0YUIEsThe6YsqzUPSrrXXeZi3MOVrpmmf6d8g4wkNdYA4rGe4LHTGarh9NhZFVEEZDARake9sAnsk9xs54FQ?width=660&height=371&cropmode=none)
+![](/images/tottori1c9.jpg)
 
 啲凳都係鬼太郎同爸爸  
 
-![](https://ynmiqw.ch.files.1drv.com/y4mscGIE_jk5hUVUBKsJerN3pJk2AcprgrBBXCexV7kzVoVokZfufA94ZDviZpcrZOWugTPmd1CXpFKhZ95iVQ-G8ZYDPBl2Di6ENSpCbLY3zp0B9TTABISYWLGyo53Dd0x6GcS0muN__qaP-ncgUKf0ZeInLkv49VGliWDO2aE34Q9pm_9qoDgvgojULN0YbH185xqNXEBkNC8l2Xd3lKDnQ?width=660&height=371&cropmode=none)
-
-落車  
-
 ![](/images/tottori1c.jpg)
 
-繼續影影影  
+落車再繼續影影影  
 
-![](https://y3miqw.ch.files.1drv.com/y4mmigKR1EgAOjtCh5b1hn2yIio5gYbcS07P-bN3ej5tcjET2Btl3fqccNu-5yA-kF4IkN2FX81d8UzTS64qwbw7pakMwMFRfBTqa_FzfsV6kDTuDBfT5s0Q5_YdDc2JvLqlENcQmG51wrObiSR0t5ouq1uDzkEeK8UxB3xphtn2F1c3xnQGWU1ajfxykn4yqkcfj3D5w4KP6K8IF4ECAmjxQ?width=660&height=371&cropmode=none)
+![](/images/tottori1c16.jpg)
 
 呢程係兩卡車，另一卡係**目玉おやじ列車**  
 

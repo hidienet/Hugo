@@ -20,9 +20,13 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 
 今程係搭**ねこ娘列車**  
 
-![](/images/tottori2c2.jpg)
+![](/images/tottori2c6.jpg)
 
 紅色車身有住大大隻鬼太郎、爸爸同貓女  
+
+![](/images/tottori2c2.jpg)
+
+呢架車ねこ娘先係主角
 
 ![](/images/tottori2c3.jpg)
 
@@ -32,10 +36,21 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 
 抬頭响天花都係大大隻  
 
+![](/images/tottori2c7.jpg)
+
+對腳好～～～ 長～～～～～  
+
 ![](/images/tottori2c5.jpg)
 
 唔少得凳上面㗎啦  
 
+![](/images/tottori2c8.jpg)
+
+爸爸
+
+![](/images/tottori2c9.jpg)
+
+仲有其他角色㗎！
 
 
 {{<tottori>}}  

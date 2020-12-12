@@ -1,5 +1,5 @@
 ---
-title: '[麻糬] 油麻地的長州糯米滋'
+title: '[mochi] 油麻地的長州糯米滋'
 date: 2015-06-22T16:45:00.000+08:00
 draft: false
 aliases: [ "/2015/06/blog-post_22.html" ]

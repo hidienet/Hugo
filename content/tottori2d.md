@@ -8,6 +8,10 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 
 由**米子**到**高松町**  
 
+![](/images/tottori2d0.jpg)
+
+落車！  
+
 ![](/images/tottori2d.jpg)
 
 **高松町駅／「すねこすり」駅**  

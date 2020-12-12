@@ -46,7 +46,7 @@ tags : [travel-日本-鳥取]
 未變身時候圓碌碌好得意  
 變咗做厄運のすねこすり就惡惡咁喇～  
 
-![](https://ynnqqa.ch.files.1drv.com/y4mfTyZScth_FZVPvCbzB5M2oUmu09RLwsR5Yk7F6ezodx4l44bwpi_BFiwPmiFQ9ocxDAl7EgPPnOA_Ek-WUr17U7-1Cy5u-diMC5ByLsjKPhSadXvLP5QYVzE_COPtLWJmlm0ki3aVxPkgjAJknhjLKCxutFq0E-dSFxmJQmn1V_6aYMSPRssudeFtF2ua2KB86dyuOU5QGU8cAHFjGpg9g?width=660&height=371&cropmode=none)
+![](/images/tottori2c8.jpg)
 
 同爸爸say byebye先  
 

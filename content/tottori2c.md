@@ -50,7 +50,7 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 
 ![](/images/tottori2c9.jpg)
 
-仲有其他角色㗎！
+仲有其他角色呢！  
 
 
 {{<tottori>}}  

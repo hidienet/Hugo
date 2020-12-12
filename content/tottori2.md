@@ -54,16 +54,16 @@ tags : [travel-日本-鳥取]
 
 荒蕪嘅高松町駅  
 
-![](https://y3npqa.ch.files.1drv.com/y4mQTxf8iywW3WNW3YorARNiviikUkF7J6IYJiaO7gWhZtPhfW5x_hL2GYlra05i3pPGJZNhFlOZ3yTgAnTN1gS_c3Q1aWt5Pci-2WOoq4UUaLVh9Axpw9CjOSvO5j9jFNzT-uEobcxBKyQvOlVHKuxSlNOvwZi_VxwbdDzv_pzVlLGwefMJ701jK3JH4tBI_VRHPwMVQVXrwUOiJ8F-PlSfQ?width=660&height=371&cropmode=none)
+![](/images/tottori2e1.jpg)
 
 能相信嘅只有google map  
 
-![](https://y3n8qa.ch.files.1drv.com/y4mItk8fvK9jpkYwZavM5ZvyWhVXpbbop_r-HzIxcXAbY503CpGsszfxeEuTSiZ79UFA7r7p43Pb5vtovqbu9XOm2kDp2xwWQCAMufL6VqmY6z2kemT45_M5hpTPODTkT3tEXvi--zL2Z4LkQ8E8aftupf8SD1moFg3xEzFun3Kpgh7kWM2G5Dc-Mlnys-VRd3aVxzMyppiV1QM0RTMnSf3CQ?width=660&height=371&cropmode=none)
+![](/images/tottori2e.jpg)
 
 沿路係全露天  
 好在天氣都OK唔會曬  
 
-![](https://y3n9qa.ch.files.1drv.com/y4mOWgtuqU0OUnAG3ULKE3Sj_M1R8nRqFugn2C3Tmda-I6R4xYW5YHb_YMMI6t0dPBMz0_0sTHSVxYF5Wd6iKQOvvj7F1mvbx58ybioXWBRViWN97bhp5m7J_nnT9XDdTsAgdCurKmnr9dGAErHbilI7vYu1xhmmt2_OsiRs4K8Oc25dGXo6bcpBTzbbOAEKojoCcDCal2iKsUI2MpXQYHOKw?width=660&height=371&cropmode=none)
+![](/images/tottori2e2.jpg)
 
 行咗十幾分鐘終於行到[竹内団地](https://hidie.net/tottori2e/)  
 好～～～大～～～間～～超級市場SUPER CENTER PLANT-5 境港店  

@@ -6,7 +6,8 @@ images: ["/images/tottori2k.jpg"]
 tags : [travel-日本-鳥取]
 ---
 
-返到嚟米子空港，不過唔係搭飛機啦～  
+プラント境港店前 → **米子鬼太郎空港**  
+米子鬼太郎空港已經係最近嘅車站  
 
 ![](/images/tottori2k.jpg)
 

@@ -106,7 +106,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori2h2.jpg)
 
-行出嚟先見到呢架百円境港巴士**はまるーぷバス**（！）  
+行出嚟先見到呢架百円境港巴士[はまるーぷバス](https://hidie.net/tottori2h/)（！）  
 係可愛嘅日野・ポンチョ車款（心）   
 
 ![](https://xnnqqa.ch.files.1drv.com/y4mMaIqJp07kOGLeBQghRZFLitDmDVqGVFC7JrK0smTqfZIow1izf9kmaZOBsavAqjkLPps4x_1BHhesycuRkthBrrRwDRD65aKpPHOUS-sppdEDf_eQAq7xl-eoXPtrwnKxQjetyrbot71dogOBMkzPTCzLPldgF6wp8glyKoFRpBRjM0oMjVJEd81--ny8mJ5G70J_gka_stOwavnrCAtuQ?width=660&height=371&cropmode=none)

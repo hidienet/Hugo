@@ -79,30 +79,25 @@ tags : [travel-日本-鳥取]
 左手攬住隻松葉蟹  
 個石像成7.7米高㗎！！！（約90噸重）  
 
-![](https://zhn7qa.ch.files.1drv.com/y4mjAG0gcX359l-ivSsF1606KsSb3atUJBjYX637JToOGkfrtsZmxfuKsB3uWQSrkFQqi8073PRgiQerogvtngMuUiYpLUJ3jJC45ufeSNJpDONNIEeb-_x6JKxcWq-9Ggv43TdqXS5MgiVLx4rTT2BWhphX63CkM3Ba7_HJQYnSVqgGab2XVac7aW4CxT1oQkc0hdyzxLnGtrew8-aSvAGYw?width=660&height=371&cropmode=none)
+![](/images/tottori2f7.jpg)
 
 市場裡面有水木先生嘅手稿  
 
-![](https://zhn5qa.ch.files.1drv.com/y4mcI9e3gyAZ6LTilJDkqa_Q2ZLeeOWvOZtWXXpUg7uUEjf4Iwf5H6E1Cl4pLxuGSrcJYptiW0rntVS9Ic5XG-P70UowJ06rq-aoqtGmUAQyDhNhSfvDGZd70ELAoaO1r2FNSfww8HpiHU_bY9XnQ1GshJFNgFY_TEAJtol3CqvYrFGg2Tzz7RBtCpJ7x6qwb-wW_yGDfDXht0sIpB2WqfvRw?width=660&height=371&cropmode=none)
+![](/images/tottori2f9.jpg)
 
 同一般濕笠笠魚市場唔同  
 呢度係手信館咁啦  
 （所以先睇錯咗真正魚市場嘅境港さかなセンター）  
 
-![](https://y3oaqa.ch.files.1drv.com/y4m8ZpAHqXSg0V2gw__NtpTg9KClQYhBepWzHS87gnzzw68x9GtFvOG20n9a01_S3AFrU-2el16Y4rsoemCdn-viS4TpXtM88x4i3P4cJ2jK6R3LHRvOI07PeaDRx1LDqRSRiJs-xW4WMjxCCDccSJRJ-oFwQTLNeja1X3WSDeb8W2Aw8MH1Y7V5T-_9jpmsoBf2vt1HAYGnOvvayI6jGJkhg?width=660&height=371&cropmode=none)
+![](/images/tottori2f10.jpg)
 
 然而同樣都有活松葉蟹賣  
 哇哇哇仲有**五輝星**呢～  
 
-![](https://y3obqa.ch.files.1drv.com/y4mjAGZq_dML8H6r3w_vkEieKbG7WNmbgdAUw0XRtFS4WcPfCNamIH78L9UgOcEioL67CCkROhPNkAfPkxVMOs3iGQ3xd1G_E2dGUMT7vuqAwGucJy53ulu6kACXkT5JEVR7ZZFRlNdSgGQPkeSu0bbb_CO9CpLSHSOIpyDSJupKXB7y5Q2t8m1UCx4SKIJdflHoRYnzeTJgzHWt4_GxADKvw?width=660&height=371&cropmode=none)
+![](/images/tottori2f11.jpg)
 
 嚟得境港呢個松葉蟹重鎮冇理由唔睇排排蟹  
 好想買但係冇時間食只好放棄啊...  
-
-![](https://xxn4qa.ch.files.1drv.com/y4min8OKgsmzu14ATHeFz2pHZ_vdqCbIgMhOC1d0ksc1vou0bBp2oHN-h3eYRXva4v3Tny3Ve2kUNs5_YxAsRN4UPWX9I1dui_OgGsdf9iIYCjK7KehqKAa18Jexi3TnlgdD9sBFhEildkOSj_FOzVWLTzNf_VI5-y6iTv8KsD9mOMD4t6lEJns6XLgxGCyN_oHsDC6baT0xf1kpTju7yl24A?width=660&height=371&cropmode=none)
-
-而普通紅楚蟹個價格就低好多  
-兩種蟹食落唔同味肉質都唔同啦  
 
 ![](/images/tottori2g.jpg)
 

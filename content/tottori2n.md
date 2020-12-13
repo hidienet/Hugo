@@ -28,7 +28,7 @@ tags : [travel-日本-鳥取, flavor - 螞蟻族]
 ![](/images/tottori2n4.jpg)
  
 **SEVEN & i Premium 金のミルクミアム**  
-即係勁好味嘅[7-11 金のワッフルコーン ミルクバニラ](https://hidie.net/hiroshima3d/)就cone純牛奶版  
+即係勁好味嘅[7-11 金のワッフルコーン ミルクバニラ](https://hidie.net/hiroshima3d/)走脆筒純牛奶版  
 極濃郁嘅牛奶味正到痺～  
   
   

@@ -109,58 +109,54 @@ tags : [travel-日本-鳥取]
 行出嚟先見到呢架百円境港巴士[はまるーぷバス](https://hidie.net/tottori2h/)（！）  
 係可愛嘅日野・ポンチョ車款（心）   
 
-![](https://xnnqqa.ch.files.1drv.com/y4mMaIqJp07kOGLeBQghRZFLitDmDVqGVFC7JrK0smTqfZIow1izf9kmaZOBsavAqjkLPps4x_1BHhesycuRkthBrrRwDRD65aKpPHOUS-sppdEDf_eQAq7xl-eoXPtrwnKxQjetyrbot71dogOBMkzPTCzLPldgF6wp8glyKoFRpBRjM0oMjVJEd81--ny8mJ5G70J_gka_stOwavnrCAtuQ?width=660&height=371&cropmode=none)
+![](/images/tottori2i2.jpg)
 
 然而seria實在太好行  
 行到錯過咗返去對面街大漁市場なかうら隔離間**御食事処弓ヶ浜**食飯 T-T  
 （營業時間1045-1530，我1600先去...）  
 googbyeかにトロ丼同隻七千円原隻松葉蟹  
 兩邊對面街都有迴轉壽司すし若 竹内団地2号店同回転すし大漁丸 境港店之間  
-揀咗**回転すし大漁丸 境港店**  
+揀咗[回転すし大漁丸 境港店](https://hidie.net/tottori2i/)  
 先飲返杯呢度出嘅**生酒**  
 
-![](https://xnobqa.ch.files.1drv.com/y4m0R8H77bqPmGP5Pbxtdz4ayCGsM1vQPFenv9sIp5VMYljpypwMgkOABLeAvh_fKMg5raPt2rFNdCJO6QIZWykqNrzuWpUAHGo7aieGf5PsZaREfdXWfDi0ODDyXkxcN76MA2jFFBk3TfsAO0TDp1Yzvt0L0TAaAw_HnQTM88QGlLWb8ct7skbpeyf1-qCYWoKvc8cTSEiuxm3E1yrvZpe0w?width=660&height=371&cropmode=none)
+![](/images/tottori2i3.jpg)
 
 **紅ずわい棒肉**  
 在地境港產紅楚蟹  
 睇落麻麻食落都OK嘅  
 
-![](https://xnnpqa.ch.files.1drv.com/y4mBFGhXVR9DkQRJTMoX9uPXjRFbLJg6A0ZP25CSZWf73c7QE_uKhK09wUhVQDivCezm0y7_EKwHyORPl_VbK7agoBZGtIuakeaTvjHcoym_psYzC4BP-vVT2tIlASBDR6K1Ph9fsCTEzowTVnB1qW_fImUSQqRE-_ZpD_-EIsQFW7Z5Z8fkNO2jBxy6pIMgQI5dCf1y9GJLKqx6E1PQlWLzA?width=660&height=371&cropmode=none)
-
-**石鯛**... 個油花靚到癲  
-
-![](https://xnoaqa.ch.files.1drv.com/y4mOiqZQJDJ6ONgoPjOuIuyPCmYgXfotz_tqPHRHJLKeMPs5IhbITlKnSMLJXnHgnqUjMcIjVM6PWlXYIqzW17ERXIzjRHQ0jrnBaeesho9BpXTqFqFM_153jO3Y9YfusSFCklpj72_yBAcXY03JE8RPbsmuFbRWVOFA6-u9wkzwdNesMmyzX83GNXNvl9yVQ1LaON2jJx5xENNr2NZdGGaGg?width=660&height=371&cropmode=none)
+![](/images/tottori2i15.jpg)
 
 **紅ずわい軍艦**  
 哎吔，紅楚蟹係OK嘅不過唔夠驚艷啦  
 
-![](https://znmucq.ch.files.1drv.com/y4mGtoLLLiYhCTO6aj6JQuWvFalqLTHy3J8-jph3WpWPIA13H8vVgEEsHgQBlqtVNYdFXXq9jcVdE4W8eY7WNT4WLbca2nd-BU8fBG3U3TrrvYQVizFNIBSVcHUHttpA75eGaMGgxfefWWq8hPTpB8Ya1e_UiBrIImfEmXvBUcqwgjIaDmfmaFmC8skscU1LzvYTe5qZr1M_87mrURapSbs1A?width=660&height=371&cropmode=none)
+![](/images/tottori2i.jpg)
 
 點樣都唔夠**ずわい棒ポーシャオン**咁正呵呵呵  
 
-![](https://zxmbcq.ch.files.1drv.com/y4my18owWDwTK0TYphMFtDX3ZpLe-7D0rxDWq0zAx8-GUT5ZCwpfLzfgluNxoF9Ve2NPsVwMoDzBthmul8NoWk6Mpe4gbFaK63iNJbNgO9JwLURNCzXLSG6sW1Mw4n1REc3ZND0Megrgrna-kZh3mtfQWU-X8Zs2eJJk_wTpsPQSwZLp4SfHRG5fvTlKWXTLVc6f6mda-lwxCp5pDTXOu1zHg?width=660&height=371&cropmode=none)
+![](/images/tottori2i16.jpg)
 
 啖啖肉啖啖肉嘅**本つめ**  
 
-![](https://zxmccq.ch.files.1drv.com/y4m7qpuYCq1H4d25PfNzNN9ounXKk-yqscuBO9nyP1GH6aAWAaXc7AseSjCiFIr5eX2RE5ZwPdXTVNRJ0Xx6r-TXlxMemuxbsMcW18GkNR65MJjSf9sqxM92roTpV89DRgpjJMEPRp6mi08M_6N4ZulfzFwrnAnTlh61iPf01wnf4N13IHIE_CFfZEtvHqJvC6vlheWUnsaGVCxVJdtMADZ0w?width=660&height=371&cropmode=none)
+![](/images/tottori2i17.jpg)
 
 有好多蝦揀堅係眼花繚亂  
 仲响蟹季嘅時間揀蝦  
 要蝦精捨棄一堆蝦確實有啲苦惱  
 揀咗呢隻**車えび**，爽口味漿香蝦味無揀錯  
 
-![](https://znmwcq.ch.files.1drv.com/y4mD0htjrIPbdWg8D9oUEjDpFZw3exrScSz1W2RLqWTiVr9F6-MlPX-BsA-hsR-BIrgsWWNzTwgyXIvoUs5WDslHyCKcUagUWT3NCHNJdDqFKCQG_h0fwU6BmFeZMHtgCW9UWNguJ51l7nwwT0baY9jHNLi4XaXU5RO3faXbTAZULxpzo4qRgxWCcucqak3NdORXqg04qnsZzunVpqkLF0btg?width=660&height=371&cropmode=none)
+![](/images/tottori2i9.jpg)
 
 境港除咗捉蟹仲有吞拿魚  
 但係舊**大トロ**真係非！常！大！舊！！！  
 飯量係standard，舊腩係佢嘅四倍仲勁厚切囉chisin  
 
-![](https://znmvcq.ch.files.1drv.com/y4mVxZgjkXcZpQiTuVrdmHZ9rMZ4GPqOK-yBzAgSLCCWfH6R-RjsuQ28PiPl6Blfded4H7Ntmt_MU43oGPhlRAbDypMw1gYitXRSo0sVlXY9beim02RKc266-As45msXXBuJQaDJ5GT0OWMV3PLIPZ_Y21JYXcZKCtRmsa0F5JvXwKL6lUSO_acjyLO_MzPnLsOTjhDdhCiLCokiVUTFQNh9g?width=660&height=371&cropmode=none)
+![](/images/tottori2i21.jpg)
 
 我愛蟹膏，呢碟**かにみそ**絕對走唔甩  
 最多今次飽唔食海膽囉（反正呢度唔係產海膽嘅地方）  
 
-![](https://znmycq.ch.files.1drv.com/y4mm7dgyhTeoPSS66TzCP0kHgGW2l8MpQwg7KefuH6yhAig2uL1mNe9O8IkxLeKTVnx3lkucbNI6xZOVbXB-Wdxwuhgbyrgpv7OoMCzlaNHVCbp-Vr4pddNjlfSp-AhFnbJMr_IBwDRi43R3FJVJ-83W8rAjl9HhMjCZpD-jilybFGRREZqO_N9koOuUZwgxTs-m_pdk-w0S8TGR77MVnpLzw?width=371&height=660&cropmode=none)
+![](/images/tottori2i22.jpg)
 
 食到一檯碟，夠飽喇～  
 

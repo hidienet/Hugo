@@ -189,30 +189,24 @@ googbyeかにトロ丼同隻七千円原隻松葉蟹
 **初恋レモンサワー**  
 「初戀呀 我要初戀呀」  
 
-![](https://y3mucq.ch.files.1drv.com/y4mtijcMTCeD2qzh9TlNVxpaN8Ae07I8HLqJ19f-FQ0W4pN6s6eYIl4sszxOWHw9h-HE--DN_rcMmJoEbmER09GQlUBksbN4n8aaW7SxrcTSV7LGJUa_6c4hieKhjfDg1rBxO7pOiVp-QTLLARYeSu-XJvnb82pEetqvYtd4CBKj-zanq7X4eLZUYBCfpng_tOqOWFWyCa0pQSsf301VvZlYA?width=660&height=371&cropmode=none)
+![](/images/tottori2m1.jpg)
 
 食飽飽就捧住個肚漫步返酒店  
 
-![](https://y3mtcq.ch.files.1drv.com/y4mxFYmtPslz4RjzWYQmiKDq7E6q9H5GID5o2mds95QmoBGwd3ToFs5TZWlHTk7donTSDQgc98bYW6KuPaIMF3XcLsVXhe_zlB3qHMK4ezZCZgyTUs9NNUseuZwwOfzRmzDPOlJT_TPXDHfgFpE34GQKWJcCqbiWlVTfioWcGEvPGprlTZsAknpdfqPpluYjVJmld8RqeVODb-s5DFE1KEDKA?width=660&height=371&cropmode=none)
+![](/images/tottori2m.jpg)
 
-個樣一啲都唔靚嘅米子駅  
-左邊蚌殼樣係**米っ子合掌像**  
+個樣一啲都唔靚嘅[米子駅](https://hidie.net/tottori2m/)  
 
-![](https://y3mwcq.ch.files.1drv.com/y4mMfZFpxaJDxMYUaWygTC8n6tlG0k_KR7QQaz9CKwKVOn1S0Gs0KfmUaNDhad8YJmszavf3FD-Nh0aK6VyOgtUae4Jeo0PoYP5w2niZquwLcNMaZWeBiBwR8T88ZH_fd_twjOJFDQsziDUZqLz8Vf320J3xoM_qowHKjgQ1YAztKU2ZyLD1QkQbmFLKjbiTol03gD27NpP9s3PPyp25KIghw?width=660&height=371&cropmode=none)
-
-然而呢度係**山陰鉄道発祥之地**（@1902年 明治35年）  
-展示咗C57型蒸汽火車車轆啊！  
-
-![](https://y3mxcq.ch.files.1drv.com/y4m-oNe-qOII0dVYqZBQzbJncW_iXI9JNq9pOUnphupQkL1pX4brxU9UwKDR1eLEoFJIshsbpshj8fVTHXCtqfJeyMcPmXn0M5TMUFbI4RMfZnCF2PuX6QJToxNvgB8ZIo5eitgEoKj3wpkTBkUbNr9stO1k63L-u1ncZWhyHZ1ZTk1EZHKC_sbyVadi9kdPnon3XDPJN8130wej5G0unpw2Q?width=660&height=371&cropmode=none)
+![](/images/tottori2m4.jpg)
 
 諗住閒逛吓車站  
 忽然醒起未拎JR Pass  
 可惜綠色窗口已經closed  
 即係聽朝要早少少check out落樓搞哈哈哈  
 
-![](https://y3mzcq.ch.files.1drv.com/y4mowdvFebGrBwtJiCPnBBijTWHhfy6Owap-xhhX0KVJ83Fpjc2za20Nta598X30vczRL4wozHwrzOQBWWacGX96ZIsy7iE7iIz3W6QvwDRoNKDkiNS_YUj3zdiwV2ZN08bYWFwuK4OLnGq-ThlJHunGUP93pfAh4iqi9y4B0VMl0903MzC1wGNMOlmpd2h2ExhTeHIW9C4nIyL7jthS22sHw?width=660&height=371&cropmode=none)
+![](/images/tottori2n1.jpg)
 
-咁好啦，响七仔兜個圈買條雪條返酒店吔  
+咁好啦，响七仔兜個圈買條[雪條](https://hidie.net/tottori2n/)返酒店吔  
 超！好！食！嘅 **SEVEN & i Premium チーズスティック**  
 非常好味絕對強烈推介！！！  
   

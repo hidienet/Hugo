@@ -85,7 +85,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori2f16.jpg)
 
-哎吔吔，原來有呢隻[はまるーぷバス](https://hidie.net/tottori2/)巴士！  
+哎吔吔，原來有呢隻[はまるーぷバス](https://hidie.net/tottori2h/)巴士！  
 早知唔駛膽戰心驚咁行過嚟啦～  
   
 不過望一望個時間咁鬼疏  

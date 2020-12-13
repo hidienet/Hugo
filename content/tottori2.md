@@ -166,10 +166,7 @@ googbyeかにトロ丼同隻七千円原隻松葉蟹
 差唔多時間就出返站[等車](https://hidie.net/tottori2j/)  
   
 プラント境港店前 → **米子鬼太郎空港**  
-
-![](https://z3mbcq.ch.files.1drv.com/y4mD-3MrIgIL55wE8xzSJL9K9JHob411WW9caOtkkpKrbuHunMrj3H6iGly5rtfu_be2Wj7cU8p-_G7m0Cb0mkhDsPV2l3OfxHrytcfKpl6dpvfBHv1DPfDzJEjl1fEkX4VDkzGYN2aDWvptkZw467bLtPfSOCEFNZugE2tomqVCV1p7eP9tbW5jhYcqR4jpnTmJ6cTzz8zUeNxqucYlhwP5w?width=660&height=371&cropmode=none)
-
-米子鬼太郎空港已經係最近嘅車站  
+（米子鬼太郎空港已經係最近嘅車站）  
 
 ![](/images/tottori2k.jpg)
 

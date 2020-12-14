@@ -3,7 +3,7 @@ title: '[ドキドキ鳥取] Day3：米屋 吾左衛門鮓 鯖'
 date: 2020-12-19T12:30:00.000+08:00
 draft: false
 images: ["/images/tottori3g.jpg"]
-tags : [travel-日本-鳥取, flavor - ]
+tags : [travel-日本-鳥取, flavor - 行膳積腹]
 ---
 
 齋飲牛奶又點夠飽呢？  

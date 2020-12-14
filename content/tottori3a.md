@@ -17,43 +17,29 @@ tags : [travel-日本-鳥取]
 然後自行用個膠套套住就算  
 冇咗有火車樣嘅紙本喇（淚）  
 
-![](https://zhmccq.ch.files.1drv.com/y4m4P8EOBI2U5FUxQYHBIz9KgzS3KWq4DolaBKscIn_lBPJ_bJAfzCIfZflk_bJc7RBHu-h5Mr5FjzrFsvLSub-FFSmWDNnOHc5lAUldZMWKjTZAkBIs1yoLKR1Zjq-dLvdG9LPxSJ6HbMZ93ZmP5PWFPAH8l5lMjH42DafDJ4ZCvCKkLFt_Cy-2xs6SzoZO4y0ASe4EMhBdjnaZ_AvmQk1JA?width=660&height=371&cropmode=none)
+![](/images/tottori3e.jpg)
 
-**名探偵コナンイラスト列車リニューアル**  
+[名探偵コナンイラスト列車リニューアル](https://hidie.net/tottori3e/)  
 去搵柯南當然要搭柯南列車（米子駅 → **由良駅**）  
+紅色係**新一＆蘭車両**  
 
-![](https://xxmucq.ch.files.1drv.com/y4miyh2jnk_oTgTakNz0rCB6OqKzuXIvbsCd4Ezi7lm_BjbekT8j_Pboh___mMO0YBKy5RTZfOoV61onGqZxGrkHL92qAV8lXfUyVfKsUBxlKhKYtPLabcqLHTW_hwCp7u-BEwaqJxf9B29mnEU3buubporhyBrlT6jO7oxLzU1e_hiJaFCO4Vwin47Pb_EpMtoF91XzUOQByuuBGqMmwKnlQ?width=660&height=371&cropmode=none)
-
-紅色，**新一＆蘭車両**  
-
-![](https://zhmbcq.ch.files.1drv.com/y4mOZ3KVvWBvpuzlcImaMWqFjV-wOWiRnAoY_iSkHVo5O4bYJgtm5suZPi1XLIkFyhYgbZUKHgbMbh1NDBkU3hOAfSUQA7EWp_ZpGB6HINXAdaX-I4GL35Ut5oKLNRub6g2zoFfxQDR8gyc3NXHPAB7U-VGADKmSTrT3m4fE74S_qzy-hHp0eqmIy-a8WE7zWukABu4z1ahosRuY-sAMgMHPQ?width=660&height=371&cropmode=none)
-
-呢列列車由兩節車卡組成  
-
-![](https://zhmacq.ch.files.1drv.com/y4meXAhpkU_ERM5aMRM-IZMbTPlZwbpMJ8WU5jUMm9kJjKnQ1-aU4uAxEYI1Bn5MiKa4A6UeOkLpjvK4RyBevGd2Q5lIf0qYmqTkYhL5uyZZBYEVp03O2tz-2yXxNzaRAKge_ZKu2uint5TZBu7NRwTrODMydul8mqTXnOBzdh4oEITYH6ZOkSym0xGk0gzSZjd783lO5UpkQO25lWSMjeWNA?width=660&height=371&cropmode=none)
-
-另一卡係藍色車身  
-
-![](https://zhmxcq.ch.files.1drv.com/y4mMQlJNvnk_bHJkib18MKrusaKQ4adEk_QNhURWYOKQmUuCSfETC-kJPmsn_eNVISqo3Yyppy6sr5GMHrD-bSsSGUKWw-yrhZdsMNkrpGQ7JwJBomsy3YUN-QpsAYW_FUy9pBAJpGzMApcZALL4Xm4_YRIiNs3_JCTrM9GLpMVNf6ZcCJg9L8tlT8SgMP8PFbMpFDsHQBpxRvi2TrtDrtlsg?width=660&height=371&cropmode=none)
+![](/images/tottori3e4.jpg)
 
 **コナン＆怪盗キッド車両**  
+呢列列車由兩節車卡組成  
+另一卡係藍色車身  
 
-![](https://zhmycq.ch.files.1drv.com/y4mbQ1RMQORg2ycR9rnOKIAeZwTJCaMB5wXq5hSoSZWVy25L0pSKHkT2ca7EzQzz6fC_6uNOH7xdejxaI397D0Pmkbxpvmy00RVpIM-Wl02oXBvP2GrvCxSoJD9FmWlumG_ELIaecEZN1Zux2bFBaifTyCndTTH81Jvae9o_s_SLs24fHGr_BPIQDho6DmtQgaWEgGANg3EGJV1oZkxQ0Tb8w?width=660&height=371&cropmode=none)
+![](/images/tottori3f.jpg)
 
-除咗洗手間外牆  
-車廂裡面就冇特別柯南裝飾喇  
+暫別大山，先飲返盒[大山白バラ牛乳](https://hidie.net/tottori3f/)   
 
-![](https://xxmwcq.ch.files.1drv.com/y4mFx69zs6ZMx7PG99IT-oTikcI2YvBjfoLUTbQkwLPPcqnh6c_bcWYrCmVF2bNfG95tbDCJvp2RpFgpMOKf3RetDvYItPtmxrmKUb_vduTgl9glqi0v7YdJ-mP8yDXbxzF3AwBufhJBdZbOaXxegjDxcuZi6ClevmO3QKx32W30idsbYlcuFaiR6nEbPNN6moZhwya64rqUnHSfvLih7XaKA?width=660&height=371&cropmode=none)
-
-暫別大山，先飲返盒**大山白バラ牛乳**  
-
-![](https://xxmtcq.ch.files.1drv.com/y4mdrjFASNcgWBNMjD9ZB9JUDAvu1q8_0v-VKU6aJorz7KfPXQiCSdOH0oapMFOFFw2TjsO3IAg9_p219vTmnnCuowrBmIRwtQXiKAG9iQBaZVJiuR2q_bHL2W40BqP71ox3ORyPS3mqj-mkPY2qJlVe1VmgFdpDxUUH4EaustoDH6sqE0iWllm7oydVXRGCQu9XlitUZBT6hde8wW-1FA2vg?width=371&height=660&cropmode=none)
+![](/images/tottori3g1.jpg)
 
 齋飲牛奶又點夠飽呢？  
 
-![](https://xxmycq.ch.files.1drv.com/y4mclDbuakFhznGu6y_6NBGBu3UXMfES6r9amoSr2h4anocNReBYJdJg8rsIuZwgOCPeGJZKMAI0mMnAmIUoO8YBHSYiW6NEnqSCWeg7mCdDykXHqyZazHBEBZ9JTgCJ-D5sKFK221AogD1PA2KGR8VEFv9NVDP8iIMSonCmv1KxIE44QrBZ-frUsvCnQmlseWvzc3ROSPMmhbxih0DiKVs5w?width=660&height=371&cropmode=none)
+![](/images/tottori3g.jpg)
 
-一！整！條！**米屋 吾左衛門鮓 鯖**直接K  
+一！整！條！[米屋 吾左衛門鮓 鯖](https://hidie.net/tottori3g/) 直接K  
 就係要食得豪氣哈哈哈  
 
 ![](https://xxmxcq.ch.files.1drv.com/y4mBF3jlZ70zXgYpv3bdDHREf6wYsVBskzRewTlMFZhFDoc1pno3h-N4LKzBrrHP3iQeOhUnQk7yhswu2vAdqJH0uQapmmhkZSrmWTIHqHJa1CHjtM19ROWgEsGTopoILJDQxOo1hv4i8blCejivI6Y-sMw1Dd5EOr9RCQONnGXsMP-DH6YkYb_1JWgkTD75VJdXOAtSAndq9UwABvKvywvTA?width=660&height=371&cropmode=none)

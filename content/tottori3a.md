@@ -6,12 +6,12 @@ aliases: [ "/2020/01/day31.html" ]
 tags : [travel-日本-鳥取]
 ---
 
-一朝早快快起身梳洗check out就拖喼落樓  
+[一朝早](https://hidie.net/tottori3c/)快快起身梳洗check out就拖喼落樓  
 
-![](https://zhmwcq.ch.files.1drv.com/y4mItZBJqtV54u1C_1cjflbe11MoFAAObEPZ54Q6lF1DDBblrZhmwiBEXbTyOZDu0bH7cQ4YuNDfej1O4x06etHX8nl7f1C2T8g7M94ks4q_ziKiYvsPZdNzIYb80rh33eny83FzhAwj10ixCFtxeM2QBl97ogXZlVMkCaOS3CQjIn6weL2NXVSjJswzLbBEUCrA0aUAZdz_sm93pcTS_22lg?width=660&height=371&cropmode=none)
+![](/images/tottori3d.jpg)
 
-JR Pass GET！  
-同之前响[四国](https://www.hidie.net/2017/08/day3.html)同[北海道](https://www.hidie.net/2017/09/day1_28.html)一樣先上網book  
+[JR Pass](https://hidie.net/tottori3d/) GET！  
+同之前响[四国](https://hidie.net/shikoku3a/)同[北海道](https://hidie.net/hokkaido1a/)一樣先上網book  
 嚟到就去窗口拎pass  
 不過現代化咗齋撳機拎磁咭飛  
 然後自行用個膠套套住就算  

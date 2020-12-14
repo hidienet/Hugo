@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day2：高松町駅／「すねこすり」駅'
+title: '[ドキドキ鳥取] Day2：高松町駅 |「すねこすり」駅'
 date: 2020-12-14T07:30:00.000+08:00
 draft: false
 images: ["/images/tottori2d.jpg"]

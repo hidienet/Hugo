@@ -40,77 +40,65 @@ tags : [travel-日本-鳥取]
 ![](/images/tottori3g.jpg)
 
 一！整！條！[米屋 吾左衛門鮓 鯖](https://hidie.net/tottori3g/) 直接K  
-就係要食得豪氣哈哈哈  
+就係要食得豪氣哈哈哈   
 
-![](https://xxmxcq.ch.files.1drv.com/y4mBF3jlZ70zXgYpv3bdDHREf6wYsVBskzRewTlMFZhFDoc1pno3h-N4LKzBrrHP3iQeOhUnQk7yhswu2vAdqJH0uQapmmhkZSrmWTIHqHJa1CHjtM19ROWgEsGTopoILJDQxOo1hv4i8blCejivI6Y-sMw1Dd5EOr9RCQONnGXsMP-DH6YkYb_1JWgkTD75VJdXOAtSAndq9UwABvKvywvTA?width=660&height=371&cropmode=none)
+![](/images/tottori3h2.jpg)
 
-哎吔吔厚雲㖭...  
-
-![](https://xxmacq.ch.files.1drv.com/y4mvYXxeS5cDNjuxhY45Z2X2_BzC9EFs69p7BUmDUvgVp3ELO08UrCHlto-JP_sj5yUX5jIeXlNb9lXRB250r6YusqYJJqk8WtvlZhMsTRagK_y5ReUBIPpOi8edFStYgWrskIDo4tVI0svogmOV31DwU_4bXm21xMN6ZvD11c_gTo_p3Q7aJgY7BIR18f1SSeS1fyRH2NWVzn_qS8BF7XlzQ?width=660&height=371&cropmode=none)
-
-**由良駅／コナン駅（柯南駅）**  
+[由良駅／コナン駅（柯南駅）](https://hidie.net/tottori3h/)  
 Welcome to CONAN Station～  
 
-![](https://xxmzcq.ch.files.1drv.com/y4m-jalqkL7W2b7eB9UajYF_kW1DL_-chiJxQuCkHs-0xpvHGnZAE7V6lVbJm0LfUqDAjadLUARCh6j8MrDpAxwDiLlKM_tFV0IlsCaCbHmLjvTbpD2MqGdJLeJAb1hITsohULga4JmXEmrDav68DFiiiKoVg_FdkpiweqY5xzRRpK28hrdZFeEg4mDrIgvdVTWa1Q4IMi8U_tyt0Inb1T6PQ?width=371&height=660&cropmode=none)
-
-柯南踩住板衝落嚟歡迎你  
-
-![](https://xnmacq.ch.files.1drv.com/y4m8URxVk7nhireR21epB7GT_otgKida2oxJWdbQ710kdRGROiyb40HD-hRixjmwGdEVYUJtGABqwAv4QvQ6QL_mxq0Iv8-2YaViZK0CKeCbRtBkQKrlQgB85lRpt7r0j72npRb9Y_mI36v7An44nIHHUPYY1_Em-p1iMF3BG-FBfJA99OptuuL--CpT_b8KRNOaDv6W3i87dizcCaPIj2q-w?width=660&height=371&cropmode=none)
+![](/images/tottori3h4.jpg)
 
 出咗閘响個站都係滿滿柯南  
 
-![](https://xnmvcq.ch.files.1drv.com/y4mNxM-dcsUybAXC75iefJX997Sz-PFBtp2KmMyY85lOLEeESvgyt77wyWE34dOS77ttn5Lr2zYp7b-JQ1ziIqSs12JeEwub2nbSY3HxSLb4hpQa2arxtzj9wjIT7HpriBSK6_c0yM_brfHNQeGJONPrjKMPUzEqen7-bnQPr76HT-T6HxPjnwSWgOdjdngCi_1F6d7bpYzi1BG0oY2c6njiQ?width=660&height=371&cropmode=none)
-
-頭頂天花都係柯南柯南  
-
-![](https://xnmxcq.ch.files.1drv.com/y4mWlqu7NcFdOPZTpXW9FUYfs4QFXJo5NgRXEqEuap1fjYARo-MbfbOoyfWcXqSo9t6b_t06xzo24IFhQJX0vXahZrQHenNrpolt3x6_FwIvfKXoYFYKvUrP1cStTj7LmOvF_c10C2b5KUHjV-kRLf3OH2J64LwmN-7yiGoRvsuEcIc3GQpkumakK5Ej4Qhwy7I7xtUp4NSqUy1pS8-NA49kg?width=371&height=660&cropmode=none)
+![](/images/tottori3h7.jpg)
 
 站内有locker，仲係柯南樣  
 不過有啲貴所以先拖行李出咗站先  
 
-![](https://xxmccq.ch.files.1drv.com/y4m3TkyaU32dn4c997w8r6Kkn-6Lr9N0xN-5GBaWFcpRhsAW6a5x5JQygTo-VzN1_LZEdPQQaS-RV4fmltEuql4a0sD17jSIhvTLGyl8tFDMctjKf1ALIHp24D0EPnqq-PNoSaejmI_Ew66nlbC5BlV-fimk51KBD-9J3k-1N52Q461nvSenGQmskGalKgAE_GPH--Ht66BP5tdb7VmEXeUzw?width=660&height=371&cropmode=none)
+![](/images/tottori3h.jpg)
 
 柯南站牌  
 
-![](https://xnmbcq.ch.files.1drv.com/y4mWfpCCfNtllcCiqNKiS_ltLqn9swGPD3VMPtdzbdIe8CJtvk4IjpPL3bUKilyq4r8XGcj42eEHaEhIdg2QqkHPDBsY9cRy0Plpyqrg0Y5Ke8qCsyXIDa4p6LljjKKLCLF5MiRIVbegI7WrQ9n-8eIADd0wO_1kBIyb9k7oVPNlaY0B9TODsNNjlgNiZqwocRe1rsSIMTTGfaiQocKBbBftw?width=371&height=660&cropmode=none)
+![](/images/tottori3h9.jpg)
 
 一出站就俾大大隻柯南指住  
 
-![](https://dnakng.ch.files.1drv.com/y4mqNDwO2IRIOXhw9NUKDMucXyxEjF7VjNDwdkWkV6xEPe95D3RFtHUek09sLXI7rH1DAWLRX0HxXZJ9oA6fqhJKQbeTuwipPvxjy_-aBXZ-U_p8mClnIsVYtd9iNbi01EcXIxsbZQaAE1JwwiUvwc7vclev7QTPWX_ujy6MaZ3--5TGOhMqkthj2-eYau2u7itjfZMk8byJPxZixzXaCCamA?width=660&height=371&cropmode=none)
+![](/images/tottori3i.jpg)
 
 嫌locker貴但係唔會拎住行李周圍走啦  
-嚟由良駅對面嘅**由良タクシー**（由良taxi）  
+嚟由良駅對面嘅[由良タクシー](https://hidie.net/tottori3i/)（由良taxi）  
 就有得平價擺行李（1,000円同400円嘅分別啊！）  
 
-![](https://c3zptq.ch.files.1drv.com/y4mUcgXEbs0663ytZB0IMPjm5LSM-aF5i4t3vVb7LALWMp5iunETG03N_9GcBx9-BxXCvC5kSKgJC8SkqMg5hJcNykORT8vd8Xc54Rt6SgesXisHykihU3OPKjjj_OJif3vC-uwm1YtNP8atgR0rZb4mj9STRk-WcHRRRnHUgv0MlwOxFMoBmpHiI56D8jeCLsGGUFG2iD71L3UUBVDX-Foag?width=660&height=371&cropmode=none)
+![](/images/tottori3i1.jpg)
 
 個行李牌都係柯南嚟㗎！  
 
-![](https://dnahng.ch.files.1drv.com/y4m4T0hddfy8yyyEl1D_X1hTgwRoUMLJjqgWLA1gSjGao0udkKbFiWWMEZcXxeNbRpRb4N1ZUWZQhpPRWUwScyWxd00OCuUVX5Gwy2WBoBKjc_22a-iS87TVUlqPKPTztCOdF5LZedXEQ6pZYaTKqiq_As-Qx7rroIkTe8pdpgWK_wBASrPDyGdvF1tcmeP01NEnXx2Wo7-yJTzs4ABLFKdzw?width=660&height=371&cropmode=none)
+![](/images/tottori3h10.jpg)
 
 兩手揈揈就可以周圍行  
 洗手間牌係柯南同小蘭嘅剪影  
 
-![](https://dnafng.ch.files.1drv.com/y4mlVBIVdN9csCKG9mwMFbHwCvUMG5I5hdOfF_jKI0XpFLN8aSh29zVDTLiwWxXTNVHAjlVmIkfbp3YIB7bljHDuPuqNlcVKpfNkA7Sf0II5UFYziaDMslU8g19N2eoXqCOhauW47qI9YHYNtTnAnuV-RIsBHowJuFYBWaXPX0qCRRkwHeprZtc2NkPRUdqIjJhdG6lvdB7o870xuve7aeqqA?width=660&height=371&cropmode=none)
+![](/images/tottori3h12.jpg)
 
 望吓北栄町有咩玩  
 除咗柯南都仲有其他嘢嘅...  
 
-![](https://dnacng.ch.files.1drv.com/y4mINOwcAkeS87d3MQ5B4CPEIEMVLIrUXPh9F5eK7zAZSMu_cjlRzAPmOvJ4OkvgPzW3vaTnhZLBjJ-U-O9nTvlRZMxtX5zpRepxuTn8KCa-o1Sz5pXRviffK3LSPI86LfYKWj5quRCFrniLITvM7tnT8p_lw7nUpw4C9rcJlcng_pimvMBoT3VzbcfbXM3zhI8fUD9_mZwWz4_WGNRzxZscw?width=371&height=660&cropmode=none)
+![](/images/tottori3h14.jpg)
 
 **今度の難事件も無事解決。「真実はいつもひとつ！」**  
 個柯南青銅像指示行嗰邊喎  
 
 ![](https://d3adng.ch.files.1drv.com/y4mBLY7a6XrUyNvvYMCm_RtqBPmboeRuntyFhChfsuTEjUmDf2A-vm5Oz_Ly58uzTdeHMdLoe58T7yasK8Dv279jiWDVaGCfshOaZSWyuXBiIP4talDk2VRC3scDMqsm01-88lThfLUAPIbyjLI9i8KncZAMo7v5JXeeeu6j3-wzq3dNp_MbDHd4aERuCAtDBA999xgq0QflXHbGTcOnYfqoA?width=371&height=660&cropmode=none)
 
-**北栄町観光案内所**  
+[北栄町観光案内所](https://hidie.net/tottori3j/)  
 出發前先去黐住個站嘅遊客中心  
 
 ![](https://xnmzcq.ch.files.1drv.com/y4mtPYc42OyYYV_QSxc56qF1Jb8OborWoQWW1MDLnyCKidUSpkYnf-nJU8Fbhp8a79NoZVjqtv_ZTw3dFlqjsa3keWF25ijqOcqp3yy87XfSdQCLVQEsUZ021sybuXWIcPI6Absndns1cFDj-yGCuFRQzCLbSplEa_Pj6xuvcGq9aApb4jCM0-F0zyixfPDJKG0paviOgv-Rg-NuTLRsTZ9XQ?width=660&height=371&cropmode=none)
 
 裡面除咗有聲優們嘅簽名板  
 
-![](https://c3yhew.ch.files.1drv.com/y4mDyg8f8G3kZWecC1TWB5rZNs9JU7Oa9YxIP3Ny1LVvHmoxJVqrRIqD6B3clkcei3FvexGaXxVha-B0e2gggjAntpzXeY-4xekVwP3PXkasD1QeUUsQBiQdmmNVTr-xupnZfTfU4bavs6gLzO8wCRyYqKyAtYMBYzG0RbEZEu8gTz4Mr3y8GxUlSaoBeIlEKDnUECMDMa0QLZ_dUK7YlHwsQ?width=660&height=371&cropmode=none)
+![](/images/tottori3k.jpg)
 
 最緊要係買呢個**外國人限定「まんが王国とっとり満喫周遊パス」**  
 用1,000円入六個館好抵買！  

@@ -89,18 +89,18 @@ Welcome to CONAN Station～
 **今度の難事件も無事解決。「真実はいつもひとつ！」**  
 個柯南青銅像指示行嗰邊喎  
 
-![](https://d3adng.ch.files.1drv.com/y4mBLY7a6XrUyNvvYMCm_RtqBPmboeRuntyFhChfsuTEjUmDf2A-vm5Oz_Ly58uzTdeHMdLoe58T7yasK8Dv279jiWDVaGCfshOaZSWyuXBiIP4talDk2VRC3scDMqsm01-88lThfLUAPIbyjLI9i8KncZAMo7v5JXeeeu6j3-wzq3dNp_MbDHd4aERuCAtDBA999xgq0QflXHbGTcOnYfqoA?width=371&height=660&cropmode=none)
+![](/images/tottori3j1.jpg)
 
 [北栄町観光案内所](https://hidie.net/tottori3j/)  
 出發前先去黐住個站嘅遊客中心  
 
-![](https://xnmzcq.ch.files.1drv.com/y4mtPYc42OyYYV_QSxc56qF1Jb8OborWoQWW1MDLnyCKidUSpkYnf-nJU8Fbhp8a79NoZVjqtv_ZTw3dFlqjsa3keWF25ijqOcqp3yy87XfSdQCLVQEsUZ021sybuXWIcPI6Absndns1cFDj-yGCuFRQzCLbSplEa_Pj6xuvcGq9aApb4jCM0-F0zyixfPDJKG0paviOgv-Rg-NuTLRsTZ9XQ?width=660&height=371&cropmode=none)
+![](/images/tottori3j.jpg)
 
 裡面除咗有聲優們嘅簽名板  
 
 ![](/images/tottori3k.jpg)
 
-最緊要係買呢個**外國人限定「まんが王国とっとり満喫周遊パス」**  
+最緊要係買呢個**外國人限定**「[まんが王国とっとり満喫周遊パス](https://hidie.net/tottori3k/)」  
 用1,000円入六個館好抵買！  
 （鳥取砂丘砂の美術館、鳥取二十世紀梨記念館なしっこ館、円形劇場くらよしフィギュアミュージアム、青山剛昌ふるさと館、水木しげる記念館、とっとり花回廊）  
 

@@ -130,34 +130,20 @@ GO！
 配合專用app **ARフォトコンテスト**  
 就會見到佢本身號碼期數漫畫合成嘅樣  
 
-![](https://ehadng.ch.files.1drv.com/y4mswBUnpclpHvWgbDJem6uG1TM171VTaJ7__dq2Rm14E5B5SaeaWevENhkAUnSwYQRLihGSj6dxVOx1HlCuiC4uh6bkT5ulXo9YZdhmuuvaNouzHi1V7-LTUdcPC4Rme_-rECKRyZsF2qbQd-9HaRcKu_4pM66Dd0MhtwZpbV-d795Ut1Gdz4w5hvcazW5u4Ae1Y13SrCQVNS_tdYVjjTrJA?width=660&height=371&cropmode=none)
+![](/images/tottori3n5.jpg)
 
 **北栄町図書館**上面有一大個柯南壁畫  
-
-![](https://d3alng.ch.files.1drv.com/y4migHt80BUT6Ck75Vu5O86dqY1YXRwVAn8IQVN0ZuvUc3oh8slhpAblcwwmsRv_T_2u_yI0bNDMet4OAEQw5mItx4qWPKvYZfuBvRkK1uO53dDsrQSlBwoWkJElHLV1z2qVRjvmPYsjHJGSI4PCohAgqIIEi-lh8COOqeSX7imbFmjGw5uCtnkEGoewDGXn5XOeXe0Nm-XsPyaQFR_RD-HJw?width=371&height=660&cropmode=none)
-
-門口就有個新一銅像  
-**図書館前の新一像、クールにあなたを迎えてくれます。**  
 
 ![](/images/tottori3m1.jpg)
 
 [街路灯](https://hidie.net/tottori3m/)都係柯南啦  
 有50個地方有，款式5、6款咁上下  
 
-![](https://c3ydew.ch.files.1drv.com/y4mNLLOkxDxpZ4QgNAF7BPziF-ApsUrCi0L86avczqAAWUK2z2lfNRTHdqf0sVWfwUkt43GFYRlDUCNx_9U9Y2hnnLUvLTn9WP-8MVGUliW7SQAn5JnUkIuCpHf_fDm0tzCLtbRWl3_viZctXkf_CULx9HXlsEBzuMRyw7bH_S5NArDJ1bck_GXiEEID1iOOj_ttFrICoW00Egd_RSKjEfyUQ?width=660&height=371&cropmode=none)
+![](/images/tottori3n.jpg)
 
-**コナンのオブジェ**  
-呢啲大大件彩色object一共有23個  
+[コナンのオブジェ](https://hidie.net/tottori3n/)  
+呢啲大大件彩色同青銅object一共有23個  
 有柯南同其他角色啦  
-
-![](https://dhylew.ch.files.1drv.com/y4mUK4ITeqjqRp81tI6LpXTVAMcPJfM2E-YgAfO1Fzfw3Ud4WJuOPr6D1P5fGTJ8t7XxJQkjeXcr-p2ffPIv5ezSz9RDXz04TrdHu76ASXCNKYTdkyHfLpRqGkxhhtls7t4DcUKRl0_JRUCpIxnwLEhPTBGUbkxwpfZxRelP6A2QYMdX5OYuUw30f9cUyYj7I_MB7VG_D2JbhQyEaitwqWUYQ?width=660&height=371&cropmode=none)
-
-响**北栄町商工会 本所**  
-同圖書館一樣上面有牆面裝飾  
-
-![](https://dhymew.ch.files.1drv.com/y4mwJkNT0AUmfzBUhTOiVJNPpeZsZBupDPzU_mjA7b8BtYwsl94FGmB69-dFie-5liETbS83WsdM_3xxbZxvWfXKwxPY68U7zBxF-gn2Xy5_O24PG32dxPR0H4wJ99C_p8d7kzv7ZPivx22xthTEp-UGH5OVK1D2zkKJDcmMAb8pkghdI9Rrn9kyhItzGDZy7pe-E9BHJEv18M_K16Sb0zpng?width=660&height=371&cropmode=none)
-
-唔同嘅係呢度有兩塊～  
 
 ![](https://cnyjew.ch.files.1drv.com/y4mrdJPCJR8ZgF2NUfXfZZUdgTaoMZnuD_eyjYgZUW6hfNni_vpW1oRE58_LW7xMquvrDVqTWnQj4pfjT4xxRPsBf9P1ODpqD7ELpeoJRQ4dV0sQx6xOf9xZjK8EG4HrX2r8IP1Eep8niKTepfsJYx-tm4qUaJL_LVxTESpz041aOuiptDFqCcdv9UtkGnDK2YF4y0Q9toOTxmRDi2XqH7UpQ?width=660&height=371&cropmode=none)
 
@@ -199,11 +185,6 @@ GO！
 ![](https://c3aeng.ch.files.1drv.com/y4mixwPDuqbhAh8h6Q8wCTiqddfdVRUXfHvTNw2rF1vPv_JMUe5Jbp9OLGQQPSaSFvH0hgG9poNI6bP8GZMsiJnkAe3_uyiVVfUPaeCO075c4g6oIgBA-QG-hzxPidyvCOQh2lVT8DqsuOOxgq0YiWtur7UccU9J29a-9gxkzIT-LnukmnQug89xSjN1Ozayws_tyI3Wvp88pTB3s2u2jN30g?width=660&height=371&cropmode=none)
 
 入去lu～  
-
-![](https://cnaing.ch.files.1drv.com/y4mwNianRXXF8uXJVpwVxuRwWOG2lrkFSJm3wI6GJtR_kBM-bo0FNCZOIxvMHaIduRdsKhVOe_oxd6bBzqng6mlEpvtfm3PjqNSzPlz0NpGMpO7WtRfw19d-SO39rksWE1HjeOxx4lJhQPVSUJeqw7pxgSGmsxGA26NJqWYMz7Xo9CaT1XZ-qpizYrbwWkss7JaMtpTpKYuAdUQOf8aFfR4Fg?width=660&height=371&cropmode=none)
-
-**新一と蘭の下校風景。**  
-放學中嘅新一同小蘭銅像  
 
 ![](https://cnahng.ch.files.1drv.com/y4mMJr26VzQt4aCJn8Im6IA4582avXYrCBlVKmyRQ3ob2X5ej2fpN8G1rHo3LG4ItrntO_ZEQohBd7iL7NQ7AQkzArzKxQnUxpgT3yIDAvSoFoX1NMnlSZoYBq94Ocs-XUCXa3Ld1H6FBxjA2ZjDWz8C1UxFDTyYu2l29kl3rUiGdYcTBty2tN-LFlDx64rvaYUx9rzogp8FTf6TDQRRMsADg?width=660&height=371&cropmode=none)
 
@@ -290,20 +271,15 @@ APTX4869嘅gelato呀
 撳咗呢罐**GO:GOOD ゴクっ！と海老のビスク**  
 熱辣辣超好飲嘅濃郁番茄蝦湯（大心）  
 
-![](https://bnaing.ch.files.1drv.com/y4mudo8QVGw9LPYna9Pyqv6QiUoBtv7Hq-JuoGuSznpyX63hyESJPXY579ad1NAHFvlD_E95lGNhJsSvFIGHk7vxFZnzn63fqLl8fWs66ptPFj0MntKYu_q251PD83sCxGDsAKrjTKtGgRY-FcKkCXJQAg-dQb-j-_FZ5F6K_uYLe5g4Q_qLJhh5wRn-zjqVap9kc9u21odh-2JCu9p7SDgDQ?width=660&height=371&cropmode=none)
-
-**「ただいま蘭」と、今にも呼びかけてくれそう**  
-青銅像新一响隨意門（誤）到等住快啲行  
-
 ![](/images/tottori3m6.jpg)
 
 難啲見得到嘅另一款柯南水渠蓋  
 
-![](https://d3yjew.ch.files.1drv.com/y4mkr9NZEIBdLM2YEnxhEhYU7NM9Cwgsg8h99eZjBxGBszHKqvTiaes6Jun2hV-Eq5PFB74TO682Hz8qVoMgMt4Yk4ME-TULYtuobztbAJAL4JXX1tytn8DNPh-YwgXoItDFRpCgCbiCFNxE4ntF7sPiSoWjmuv5o6Mjys4Xe_5LtnIqY3EFJ7lsdU8dMBSuU4b0U1izO037qCgyo92t4MAyw?width=660&height=371&cropmode=none)
+![](/images/tottori3n18.jpg)
 
 行行吓有個青山剛昌叫唔好行出馬路嘅注意牌  
 
-![](https://d3yhew.ch.files.1drv.com/y4m89sdFK0vJCFU_U_akIFzgQDaYF9-nJ-AeuGrPgs_FRVJ0IxNsuer5PCROPzPRE9Q1Zp8FL8enI82fojmielK0EKX_xhYvfKoAgDzbizZ3mcJcF-r3PRYFxPlE6T6c8NbUSojaM11lV29m1pNdSWkiILrosyByhYZ9Xfznosy87PvejBq1UJP8j_Vrm9vWiFCV03pQTV33kDov6k9fcTB-Q?width=660&height=371&cropmode=none)
+![](/images/tottori3n19.jpg)
 
 因為避雨亭度有呢個柯南同眠りの小五郎嘅青銅像  
 行人路係有啲窄，不過响馬路影嘅話真係好危險啦  
@@ -312,10 +288,6 @@ APTX4869嘅gelato呀
 ![](https://dnyjew.ch.files.1drv.com/y4m5QpITT0ZqTL3g4dIQcO_uwp6VqGskRlZnUAm-2HClBZZc1RQdH5zZFEiZT7UJuls129U3SKq11f9Hfz6bdfFADKoXBj22u2Ob8vqBG-dPfaM6ISh-NI7qmwFXCkvCeWfIuJlV-GQ1vtYfz2GjF-6IvlLdX4wF9YLX8oCAXZNAQJdREIc30xBgLtM3jM456qpTqdKjf0iJZsfIcl5Tb-FXw?width=660&height=371&cropmode=none)
 
 啊啊啊啊啊～就到喇終於...  
-
-![](https://dnydew.ch.files.1drv.com/y4mD1NhXMJ5KESDy4vVIMqxURXAcRZ-p_XojHpY2yj5kNFu_9eRYSD4PaQhcFyqIqWigU_U4rXA0nswVSLrtMLKL6Hq2QtrEb-2zEPr4M1qhNEFVj8qwfPP-0MZChvN22mUEk-F5vw9NilyZdlbJR5uhQnGtt9tsl75-QubuSkrIdRa_F5BpQlYWkKu5uKDRBjsZKCs8vQWccdkzYybB0Rd7w?width=371&height=660&cropmode=none)
-
-先同隻青銅KID say hello  
 
 ![](https://dnyeew.ch.files.1drv.com/y4mulzxrH_5rORHDbbAj4Gr7o3AIbksx5Jf-6dMMV9kTuXqIMx34mb4rCFYtJ7DqdP6jyfnSIgEYnQWeRLBNx7dynHyOwGAz0ijwv7qa9kkdRLwpUjIjXvDF_JNcwG0g9HdXoelkxb-m3lW3PQ8sD254tOh9McZ9pTye8Eki2xh92JM0dw133yv_8amFhbkdXRbYnuFTEVHlOFzJj02koynSA?width=660&height=371&cropmode=none)
 
@@ -328,15 +300,12 @@ APTX4869嘅gelato呀
 **コナン探偵社ふるさと館店**  
 參觀完個館先嚟兜個round啦  
 
-![](https://b3alng.ch.files.1drv.com/y4mnqu2_e_QOF6OCoaYsmCXPbSleznD5PwD9ClmeTLY8HkW3dSm530jgNW0E31EblayafO26cPWosUBfQvi4Dmas6orG_IbFmfQnS0ummuMjs4eAvI_p9yxqPC8NiETVWH0MH8AU25N2iR4Xw-a1Fs0WqfpQoVnMj9dxMnHJE3rbxgVKO4YdeeKx9WidlEEgrPdKWwvrAwy3LmO_6IrypAkOA?width=660&height=371&cropmode=none)
+![](/images/tottori3n22.jpg)
 
 館前泊咗㗎**阿笠博士の愛車**  
-
-![](https://exyeew.ch.files.1drv.com/y4m7jbqO87Xn2zT7zvKG_rlbsYTSldXNF5TVh0hL401SrJ3JXIrVyXCryKw78J6tHJU5tN8Gtbhi1iezQQ12Se99O6ALoZtLe1xRmBdD2WFzQBREt8sfYZpzXJKUQUJ7Q0wDLTMX-5gYkeiP55XcKfi0bJypnHcJuPZbYysvoGJgNMdqcDLmlfgGa2x4SviLu93XZjgPCnnRO8QCLBjt2tdaw?width=660&height=371&cropmode=none)
-
 真係有阿笠博士响裡面㗎！！！  
 
-![](https://ehykew.ch.files.1drv.com/y4miyh4P4JLMel-Tq3NG0nCG3QGWN90xOaZOoQdEYvVkWoH1SUVtv-p7xsGh6oRyUnjJB3cmaFPC8WY5fI1uYwOqfgEWwyU6GDgCz4I7M8UuOsQp2enbf80ttK3ApIptJzR8USmL5o5CSvrQ8AiQJ6g8s8yl1fSS14RLgOYvf3eTQIVbvlZ9jfIeh95msN_trLVuviJcUFYdkL1oONoYs9ARQ?width=660&height=371&cropmode=none)
+![](/images/tottori3n25.jpg)
 
 勁大本第一期漫畫嘅封面 & 封底  
 
@@ -353,10 +322,6 @@ APTX4869嘅gelato呀
 
 **青山剛昌ふるさと館**  
 終於嚟度呢個故事館嘅入口  
-
-![](https://ehymew.ch.files.1drv.com/y4m_Xr8VBv3MldZLfO7szcJTnEH_1O-3PNS0gSbkR9XTdRHO-PEsUi_dQz3seajEEK0sMMixmzULpyhuudRLeL1llZe6OqhfK1YBg9B0hq0cHGrmRXHQq17QzGSviSLUPWkqjOrqvVA087UE_tFrW4KYtlJsD3yC7Ae_tq-UfTWa3wxI-wPohVNoPfgZvnjB-QdqGGogKeZKBvYRw11CFaucw?width=660&height=371&cropmode=none)
-
-門前青銅像：**コナン探偵団の像**  
 
 ![](https://exyhew.ch.files.1drv.com/y4mbPZLAehiHq6NsCyaMMNm5StIs_luzy9Mb_Kv1cQqDsM3m14hZqKl4GqWU7mixYzQtMC9p7JftNl2zs0zZBRi_xZNdStjoQWb92vPVyreABdWb80pBSJEab2Q_ZOR0tMixV1PWqouv-pjgYFhJ-OTGDnTnvbh408-Gfd7cApRpeCrZzUaswRoDUQUgah-9GQTZ1J9pEVoRi_LcBZPo-La3A?width=371&height=660&cropmode=none)
 

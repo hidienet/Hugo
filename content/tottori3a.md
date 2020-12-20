@@ -112,9 +112,9 @@ GO！
 
 沿住[コナン通り](https://hidie.net/tottori3l/)  
 
-![](https://bnyfew.ch.files.1drv.com/y4mOIFAETaI774aeOr3mtjMh2swTk-H3m8x-1omCITNyB1kqVboL0PwOSE-xOkO2c1HRYSF1gYcNem8evEb6mR1SoDFTxEVHwzLSKLXwCzd9LCFWXab4a1OUTLqNf7MpTyolYiQiKv3iCyRG24EXXQtIQVLbkj0eKdFzwT7MT2WBgvlKlYehuGOB7ttiMoUUNwcjTYbu61O6kQo2WNtwo_4ng?width=660&height=371&cropmode=none)
+![](/images/tottori3m.jpg)
 
-水渠蓋有柯南同鳥取兩大特產**山藥**&**西瓜**  
+[水渠蓋](https://hidie.net/tottori3m/)有柯南同鳥取兩大特產**山藥**&**西瓜**  
 
 ![](https://exaeng.ch.files.1drv.com/y4mAa5A1uP9fphBDTXO8-_VQ_VdraiwEpVjznSI72B-1SdKYuzW9-kOVfzClu2yIbu69Kvs6ENGaAjljP6QCS-WmxLJ1uslMfts2OjfGv1xQgqPWGUxG7Fak7x1ewCqou935RsTWPYU3Vzu6T6SNHqShbl16kU8_meyCINCdMksQFfTUutgFPptDf0nsjSVMoYu3jT1s906Qj6MqE8GPIGIUA?width=660&height=371&cropmode=none)
 
@@ -139,9 +139,9 @@ GO！
 門口就有個新一銅像  
 **図書館前の新一像、クールにあなたを迎えてくれます。**  
 
-![](https://c3ygew.ch.files.1drv.com/y4m7hKXGrHKOv-xCuW4GltAPZemMwyOIdNHE7sTK2Yaq5dPVpz6pDMsLdoFVnfXtA-jcRuyVSmq8srQdQHYnzDBsm-a4NvUobHH5iYkFt2UAf4RXARcQa90MZsd5R7IzPCyGUr3oCbLdcRro2RWstGQYZHPVmwws7a5HshmNNdZLqS2zWP2o_mTTZ1m3qJX-yfYW4FRVGU5SMDJpOSxpOLvYw?width=660&height=371&cropmode=none)
+![](/images/tottori3m1.jpg)
 
-街路灯都係柯南啦  
+[街路灯](https://hidie.net/tottori3m/)都係柯南啦  
 有50個地方有，款式5、6款咁上下  
 
 ![](https://c3ydew.ch.files.1drv.com/y4mNLLOkxDxpZ4QgNAF7BPziF-ApsUrCi0L86avczqAAWUK2z2lfNRTHdqf0sVWfwUkt43GFYRlDUCNx_9U9Y2hnnLUvLTn9WP-8MVGUliW7SQAn5JnUkIuCpHf_fDm0tzCLtbRWl3_viZctXkf_CULx9HXlsEBzuMRyw7bH_S5NArDJ1bck_GXiEEID1iOOj_ttFrICoW00Egd_RSKjEfyUQ?width=660&height=371&cropmode=none)
@@ -295,7 +295,7 @@ APTX4869嘅gelato呀
 **「ただいま蘭」と、今にも呼びかけてくれそう**  
 青銅像新一响隨意門（誤）到等住快啲行  
 
-![](https://bnagng.ch.files.1drv.com/y4m7XVUgT85yn830XEnAaEECKHmsrBg-1BB8fnTZrcRNW0aSyHEg97JaJSzZo8QGEUJAx0AtssYb3Wb00THBFLz29ft-ARWomWEwTGjq29lgRZsFhwM2xsz-j1K9R80TQDJuxsUeYscCVH_AOhNcbuMJ7h6Lf7vLNlpkwDj0_gXiDj3N8zDRzV8SMhE4UEYg_f5xC8DX8qYPAxR2rkkbImpJw?width=660&height=371&cropmode=none)
+![](/images/tottori3m6.jpg)
 
 難啲見得到嘅另一款柯南水渠蓋  
 

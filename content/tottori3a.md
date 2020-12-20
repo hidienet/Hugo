@@ -104,13 +104,13 @@ Welcome to CONAN Station～
 用1,000円入六個館好抵買！  
 （鳥取砂丘砂の美術館、鳥取二十世紀梨記念館なしっこ館、円形劇場くらよしフィギュアミュージアム、青山剛昌ふるさと館、水木しげる記念館、とっとり花回廊）  
 
-![](https://dnaeng.ch.files.1drv.com/y4mqB6omB_2pXGaHpxBMKmuheAl0L7RYW8dS8we2QAEQa09FGgTzMUCjh7NPQulxPrltSsB2uV91do00Z_U4AD2YNidzd7UENYKKUyVsVH9G2jwxeNfVNpXmuOta3Z1WCJlINlqsU40Bp5ic6nThGmbDSHmHBK5HM23eR9F5ablUBPFYo2sORwOJTWrAI1U04DOH5_pNeUgO06-TSiH_5SgrA?width=660&height=371&cropmode=none)
+![](/images/tottori3l2.jpg)
 
 GO！  
 
-![](https://ehaing.ch.files.1drv.com/y4m_vPrpbrTciz1HtQoOX33iyg9P-StAG9BztUhdCcMAIJuI0-PYBJaSPrLPmCagOeJoe74Nqwb5v9oqZezSDFZETf7qJLy3froJuhe2MkSMiATNSJhFfjbgUHP6SvnmfH5BDErv0ZpK4-S6w9ltYVKv2sIOEQ51a44iv98scWcnOSYQ3v58iDPkn7zXgVBYInTtP3zzPDCkxSp1mLJCJlXEA?width=371&height=660&cropmode=none)
+![](/images/tottori3l3.jpg)
 
-沿住**コナン通り**  
+沿住[コナン通り](https://hidie.net/tottori3l/)  
 
 ![](https://bnyfew.ch.files.1drv.com/y4mOIFAETaI774aeOr3mtjMh2swTk-H3m8x-1omCITNyB1kqVboL0PwOSE-xOkO2c1HRYSF1gYcNem8evEb6mR1SoDFTxEVHwzLSKLXwCzd9LCFWXab4a1OUTLqNf7MpTyolYiQiKv3iCyRG24EXXQtIQVLbkj0eKdFzwT7MT2WBgvlKlYehuGOB7ttiMoUUNwcjTYbu61O6kQo2WNtwo_4ng?width=660&height=371&cropmode=none)
 

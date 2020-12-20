@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day3：コナン通り - 水渠蓋 & 街路灯'
+title: '[ドキドキ鳥取] Day3：コナン通り - マンホール & 街路灯'
 date: 2020-12-21T13:30:00.000+08:00
 draft: false
 images: ["/images/tottori3m.jpg"]
@@ -30,7 +30,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori3m.jpg)
 
-睇完上面就頭耷耷睇下面：**水渠蓋**  
+睇完上面就頭耷耷睇下面：**マンホール**（水渠蓋）  
 有柯南同鳥取兩大特產**山藥** & **西瓜**  
 
 ![](/images/tottori3m6.jpg)

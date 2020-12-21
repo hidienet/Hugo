@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day3：コナン通り - 路牌篇'
+title: '[ドキドキ鳥取] Day3：コナン通り - 誘導案内表示シート'
 date: 2020-12-21T08:30:00.000+08:00
 draft: false
 images: ["/images/tottori3l.jpg"]
@@ -26,7 +26,7 @@ GO！
 
 ![](/images/tottori3l4.jpg)
 
-**KID**  
+**誘導案内表示シート** - **KID**  
 地面貼紙會有唔同角色  
 
 ![](/images/tottori3l5.jpg)

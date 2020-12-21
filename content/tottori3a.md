@@ -116,16 +116,16 @@ GO！
 
 [水渠蓋](https://hidie.net/tottori3m/)有柯南同鳥取兩大特產**山藥**&**西瓜**  
 
-![](https://exaeng.ch.files.1drv.com/y4mAa5A1uP9fphBDTXO8-_VQ_VdraiwEpVjznSI72B-1SdKYuzW9-kOVfzClu2yIbu69Kvs6ENGaAjljP6QCS-WmxLJ1uslMfts2OjfGv1xQgqPWGUxG7Fak7x1ewCqou935RsTWPYU3Vzu6T6SNHqShbl16kU8_meyCINCdMksQFfTUutgFPptDf0nsjSVMoYu3jT1s906Qj6MqE8GPIGIUA?width=660&height=371&cropmode=none)
+![](/images/tottori3o.jpg)
 
-地下都有12款唔同造型嘅柯南地貼  
+地下都有12款唔同造型嘅柯南[floor sticker](https://hidie.net/tottori3o/)  
 
-![](https://dnykew.ch.files.1drv.com/y4m2TVMnZInHIGVHXfBEq4M2i0Oa9hHxcMdVlPyTC6z5KhzOTsoxgJcUf3uKKQ0nxnEojiE-kWvXY-YlJufglZjGja67OUxyuLwPzoZfeW16WwXtYQg3UIJkfStqWIFXtNOLjCGrYwlbh0VOvJQGaixlfw3LfpiBzSna3mAg0YnCL2Mt81MWYYtbjRYAdmofFuyHFb7Y_wzY2ElX41trglGbA?width=660&height=371&cropmode=none)
+![](/images/tottori3p23.jpg)
 
-**石製モニュメント**  
+[石製モニュメント](https://hidie.net/tottori3p/)  
 一共有30塊，沿路唔行支路嘅話都遇到超過廿塊  
 
-![](https://dxajng.ch.files.1drv.com/y4me6bCeVWDm_S12N-10PNqIEvsTRzfy1VfhSezhF9EOowFBYYeOkP-qcm7_fm90O00hkgdp3iG4z4qkmIc75Lv7EXD1DWV597YWiY59lPWkDO3c50dZ--U86r6_jgsdoNqViC-SqU5ejkR1ZarnwLO5chilzYSKCZMBde3q6Ccu-1CFkAK5DC_l8kQei9FYCU3dWRv7BOwcHXrAIVT6-9OoQ?width=371&height=660&cropmode=none)
+![](/images/tottori3p2.jpg)
 
 配合專用app **ARフォトコンテスト**  
 就會見到佢本身號碼期數漫畫合成嘅樣  

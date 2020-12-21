@@ -10,29 +10,32 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori3h9.jpg)
 
+**「迷宮無しの名探偵」**  
 就已經有呢啲彩色object**カラーオブジェ**
 
 ![](/images/tottori3h14.jpg)
 
+**今度の難事件も無事解決。「真実はいつもひとつ！」**  
 同**ブロンオブジェ**（青銅像）加埋有23款咁多  
 一座座咁令人停低腳步影影影  
 
 ![](/images/tottori3n1.jpg)
 
+**「そばかす少年探偵」**  
 進入**コナン通り**範圍當然都有唔少  
 
 ![](/images/tottori3n3.jpg)
 
+**「キュートな少女探偵」**  
 首先有**少年探偵団**四位團員
 
 ![](/images/tottori3n2.jpg)
 
-團長～
+**「優しいガキ大将」**  
 
 ![](/images/tottori3n4.jpg)
 
-**灰原 哀**  
-（灰完仲要哀，都幾慘）  
+**「あくび娘」**  
 
 ![](/images/tottori3n5.jpg)
 
@@ -40,6 +43,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori3n6.jpg)
 
+**「待ち合わせ」**  
 門口就有個新一青銅像  
 **図書館前の新一像、クールにあなたを迎えてくれます。**  
 
@@ -49,7 +53,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori3n.jpg)
 
-**コナンのオブジェ**  
+**「すいかコナン」**  
 食緊大栄西瓜呢！
 
 ![](/images/tottori3n8.jpg)
@@ -66,22 +70,26 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori3n11.jpg)
 
+**「夏の日」**  
 **コナン大橋**橋墩有四個青銅像
 
 ![](/images/tottori3n12.jpg)
 
-查案中
+**「なぞ解き」**  
+**コナン大橋で調査中のコナンさて何が見つかったのかな？**  
 
 ![](/images/tottori3n13.jpg)
 
-懶醒嘅雙手插袋屁孩  
+**「推理」**  
+**いつになったら僕は新一に戻れるのかな・・・**  
 
 ![](/images/tottori3n14.jpg)
 
-衝力射球～～～
+**「キック力増強シューズ」**  
 
 ![](/images/tottori3n15.jpg)
 
+**「ターボエンジン付きスケートボード」**  
 响橋度抬頭，仲有隻青銅柯南焊咗上燈柱中間！  
 
 ![](/images/tottori3n16.jpg)
@@ -101,7 +109,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori3n19.jpg)
 
-因為避雨亭度有呢個柯南同眠りの小五郎嘅青銅像  
+因為避雨亭度有呢個柯南同**「眠りの小五郎」**嘅青銅像  
 
 ![](/images/tottori3n24.jpg)
 
@@ -110,10 +118,12 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori3n20.jpg)
 
+**「神出鬼没」**  
 就到館前先同隻青銅KID say hello  
 
 ![](/images/tottori3n21.jpg)
 
+**「自称天才発明家」**  
 館前泊咗㗎**阿笠博士の愛車**  
 
 ![](/images/tottori3n22.jpg)
@@ -123,7 +133,7 @@ tags : [travel-日本-鳥取]
 ![](/images/tottori3n23.jpg)
 
 **青山剛昌ふるさと館**  
-門前嘅青銅像：**コナン探偵団の像**  
+門前嘅青銅像：**新しく誕生したコナン探偵団の像**  
 
 ![](/images/tottori3n25.jpg)
 

@@ -50,7 +50,7 @@ tags : [travel-日本-鳥取, flavor - 行膳積腹, flavor - 飲！]
 
 ![](/images/tottori2l10.jpg)
 
-松永牛嘅味同擒晚[大山牛](https://www.hidie.net/2020/01/day1.html)嘅味都幾唔同喎  
+松永牛嘅味同擒晚[大山牛](https://hidie.net/tottori1f/)嘅味都幾唔同喎  
 
 ![](/images/tottori2l11.jpg)
 

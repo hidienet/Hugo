@@ -314,9 +314,9 @@ APTX4869嘅gelato呀
 
 館側都仲有唔少壁畫  
 
-![](https://ehylew.ch.files.1drv.com/y4mbWIY3Wbs1raJebPHbUjozDuAD26D7nOs8EiAEy8_Qzn5ybUfl_ZMcAClCYeHc-EuxcMUnnNymiEZ-XSLKtrlKOXESRh7GbHLha7fBfHgTk5JEr5-s9hWu2r_p7fxmZFZgznN-n3q9OyDZCzpeeJnhg5XipsaOvF33cPfXdYI_O70OfllZ_KJKCCWHY0E7wvezPg_9rZvgXpTrTeFdgcJsg?width=660&height=371&cropmode=none)
+![](/images/tottori3x0.jpg)
 
-**青山剛昌ふるさと館**  
+[青山剛昌ふるさと館](https://hidie.net/tottori3x/)  
 終於嚟度呢個故事館嘅入口  
 
 ![](https://exyhew.ch.files.1drv.com/y4mbPZLAehiHq6NsCyaMMNm5StIs_luzy9Mb_Kv1cQqDsM3m14hZqKl4GqWU7mixYzQtMC9p7JftNl2zs0zZBRi_xZNdStjoQWb92vPVyreABdWb80pBSJEab2Q_ZOR0tMixV1PWqouv-pjgYFhJ-OTGDnTnvbh408-Gfd7cApRpeCrZzUaswRoDUQUgah-9GQTZ1J9pEVoRi_LcBZPo-La3A?width=371&height=660&cropmode=none)

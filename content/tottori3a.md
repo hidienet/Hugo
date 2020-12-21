@@ -150,10 +150,6 @@ GO！
 [マイカーランド青山車輌](https://hidie.net/tottori3q/)  
 一個租車場，佢本身係青山剛昌先生嘅原住處  
 
-![](/images/tottori3q.jpg)
-
-小小巡邏車仔車身都有柯南  
-
 ![](https://cnyeew.ch.files.1drv.com/y4m5C99nnedoidDOYAK_p0A7cMKnb40mlDwiryqARoTlsgKmorVr4Ec63NgCfLgZUgO21nkUNlrY1DhVQWXBhAdE5wetlDnEyB7kg6LCAVe9XHocIm-Z_u37e0syrkIThrhNmBfOcB8qGm-xVArpyAU17KBzAb38VFW8BpDQAZ4oVmnslC-LP7s_BDU-0-BdRaxf3JXei4h296lpdpM33R47A?width=660&height=371&cropmode=none)
 
 **コナン大橋**  

@@ -25,6 +25,10 @@ tags : [travel-日本-鳥取]
 ![](/images/tottori3u3.jpg)
 
 呢個洗手間後面都有幅畫啊！
-   
-   
+
+![](/images/tottori3u4.jpg)
+
+舖頭都唔輸蝕，掛返張
+  
+  
 {{<tottori>}}  

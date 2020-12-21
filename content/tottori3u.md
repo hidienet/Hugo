@@ -19,7 +19,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori3u2.jpg)
 
-洗手間外面嘅謎剪影
+洗手間外面嘅謎剪影  
 [車站](https://hidie.net/tottori3h/)嗰個有另一款
 
 ![](/images/tottori3u3.jpg)

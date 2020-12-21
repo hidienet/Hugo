@@ -145,12 +145,12 @@ GO！
 呢啲大大件彩色同青銅object一共有23個  
 有柯南同其他角色啦  
 
-![](https://cnyjew.ch.files.1drv.com/y4mrdJPCJR8ZgF2NUfXfZZUdgTaoMZnuD_eyjYgZUW6hfNni_vpW1oRE58_LW7xMquvrDVqTWnQj4pfjT4xxRPsBf9P1ODpqD7ELpeoJRQ4dV0sQx6xOf9xZjK8EG4HrX2r8IP1Eep8niKTepfsJYx-tm4qUaJL_LVxTESpz041aOuiptDFqCcdv9UtkGnDK2YF4y0Q9toOTxmRDi2XqH7UpQ?width=660&height=371&cropmode=none)
+![](/images/tottori3q1.jpg)
 
-**マイカーランド青山車輌**  
+[マイカーランド青山車輌](https://hidie.net/tottori3q/)  
 一個租車場，佢本身係青山剛昌先生嘅原住處  
 
-![](https://exadng.ch.files.1drv.com/y4meFX4HsHn9YY3o4dYjEhYZHJVr3DWKsYZBdWM5QkvbGkoEbTZ3IXzmW3t1apAsE6CjgwZYmwQM0-POAFwx5CrvHHzaHYqdQI0SACBSy3ShkbrfmDeUZ0UiZMOa_Q1jXZ3EWAh2X_UTQtj-fnkTn8DvmxLV3lkLjiG3II05znVR3b6R3YSIjrHH9G5awzphY2g9P-lCovpknzav_krVEUt9Q?width=660&height=371&cropmode=none)
+![](/images/tottori3q.jpg)
 
 小小巡邏車仔車身都有柯南  
 

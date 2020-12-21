@@ -207,7 +207,7 @@ APTX4869嘅gelato呀
 
 ![](https://dxyfew.ch.files.1drv.com/y4mLxwvWrWtZTC7hE94Nr7ZQ7MFY11vzPjx_qUtv8HUMR6SD9jj812s4HdFfy9AhKn7Lyip-MEFaZglev8j5gTeylMR5afEKzUT5rtj6--OFVpkbTmMkAWT5aHE8GXzPIOdD0WBZVE_xQnU0GAXuXhwL0D-Gscb8k_MhhzQxZdqVORcYrmpQNDFVsQuAUg6NLlZ7XmhmflsFJMhHgxghsq3lA?width=660&height=371&cropmode=none)
 
-咁入去**コナンの家 パン工房**食brunch啦  
+咁入去[コナンの家 パン工房](https://hidie.net/tottori3t/)食brunch啦  
 
 ![](https://dhyhew.ch.files.1drv.com/y4mTb78DMcdezQQKLlpaeLpv7tKoHKmvK0_jG8Kvqc7x9vf_bJMcKzRYeW2BMpSYSLNOLfN0Rr77z0IgF1ABObXiHm9VqkWcZDS6inws6Uy-pwaabTWTWYTkLJN2EqLj7_S4k7e5cJlgC8FT5fe_RxTWZ_VksapwYq2pKvb3eWarzauyDSE2XyHRo65ctlUcygYBFq2xYNL9lZ3lpCcFgET_Q?width=660&height=371&cropmode=none)
 
@@ -222,50 +222,23 @@ APTX4869嘅gelato呀
 
 臨近聖誕，就貼住Merry X'mas poster  
 
-![](https://dxyiew.ch.files.1drv.com/y4m9QmEyV7L4Rz0_WgAUBo0UVPVeAOCudCHIzheSAjLNlIZyZWU8en3ACrNlaozYXNVErzlXjaeepMBiRmW1PRfE-BJzm4d_2n6TCUS5fUWUdXkcyEa1r-KMvGCW0gSF04KyBWZQEKus1LxAUONaVDRGyEJuGR3Zdj-Abh4N3G8UuFezKANe2xWIUsuflXwijbx_FSelySugvsEOLyYL-NodA?width=660&height=371&cropmode=none)
+![](/images/tottori3t.jpg)
 
 薯條漢堡包同APTX4869熱狗  
 味道嘛... 食過樣㗎啫（成個trip最難食嘅一餐哈哈哈）  
 
-![](https://b3afng.ch.files.1drv.com/y4mCQ1Lps-mHm3mF4LYgoZ38naWHiz_kWY3J4s9pxXYEtmZx--6fbun_iImxVLI5FVmFYxobeSdoAZbrBzBBZAPpYNgotPlxshZujzE2OQ-ECquS_8BCG4AOAt9JTFxxkyVwIyNzMt6y6pcb-rE6lxCwy3qCvrDTLJ0f3VoPt7slrR9YrrYXsTq8n2m3TyWMPwQ9qDqIGYwIHD7de8xBIVYIQ?width=660&height=371&cropmode=none)
+![](/images/tottori3u.jpg)
 
-**名探偵コナン 巨大迷路**  
-本身冇諗過入加上只係星期六日先開無損失  
+[名探偵コナン 巨大迷路](https://hidie.net/tottori3u/)  
+本身冇諗過入加上只係星期六日先開無損失   
 
-![](https://bnakng.ch.files.1drv.com/y4mkCI_K9iB1lQ5lPnK8vMdROI8vpwfLww3iCN3ZnPGGbeiNQudz2DXw7YFyladCXWHod1mTX1R_Bo4thy1KN762KglU6wntU-eQhB0gI6neCibeTNt5mVQE-yvo9jAOqT4Cs-QgWc7XC4D3Sd6p6R2SiVxMgYgc8QJtLvv0Nxy8JvvhdHhaUye1ujVghRApdEcZtZYjp4zHhzMP6piOSATtA?width=660&height=371&cropmode=none)
+![](/images/tottori3v.jpg)
 
-食飽繼續行啦  
-
-![](https://cnajng.ch.files.1drv.com/y4m5thsBeJw_XR4F8xoxgK2gUlFP21h4oxo8D2pE_X051dx-77Ta9LX2RezyN-xqgzKh0SvObh8AtTOB1rxwpVmR6p925DsTqOq5WUzV2GXGzDAw3OVzF-eLFkO7K5XaznfDVeaDofR3hr85xrY1-btps3MRedwjSVXtgprim4YeDQiO-N-z6DKW-55B4xAwljrxrna4RcYTq-u1Q14GjIZGg?width=371&height=660&cropmode=none)
-
-洗手間外面嘅謎剪影  
-車站嗰個有另一款  
-
-![](https://bnalng.ch.files.1drv.com/y4mOrPipZ8MFbnqy5ZyI-ZK2C9GHZ4oBy5QCF982ABNPzlZ-RAuEXQgErpnPmRNFwkd0YQqERpaDoTkJ5w5syomGGLM6t4J7FU2FFbTJkuMtusjAhgmziQy0PQimylst9-dRFLe56fdYqM_8ZgzMePR7PrpqXgoiTvKGFXq_DPMbjwd7I38PWd2-3ij4uORSJKcqCsYyhk-uE8whtz0YG0WsA?width=660&height=371&cropmode=none)
-
-呢個洗手間後面都有幅畫  
-
-![](https://d3ahng.ch.files.1drv.com/y4mf_MOReePXekZZM-KVTCqW2FmRnFRiK_AUvXYuqtyLHhpr7-Sv0A1wyz1T4kf6I5oKDmlywEYGZGItjM3DHS842lbM8ENCcnQC7C1Ta1TzncQUWAKVlinmCy8N_3p-dxYmGQIwRTO4SkL4QkgVVBjZkSfN3ZzXnbzZr19Eow6wiMiHY_smDvKAWYzwGd7JP-uGdq3ZEDOJUH2Q_Q_OAtgGg?width=660&height=371&cropmode=none)
-
+[名探偵コナン ホワイトソーダ](https://hidie.net/tottori3v/)  
 頭先响快餐店冇嗌嘢飲  
 而呢款汽水之前响川崎見過不過冇諗過買  
 嚟度柯南村就無理由唔試吓  
-
-![](https://bnydew.ch.files.1drv.com/y4m2inVUBkRElLXlZI7lGjV-JQuvDg1Es9dH9TQxMNJPh4MiKVT05ni7UyH02EFcqOR73ZsVlWIpXxZ8Ljd3esJNGt1xyMPGvCUDjcDOL3ClID9BXrKO4oX2KkJVCmyhdDiV_oofk3GwzpKU0BQ2mox3bAREL3ijGWdw8cn0jm9Rt5WQ-oFFTZaKXtrFUMq6VbspcwqTq8CmHGnTwB6VnCd7w?width=660&height=371&cropmode=none)
-
-**名探偵コナン ホワイトソーダ**  
-噢～係京極 真  
-
-![](https://bnyeew.ch.files.1drv.com/y4mZJL_t20Dsu-2AzllAfJJnXR4oMf9An7kgIGAQZ7zqLW-TtrTknmK1g2w_yWFiWAzb7IUEZzaeoNw2r1c8bra0RAPM16ACPnnZJP6iAU_dOen1wudooecDShjbT4YmWcEdm_aRxUr7hXYdzIgLMqdMgJo6ZJAlh0QJRPxz39kLmA-TyMzefpYYdHFkdNFJATXL2AHhw-gTU4BKcf8e4o19w?width=660&height=371&cropmode=none)
-
-江戸川 コナン、怪盗キッド、灰原 哀、京極 真、安室 透、犯人  
-一共六款，哎吔抽唔到**犯人**㖭  
-
-![](https://bnygew.ch.files.1drv.com/y4mE-6AWxIGpMo-_GEscn54Wx26s62FcJ2W3n5e7lyhjDro0WK6hh9W0UHP7vzaYK7jfh_2hPUJH5bqGKzmxXTFOp_EC-gu6IY008JfUCsBmu1dLotYVNP8G6Q83rMNv-5492Lw5aRJFbXe97SqfflhY7Sc6JDTFjdisEGkoybINSjcOGIabk7e7qehnjM6-4WDNQkpJl3iLV2iw-VP4WK4pQ?width=371&height=660&cropmode=none)
-
-天寒地凍加上甜嘢汽水真係唔太啱我  
-撳咗呢罐**GO:GOOD ゴクっ！と海老のビスク**  
-熱辣辣超好飲嘅濃郁番茄蝦湯（大心）  
+（不過我最後係飲[熱番茄蝦湯](https://hidie.net/tottori3w/)）  
 
 ![](/images/tottori3m6.jpg)
 

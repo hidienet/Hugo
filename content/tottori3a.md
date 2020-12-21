@@ -156,12 +156,12 @@ GO！
 橋嘅四隻角都有唔同款嘅柯南青銅像  
 **いつになったら僕は新一に戻れるのかな・・・**  
 
-![](https://dhaeng.ch.files.1drv.com/y4mdMo8hFCnS3y0k19sUvB4g9jxklkYtMoi24Ixham9gUCOMNi5W5SIl7lxFd-pJjmjpHDBVK8oXwVT5OdzsEShB75XtwnTgfJar5nOAAwmq6IS-8qZJXJRpbTDYlOlbMzGzsp-7nLe_30ltNcRaJSWyCP2U5mWW6FKG_eFx0tJ2ZAU8QIlvjjIr9QFYqShjj2yd4oq1TrE6nV_yxC1lGv8jw?width=660&height=371&cropmode=none)
+![](/images/tottori3r5.jpg)
 
 **高欄パネル（ブロンズパネル）**  
 橋嘅兩邊有12塊共4種款式嘅銅面板  
 
-![](https://c3alng.ch.files.1drv.com/y4mq41fLgtCqxwKSPeLofswcBHdn8x2k2XkuhXAM49Rdvha2-CdgiUe1h2EiUOk83ufO3zV0hs8iffwozRZSlNw8yjh_tYO_AMlVh9psmRSaWXAaQdXzEYmVOkQYJfF8sir6fQKoGmFfnvMP926AKYh5RoS0EyoZc2ZIj9FQYN2pMD32JNCUEwwfbpBN94gbbw1GCPsxG9_u7PXK-qHp6bvYQ?width=660&height=371&cropmode=none)
+![](/images/tottori3a.jpg)
 
 **ポールでアクロバットを披露するコナン**  
 响橋度抬頭，仲有隻青銅柯南焊咗上燈柱中間！  
@@ -175,7 +175,7 @@ GO！
 
 ![](https://c3ahng.ch.files.1drv.com/y4mcKfYksf76EskHkVtd7B5dzJ1Z8u_L4AgdtgE21g_gCptAnxVX0KQIfjYekDpvuQh5xerCNGhf0eldZKQSk_3bHTrI96S9Wg202Rd0BPicXjeKAviW1i-qcOqANGFPFAswpKTUbYW-ugoqCF_nM8KmPfQ_0-9dPiwfDcA4m-7NSj9wS3kTTZr_4I1flVUgqvznRey1Pi1LXxkXFCP9oRIpw?width=660&height=371&cropmode=none)
 
-**コナンの家 米花商店街**  
+[コナンの家 米花商店街](https://hidie.net/tottori3s/)  
 死好多人嘅米花町裡面嘅商店街（笑）  
 
 ![](https://c3aeng.ch.files.1drv.com/y4mixwPDuqbhAh8h6Q8wCTiqddfdVRUXfHvTNw2rF1vPv_JMUe5Jbp9OLGQQPSaSFvH0hgG9poNI6bP8GZMsiJnkAe3_uyiVVfUPaeCO075c4g6oIgBA-QG-hzxPidyvCOQh2lVT8DqsuOOxgq0YiWtur7UccU9J29a-9gxkzIT-LnukmnQug89xSjN1Ozayws_tyI3Wvp88pTB3s2u2jN30g?width=660&height=371&cropmode=none)

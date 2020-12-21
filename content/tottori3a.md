@@ -150,9 +150,9 @@ GO！
 [マイカーランド青山車輌](https://hidie.net/tottori3q/)  
 一個租車場，佢本身係青山剛昌先生嘅原住處  
 
-![](https://cnyeew.ch.files.1drv.com/y4m5C99nnedoidDOYAK_p0A7cMKnb40mlDwiryqARoTlsgKmorVr4Ec63NgCfLgZUgO21nkUNlrY1DhVQWXBhAdE5wetlDnEyB7kg6LCAVe9XHocIm-Z_u37e0syrkIThrhNmBfOcB8qGm-xVArpyAU17KBzAb38VFW8BpDQAZ4oVmnslC-LP7s_BDU-0-BdRaxf3JXei4h296lpdpM33R47A?width=660&height=371&cropmode=none)
+![](/images/tottori3r.jpg)
 
-**コナン大橋**  
+[コナン大橋](https://hidie.net/tottori3r/)  
 橋嘅四隻角都有唔同款嘅柯南青銅像  
 **いつになったら僕は新一に戻れるのかな・・・**  
 

@@ -61,6 +61,9 @@ tags : [travel-日本-鳥取]
 
 **コナンスタンプラリー | CONAN Stamp Rally**  
 慢慢睇又會有呢種電子印仔儲  
+
+![](/images/tottori3q3.jpg)
+
 有10個地方有得「嘟」，沿コナン通り可以遇到6個  
 不過冇興趣儲，skip得  
 

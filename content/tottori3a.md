@@ -166,7 +166,7 @@ GO！
 **ポールでアクロバットを披露するコナン**  
 响橋度抬頭，仲有隻青銅柯南焊咗上燈柱中間！  
 
-![](https://dhykew.ch.files.1drv.com/y4mj8brT___o5Nca1dyS-Pf_IcXPTnstn1wZQH8vt4sScRNRvYKtHf2knGW5WsqFor9z6hPPrLUG2ppD2usMhLGjau6oIU1LphNmHDfXnkyLod6bZb6BQRi636K0TieBWOP6RyV5Cyzf9OglMMTtvqzeCsrc9faaHWT3jYBk5NIU4CgNZDIyo1Cgf5FzvYPxD_zRMx3nYwZpe_KjNxtgNSzfQ?width=660&height=371&cropmode=none)
+![](/images/tottori3q2.jpg)
 
 **ゆらまちウォーク～世界で唯一名探偵コナンに会えるまちを歩く**  
 啊！橋嘅其中一個銅像側跟有mobile stamp儲  

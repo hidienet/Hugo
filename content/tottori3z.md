@@ -1,6 +1,6 @@
 ---
 title: '[ドキドキ鳥取] Day3：コナン空港shuttle'
-date: 2020-12-25T12:30:00.000+08:00
+date: 2020-12-26T08:30:00.000+08:00
 draft: false
 images: ["/images/tottori3z.jpg"]
 tags : [travel-日本-鳥取]

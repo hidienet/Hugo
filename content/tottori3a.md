@@ -173,30 +173,30 @@ GO！
 有10個地方有得「嘟」，沿コナン通り可以遇到6個  
 不過冇興趣儲，skip得  
 
-![](https://c3ahng.ch.files.1drv.com/y4mcKfYksf76EskHkVtd7B5dzJ1Z8u_L4AgdtgE21g_gCptAnxVX0KQIfjYekDpvuQh5xerCNGhf0eldZKQSk_3bHTrI96S9Wg202Rd0BPicXjeKAviW1i-qcOqANGFPFAswpKTUbYW-ugoqCF_nM8KmPfQ_0-9dPiwfDcA4m-7NSj9wS3kTTZr_4I1flVUgqvznRey1Pi1LXxkXFCP9oRIpw?width=660&height=371&cropmode=none)
+![](/images/tottori3s1.jpg)
 
 [コナンの家 米花商店街](https://hidie.net/tottori3s/)  
 死好多人嘅米花町裡面嘅商店街（笑）  
 
-![](https://c3aeng.ch.files.1drv.com/y4mixwPDuqbhAh8h6Q8wCTiqddfdVRUXfHvTNw2rF1vPv_JMUe5Jbp9OLGQQPSaSFvH0hgG9poNI6bP8GZMsiJnkAe3_uyiVVfUPaeCO075c4g6oIgBA-QG-hzxPidyvCOQh2lVT8DqsuOOxgq0YiWtur7UccU9J29a-9gxkzIT-LnukmnQug89xSjN1Ozayws_tyI3Wvp88pTB3s2u2jN30g?width=660&height=371&cropmode=none)
+![](/images/tottori3s2.jpg)
 
 入去lu～  
 
-![](https://cnahng.ch.files.1drv.com/y4mMJr26VzQt4aCJn8Im6IA4582avXYrCBlVKmyRQ3ob2X5ej2fpN8G1rHo3LG4ItrntO_ZEQohBd7iL7NQ7AQkzArzKxQnUxpgT3yIDAvSoFoX1NMnlSZoYBq94Ocs-XUCXa3Ld1H6FBxjA2ZjDWz8C1UxFDTyYu2l29kl3rUiGdYcTBty2tN-LFlDx64rvaYUx9rzogp8FTf6TDQRRMsADg?width=660&height=371&cropmode=none)
+![](/images/tottori3s4.jpg)
 
 **コナン百貨店**  
 啲落地大窗都有柯南同KID  
 仲有大塊石像畫  
 
-![](https://exaing.ch.files.1drv.com/y4mFE2sfK0YW7rmnpHbvRIGdAGOjnchAfv_1ZDszwDhZQ--9RVUMindZVQpe2fPl2BYEc_i0yrwOGGyVx2NQ5oxI2BkwiqotjC_OAiDB6KFBRAjrEYUBk6lCe7Eu-jCX1jrwPgldhXRMGpRs_z4ug9OjYdPRUktX8Xr0YQjP3tNJccAXcDTRnibBpVCDWldpii5iZDEWkxzzebaoWwk3gskcg?width=371&height=660&cropmode=none)
+![](/images/tottori3s9.jpg)
 
 入到裡面梗係唔少得唔承受風吹雨打嘅紙立牌  
 
-![](https://exagng.ch.files.1drv.com/y4mLTXss869nisEhvr3paAC-m_4r_f3H083Sw9j1GxKrxblIS0joo8eBI8bYkQHN4hEOnbQVb1XnHJuiDVnQgVjrJo3QoeUeut5jq-5Hi0ovKl2qtoXIduwSH0rD6nsdSCISi2ODyxjdq4dbYVgCQMdenYIhHZZZ4t8fKvbHKvF2RjHfYcQU0aN0-kMUnzdZBdXie-45LKkSRVctf2Kk8DpOw?width=660&height=371&cropmode=none)
+![](/images/tottori3s12.jpg)
 
 除咗鳥取特產當然唔少得柯南樣嘅嘢  
 
-![](https://b3ahng.ch.files.1drv.com/y4mMww_NgSaGLpKjssmIMuvcyBt_QFzn1a9cTD19odxs8QkFWRQmROO1KN8JjuwiKFz2kqhvDH9PgW6eojsum9DkL4vP6B-PBA5N_QJUj83fxwUMf771VdLwFURtBpb27kwpi38dg2-ZVo52AhDmy5z0KfeA6nTvaeSD_CwhOExHh4usELYTrM9QmtUR7QVJl0Idc-2C5JYDC2T_eRc08fUeQ?width=660&height=371&cropmode=none)
+![](/images/tottori3s13.jpg)
 
 江戸川 コナン名字由來嘅場景  
 

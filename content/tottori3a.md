@@ -200,27 +200,18 @@ GO！
 
 江戸川 コナン名字由來嘅場景  
 
-![](https://bnaeng.ch.files.1drv.com/y4mVQRUjy1pHY-FZ0qapkTYo5yFWErzU9JeIhvypuE5zgvWDLjndyVWyKXFvR5zNVIJ4R8FS3Et10dVWHBURouwkmXpd8iLXxLDXir2bwUhdWhXDF-pCO4siOrVXB8mWfy-Og5VX6wa2Ubtcd2TGhKcSdSClSEn7tuO_UmLJZHno2o4neq5796g4PDAWjvX86C1rZIWQbvo14z6zc45mQNQ0A?width=371&height=660&cropmode=none)
+![](/images/tottori3t11.jpg)
 
-APTX4869嘅gelato呀  
-不過間gelato舖冇開残念ね  
+餓餓地就入去[コナンの家 パン工房](https://hidie.net/tottori3t/)食個brunch  
 
-![](https://dxyfew.ch.files.1drv.com/y4mLxwvWrWtZTC7hE94Nr7ZQ7MFY11vzPjx_qUtv8HUMR6SD9jj812s4HdFfy9AhKn7Lyip-MEFaZglev8j5gTeylMR5afEKzUT5rtj6--OFVpkbTmMkAWT5aHE8GXzPIOdD0WBZVE_xQnU0GAXuXhwL0D-Gscb8k_MhhzQxZdqVORcYrmpQNDFVsQuAUg6NLlZ7XmhmflsFJMhHgxghsq3lA?width=660&height=371&cropmode=none)
-
-咁入去[コナンの家 パン工房](https://hidie.net/tottori3t/)食brunch啦  
-
-![](https://dhyhew.ch.files.1drv.com/y4mTb78DMcdezQQKLlpaeLpv7tKoHKmvK0_jG8Kvqc7x9vf_bJMcKzRYeW2BMpSYSLNOLfN0Rr77z0IgF1ABObXiHm9VqkWcZDS6inws6Uy-pwaabTWTWYTkLJN2EqLj7_S4k7e5cJlgC8FT5fe_RxTWZ_VksapwYq2pKvb3eWarzauyDSE2XyHRo65ctlUcygYBFq2xYNL9lZ3lpCcFgET_Q?width=660&height=371&cropmode=none)
+![](/images/tottori3t6.jpg)
 
 有主要角色嘅展板  
 下面係配音聲優嘅簽名  
 
-![](https://dxymew.ch.files.1drv.com/y4mhOFfzytxf2PpzURfqXc9AzHV7PTvY5BO4BTRrnwyY1euZdRpFyrbuzffZGMeJQpVKh7a7fDFtCUmtJ6hgtOzeFS4qKnq4apF3tkxa3F0CJfcNeA7lPNxnb-noL38_JDdT6wSkZe7JqX46Y30qH2ojhqtSxx1pct05U20d96OQVZpWzoXQ_mCkT_gQ3M94J757yKpIWCu-a8hlXSEh-NAew?width=660&height=371&cropmode=none)
+![](/images/tottori3t3.jpg)
 
 高腳枱面就有Q版圖案  
-
-![](https://dxygew.ch.files.1drv.com/y4mkwYeRFsiMsg5-n0-NZkf78JzCgNFF9bSGob5zyBeEuZ4LmyppZQI76Wwfk1-TGOZAj-Wz-DRf59ZlKKo4GoOVHTLiTlU2IZx9Y3KbhrINwnObKECwXqXftp31IIaiShCOhFGm2Kow0U1ODFVd5_ZH3d8MAr0aFF38Cy_Z4mm6sWyRMtrqvmwM-1WgjUplVx5INzs4FRpp9LrRr0wyf3-Qg?width=371&height=660&cropmode=none)
-
-臨近聖誕，就貼住Merry X'mas poster  
 
 ![](/images/tottori3t.jpg)
 

@@ -11,6 +11,7 @@ tags : [travel-日本-鳥取]
 ![](/images/tottori3z.jpg)
 
 出咗館見到**コナン空港shuttle**  
+即係可以從由良呢度直達鳥取機場啊！  
 
 ![](/images/tottori3z1.jpg)
  

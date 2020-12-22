@@ -32,6 +32,11 @@ tags : [travel-日本-鳥取]
 **コナン百貨店**  
 除咗大塊[石像畫](https://hidie.net/tottori3p/)  
 
+![](/images/tottori3n16.jpg)
+
+**新一と蘭の下校風景。**  
+同放學中嘅新一同小蘭青銅像  
+
 ![](/images/tottori3s5.jpg)
 
 仲有落地大窗角色玻璃貼  

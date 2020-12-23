@@ -7,7 +7,7 @@ tags : [travel-日本-鳥取]
 ---
 
 走過十萬八千里...
-![](https://ehzstq.ch.files.1drv.com/y4mcFETjqauzN6ReYVr76-oex26g4aLgweJckrOHXXzDFDDvH_SpqClOqE1f27-c15Im046RYZFas7Vfm-O4MbiC_uad9a8I-I4U0fVULA45M3larMLBINgVNqjn7-7BFjl8-XTSXqYAUo1U9Yafds0syJ64XwwGpjob95WG6N3eXAHrevsatYCxsBsjKoTsdPnUxlSpNGlY4NdE2swrmVAbg?width=660&height=371&cropmode=none)
+
 ![](/images/tottori3x1.jpg)
 
 啊啊啊啊啊～就到喇... 終於...  

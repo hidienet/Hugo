@@ -332,7 +332,7 @@ GO！
 
 **阿笠博士の発明品**  
 
-![](https://d3zrtq.ch.files.1drv.com/y4mYq2pgaQKngMVcsUcFqdnPx_63O3Mmt9JHmpFJ4J6-mMg-Xb99Tzmb6BlAMljcyJpH983L33qlSYd1xxKKOdX0K43Kymsal4mVPDNS7FORWbNmw_7p2Sq4k3qD9NL6UtwwzsqMzBSbX9tF7O1q6r00ZmIPgW2qX9QUn0n0BcuTwWdDRHQZl-E_URWKwFouLfSW32G3nFBCUG2ZGH8YD6iag?width=660&height=371&cropmode=none)
+![](/images/tottori3x24.jpg)
 
 （揭～）**どこでもボール射出ベルト**  
 show出嚟個足球已經變大咗  

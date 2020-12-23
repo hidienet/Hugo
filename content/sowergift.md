@@ -1,5 +1,5 @@
 ---
-title: '[牛] 籽樂廚房 - X'mas巨餐32oz.斧頭扒'
+title: '[牛] 籽樂廚房 - X’mas巨餐32oz.斧頭扒'
 date: 2020-12-25T19:30:00.000+08:00
 draft: false
 images: ["/images/sowergift.jpg"]

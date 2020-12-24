@@ -1,5 +1,5 @@
 ---
-title: '[牛] 浦井韓食居酒屋 - 燒牛'
+title: '[犇] 浦井韓食居酒屋 - 燒牛'
 date: 2018-02-03T22:09:00.000+08:00
 draft: false
 aliases: [ "/2018/02/blog-post.html" ]

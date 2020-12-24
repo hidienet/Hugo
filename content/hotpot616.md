@@ -1,5 +1,5 @@
 ---
-title: '[牛] 616牛肉火鍋專門店 - 外賣牛邊set w/616原漿手工啤酒'
+title: '[犇] 616牛肉火鍋專門店 - 外賣牛邊set w/616原漿手工啤酒'
 date: 2020-12-12T18:00:00.000+08:00
 draft: false
 images: ["/images/hotpot616.jpg"]

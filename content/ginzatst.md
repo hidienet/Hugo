@@ -1,5 +1,5 @@
 ---
-title: '[牛] 銀座 - 鐵板燒薄和牛'
+title: '[犇] 銀座 - 鐵板燒薄和牛'
 date: 2014-12-31T19:30:00.000+08:00
 draft: false
 aliases: [ "/2014/12/blog-post_31.html" ]

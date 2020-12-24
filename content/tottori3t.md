@@ -15,7 +15,7 @@ tags : [travel-日本-鳥取, flavor - 行膳積腹]
 APTX4869嘅gelato呀  
 不過間gelato舖冇開残念ね  
 
-![](/images/tottori32t.jpg)
+![](/images/tottori3t2.jpg)
 
 咁入去**コナンの家 パン工房**食啦～  
 
@@ -37,7 +37,7 @@ APTX4869嘅gelato呀
 
 有主要角色嘅展板
 
-![](/images/tottori37t.jpg)
+![](/images/tottori3t7.jpg)
 
 下面係配音聲優嘅簽名
 

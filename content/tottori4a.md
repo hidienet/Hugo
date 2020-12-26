@@ -6,51 +6,47 @@ aliases: [ "/2020/02/day41.html" ]
 tags : [travel-日本-鳥取]
 ---
 
-眼都未擘大就走去溫泉浸醒自己...  
+眼都未擘大就走去[溫泉](https://hidie.net/tottori4c/)浸醒自己...  
 
-![](https://cnbnkq.ch.files.1drv.com/y4m9i4kmTUvfCEBOJEx-N0876ydbgwdjm0WJBU5ruOS0OXWKPf4HrMLkTgZyQWUNB6XZax8QWn4P_bGm3bwMzGS77PzobI5bSoaLCTXHxgnQn59PP9huO_aN9_Ze-8EJpV31tHfgJwB5Zf48tuj9iDo9DGdxwDcLD7guM9LvUt_HAnvbrp2hK2a86kinC_MzGcyniJAFVKq_IlExs5abWd_ig?width=660&height=371&cropmode=none)
+![](/images/tottori4d.jpg)
 
-浸完舒舒服服咁就去食個豐富早餐（一泊二食嘛）  
+浸完舒舒服服咁就去食個豐富[早餐](https://hidie.net/tottori4d/)（一泊二食嘛）  
 
-![](https://cnbwkq.ch.files.1drv.com/y4mluGX8SoJKTlpypRHaz7mFfi_RzzAiPMH766fpOlc_1GugDka_hTeNXlzFapC11IhQGhx6y5nbM6rnVmi1XLVmC38S_RjedamYaWgEmxz3mNdZ5GeSHCMPyZuq_p22l4pXujuE6pK29zBKh8GRmwKwTqzoGPWWob5ELjYsAN6iL1J2N_aIO98vfOIaXNsXoFWX1uRhTg2j3zYsFR2deEIyw?width=660&height=371&cropmode=none)
+![](/images/tottori4d1.jpg)
 
 隻豆漿 **三朝神倉豆乳 神のしずく**  
 無糖 x 勁濃郁，好好味啊～  
 
-![](https://dhbokq.ch.files.1drv.com/y4mxznamCjtE9fOmkFhgjZL93joEer-luyLMvM3hTfou0wlbI_zQlVv7un_FGjVp-ipcEqqg5Nn1Q4NyIsNpn6Ira48KZ3fDI2Rp6nx4CnwmXR8VIkDXvO-9v4gle2YQLmixzhrBbcH_-YxzcIhXyIOQbtciGJ0NKxoeQAHQFcMN_dQD7UnXsGOeqkVTo9yBQG2urYuCb_Xu6VJ0UbzTMKveg?width=660&height=371&cropmode=none)
+![](/images/tottori4e1.jpg)
 
 返上房見到啲床鋪已經執好晒  
 
-![](https://dhbnkq.ch.files.1drv.com/y4mmIqW7JQsMXlmqA3eGMgwlw92LMR4psXbNz19-942aLDJOV5nnf6LSiEZ5qJgEUZDZSvk7ASDkbjD2tTdIEybLlsv_MA3emItAcUHkGpwx7gNXgBoy83IC60uSCS7yotPW5ym4jzEB9MvAOpoT85VtvUC_B7cvp2DDD5piITjn3AJ6XwZEiftSMqV2ssxvp0-00_7POM-80tajpW57RMS0Q?width=660&height=371&cropmode=none)
+![](/images/tottori4e.jpg)
 
 咁就嘆返杯茶先  
 
-![](https://dhbpkq.ch.files.1drv.com/y4mTQQFAiaHBOC-I9pgwnhq9pFbwaeKSxqpTobSOJPVJGjXNmldIcfOfY8xUZeCfvqqUpJL37jtVPmXhupvt8Ulh0Yi4CcD-DnG44JnTb3Qcg_hLsisRkWJJ4n9VnYqKAk4XsbI21eMSu7b_HF3DqSgMZd1p3MgRA2u-0D1YQLkMP5ZIqnykvDICIyFIBKqPUPP-l5QT2KRlOU-K3Tr8cX-xA?width=660&height=371&cropmode=none)
+![](/images/tottori4e3.jpg)
 
-啊啊啊啊啊～ 臨要走先睇到Luna Sea嘅live  
+啊啊啊啊啊～ 臨要走先睇到[Luna Sea](https://hidie.net/tottori4e/)嘅live  
 但係book咗車要check out睇一半尖叫吓都夠幸福喇（心）  
 
-![](https://dhbrkq.ch.files.1drv.com/y4m5zmEkUeQ2bNE4sGEpp0MDjQdrfqyjAn91fqM7X8SGdBac-2hQ9w3UZ2m_I2ZYTivsdAxa49KNKM06a_lHZAZl__3Ia5W40CZ3IdijH-R7Q89_NibECR9QxMi4ph7atTqxyPObvS3xSwNtV7DlHAq4nHnSZ8LwkjylzCI3v7jdTLqYQOe-ky4dNrBxIEe5BUzLcv1QpTNuIelPM5ww6WaeA?width=660&height=371&cropmode=none)
+![](/images/tottori4e5.jpg)
 
 check out  
 
-![](https://dhbvkq.ch.files.1drv.com/y4mhdtkg7FcdNYqS0YZzK_FBO0pd07-af8udRSeJAWFZuwHiiHw1VyB3MDum3Nk5q8q4Frd28KYwI4Zpa5p9JHgt4qdjxHvUWcyLbyRAPmoEFQeoOhXYwCuRSIZTVbDpSjD8OLIezE1xCcfbot9ViOllTb2jOm30O1LdElXB3q48zvTWJ5RJNBEEuX-U6cyABczL6ABh1_sU3IIhVZbB-Vg6A?width=660&height=371&cropmode=none)
+![](/images/tottori4f1.jpg)
 
 免費專車接送  
 
-![](https://dhbtkq.ch.files.1drv.com/y4mDctGYvfslVulfu7c8x_sn0rLYwdcl1swtZIDrX_dud_z-d_gaRQar2oMSJR0QrLjfDB_LDaIs3G2mqOJg2kaNJpyIFGzx4Q6M75gYil--J7csdNSJ_QDqmLSIU1fadPSNbSs5VIAL5Yzt7kzQR_6diklnSMkQ_YBXOZkL5QJ6SEragxN3gSyV2BvorFwRdKoPltB4y652ZCD6pX6N_qoyQ?width=660&height=371&cropmode=none)
-
-今日又大放晴  
-
-![](https://dxbnkq.ch.files.1drv.com/y4mieX_8fhnwRLexCFMU5VHsgSJxxavHdRDpu7TbTagnyuZnetay_33iU76QzYvY5N1SrOqprfqLYosifymuG1iwhwXGCzJdRm7DUj4nLkNcIYCcVWAAFdIDrNZ5Dp62WTVKwwTEJs5ENvfR-IMEDFyKWDsseJuXwlwfq0yUm1ik0wna6uKG7lCGO2ckrGAayj_-u83y5Rt7iz46UGcqTfK4Q?width=660&height=371&cropmode=none)
+![](/images/tottori4f3.jpg)
 
 呢條**天神川**一陣又會再見  
 
-![](https://dxbpkq.ch.files.1drv.com/y4mnb0zh3fcdYijSR7wOLYvV4T1zfAP2SURZEJyL9hXb2lpxgwp5am7yAHAhaa1Rpzk7GuKiWv7e64yqVLT6mo_XCvkmcNuEEybN4HuAFkIATwvSBnAY9mgQ_cFIUWPc2sj6Q_iTH2ENeUCZShu7kIIVP_uVK0ajpmxoVY9yttoaSLcKVJUX9sleQQriyBMs8ShQgY8NuVIoGbN2FGGxIXdsA?width=660&height=371&cropmode=none)
+![](/images/tottori4f.jpg)
 
-**JR倉吉駅**  
+[JR倉吉駅]()  
 
-![](https://dxbqkq.ch.files.1drv.com/y4me2V2KR03OCd3KK9kw8FQxJaXT3EQsSz5yhL2VO-WkgWKT3TTN-tiK_ZBeUNWbrOBOkmb3SCVbDacCg9HAEQYe9ranrdQ4OKlWHfCguNtWUik5c5ywPu8Sz8MyDgL6rvi43jPf5nIC8M8u7bJuRUJm1jP6S2do8fh8uvbaSuog5ZIfylUzAwaJRbL-CDJHxun0Wti4PZpUFfyS0yYhtyrLQ?width=660&height=371&cropmode=none)
+![](/images/tottori4f4.jpg)
 
 先去**倉吉観光物産館 長生堂**寄存行李  
 有料嘅，不過求其買一千円嘢就可以免費擺兩件  

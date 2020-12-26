@@ -62,6 +62,9 @@ tags : [travel-日本-鳥取, flavor - 行膳積腹, flavor - 飲！]
 ![](/images/tottori4d12.jpg)
 
 **吸物**  
+
+![](/images/tottori4d13.jpg)
+
 樣樣睇落好清淡  
 但係啱哂浸完溫泉要補充營養  
 又不失各自味道嘅主食  

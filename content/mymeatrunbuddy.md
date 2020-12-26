@@ -100,7 +100,7 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 
 ![](/images/mymeatrunbuddy16.jpg)
 
-嘢飲又又係飲斟  
+嘢飲又又係任斟  
 有當然地嘅熱水之餘  
 亦有檸檬水呢杯消滯**普洱**同清熱五花茶  
 不過呢杯茶唔係我嘅我會飲多碗湯  

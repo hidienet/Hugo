@@ -1,5 +1,5 @@
 ---
-title: '[牛] 盛八 牛肋骨壺'
+title: '[犇] 盛八 牛肋骨壺'
 date: 2015-04-19T19:30:00.000+08:00
 draft: false
 aliases: [ "/2015/04/blog-post_19.html" ]

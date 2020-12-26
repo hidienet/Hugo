@@ -1,5 +1,5 @@
 ---
-title: '[牛] 秘 Secret Chefs'
+title: '[犇] 秘 Secret Chefs'
 date: 2020-04-16T21:28:00.000+08:00
 draft: false
 aliases: [ "/2020/04/secret-chefs.html" ]

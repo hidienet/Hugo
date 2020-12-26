@@ -1,5 +1,5 @@
 ---
-title: '[牛+豬] Seorae 喜來稀肉'
+title: '[犇+豬] Seorae 喜來稀肉'
 date: 2014-09-14T20:00:00.000+08:00
 draft: false
 aliases: [ "/2014/09/seorae.html" ]

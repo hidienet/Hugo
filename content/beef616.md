@@ -1,5 +1,5 @@
 ---
-title: '[牛] 616牛肉火鍋專門店'
+title: '[犇] lunch @616牛肉火鍋專門店'
 date: 2020-06-16T00:00:00.000+08:00
 draft: false
 images: ["/images/beef616.jpg"]

@@ -1,5 +1,5 @@
 ---
-title: '[麻糬] 董師傅手工麻糬'
+title: '[mochi] 董師傅手工麻糬'
 date: 2013-10-23T20:00:00.000+08:00
 draft: false
 aliases: [ "/2013/10/blog-post_23.html" ]

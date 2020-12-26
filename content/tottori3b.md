@@ -8,38 +8,38 @@ tags : [travel-日本-鳥取]
 
 離開由良，我坐上向鳥取方向嘅區間車。  
 
-![](https://dhzmtq.ch.files.1drv.com/y4mnNbCw3wtV2Ck5ZLCG8BS1vwX33mTQ_H9fzccTvj4w3Jj5mEIVlg23TYKWH17TtMOBgfRdAv0Dxv8q5EKrCisNB2J9TIPlC9wracWXmWci4r65jM2TrUkJiOuR3dqLVcV80OpgWRfTYH62D9RgaqmK2LD_KmwCZ4t4IzzvuI8sKkmpbiQz3zJYjs74w0PX8KQNEPz6tulMDE-ohv90ryLBg?width=660&height=371&cropmode=none)
+![](/images/tottori3zc.jpg)
 
 等咗粒幾鐘終於見到你（好感動）  
 
-![](https://dhzttq.ch.files.1drv.com/y4m8NilfIiV8eSj0fYOvg0_dNCtwmv2FCqShGDy2BgIO50L4L0uYNcV1vtnX0JJbQZl5ZeXHdnnWg65zoHejOUoIIoRjUGdvDykQ0CQl8yNQDX1e2VMPlSfpFICdzkAwy6ErqqYy9qp3BIrl4In5_RwS41NfdPhpmG6pSTAdNZOqgv2a90ipI8-0AKjcw8cRBZJUYzHgLTTo8DhhDpah-y7MQ?width=660&height=371&cropmode=none)
+![](/images/tottori3zc5.jpg)
 
 好大碌彩虹  
 
-![](https://dhzstq.ch.files.1drv.com/y4mguvdG8O1aNTKNPfuEgnH4-gDLd8DoUDfB4bvsYrnlDNAzYmpDwvAK_UJx6fKCfXmy61GjF82d3Hydt5PVh9wLZcHxhcVkyma69h-A9R87GToK9DmrDWEwzspn36KhSwshsMa2iAF8GuOB6a_EBrA2PA4VRNZ3q131tFWU_DwI79ByNwGjuvdzeRxmLxp72iL8wRHh4s2zpT89A1TjLVYww?width=660&height=371&cropmode=none)
+![](/images/tottori3zc7.jpg)
 
-（由良駅 → **倉吉駅**）  
+（由良駅 → [倉吉駅](https://hidie.net/tottori3zc/)）  
 係ひなビタ♪ 啊～  
 
-![](https://dhzutq.ch.files.1drv.com/y4mmxrgsLVIrDjYIhyK0GCX2H7NhWzuJsiP4I4nltWg9LFmn6C9qqTOhylr04e5HOwN66Fvqz_S1SEB1-9Q9ECsUMMYKdNr7cTZmOJbb3SHxnG3Unq7OQ_oooV7myQIX2bqwwbrIO024vr9dBnTAEtKu3UyA54GGY9ap6wYhNz8TvZbRQGb4Yf7io6caS7IB4s6MLyxMmNfUGalGY_WMg-zjw?width=660&height=371&cropmode=none)
+![](/images/tottori3zd.jpg)
 
-お倉 + お吉 = 倉吉  
+お倉 + お吉 = [倉吉](https://hidie.net/tottori3zd/)  
 
-![](https://dxzmtq.ch.files.1drv.com/y4mxROXcdsy_9smMwVQDz1OzIDXeQXVUsz3MR7V04f5A55At1hM57sW6w0TDmKOK-lnXOw9zbSV8zEBBKBZ0i-NdCpRaNYvhiwEi_geDyuicEbM1w6jz93cWrn_vWdKQOEalyTewfWX7wxkq1kHhkRLrB9oRJuwzmy8VXAwyFXH52CKnu4GhTFfIQJGzBr3Nl8iLXBEl8FuIEda82uIzF0FgA?width=660&height=371&cropmode=none)
+![](/images/tottori3ze1.jpg)
 
-**ラーメン幸雅**  
+[ラーメン幸雅](https://hidie.net/tottori3e/)  
 一出站一直行行行六分鐘就到  
 就算係拖住行李都唔辛苦  
 
-![](https://dxzqtq.ch.files.1drv.com/y4mDGns65v8-ru1QLjwUpGhbXPBkEo1qr_CjTgpEou_JNNsb7fYdW81iSjHdKB3VEIdidrYPUQkN-T6Fm_Y4LdlTwlRcd-LH_UzP3BhmqoE4M1VRbrBA0RjeQxy5qZkuqIRrKXHyEFYfncxJhTVOoywl6RTL9Rsq2-WjJ0n0TbGb2nMtMbqly1WNdLfTw9QI-qGybk2IbZRRjrWXhtsdXn-7g?width=660&height=371&cropmode=none)
+![](/images/tottori3ze2.jpg)
 
 加上食到呢碗**牛骨ラーメン**  
 真係點都值得  
 
-![](https://dxzvtq.ch.files.1drv.com/y4m_hfUYJUmZH7ADgYlSv70JKFBPRSjLGp9kYImwPkOHIFOT_zU4bsDCX7NY1gQBZsESZScURou61xALvCqfd2sQDrrdPSmcisXtaE8hGFg2cRNrRQgSBx1bXBZWHGEfo_1s3yTQcQtPSV9xP5LamZbMDLh__D03pLX80JsDxYMmBmec4OtymxSFrppYkyXoTQJYgYzyfKM8olQGzDv34-bzQ?width=660&height=371&cropmode=none)
+![](/images/tottori3zf.jpg)
 
 食完見到啲雨大粒咗  
-咁唔去遊覽倉吉住直接搭巴士去三朝温泉  
+咁唔去遊覽倉吉住直接[搭巴士](https://hidie.net/tottori3zf/)去三朝温泉  
 
 ![](https://bnzptq.ch.files.1drv.com/y4mRlDzJTNwsBoYyS8vm1SMmgq_9FErI5pRNaHzKpD7H-6IqlyxrxiHY9hgblni9HdcBMiKQg-LJ7LhkVP3L8W9NNb4lxiREhAAZ0tApsrMiNCmtwJzCX2wY-LelJuz0SdBoVPXDi3tbCibpSjWGh4HkX1bpiMzn3bvWmL0JFH5lcXc6eBQRHyDUxg-3A-1WOZ2dYWrtzzoI1yi96k6VI8ecw?width=660&height=371&cropmode=none)
 

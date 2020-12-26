@@ -475,7 +475,7 @@ character房，有eva四葉機動警察batman等等
 
 ![](https://dhzwqa.ch.files.1drv.com/y4mqU2IZDuZq_ISfdyFldR2GZJmpStMTq-2oYkui42l-6U69v1THZ_NoQVy97ikz0Q5yrdW6ZeEr_pjXdBnUq4IoDBaI4fekgB4isz0IGTBj-HSalz9mEjqxlP5bF2zBYOM_UFL7EMCuHVUDB8p52p8nAvIqgFAysVxkShKevvvAymy0OYghyXBVmwnGi1xhH6hXD4LQa0NWkFDVNe7i2k6vw?width=660&height=371&cropmode=none)
 
-**赤瓦十五號館 日本料理 飛鳥 **  
+**赤瓦十五號館 日本料理 飛鳥**  
 一日開幾粒鐘㗎咋  
 
 ![](https://c3zcqa.ch.files.1drv.com/y4mVUAlBGUPWXNDaNsVVdrBA670fp-JJg8PpA1vAJ4mI7iD0GySLLfA9g_hMRP3nmSnCcphwho28hif28o0ihazUuprJ2GMT6XyWWWht8faooHZ4cEhx9H270j8TSW95kJfnWP36lUWhyno4Pby7K85VZHW-C_dQ0xk14xO1Zly6BqZ4NvG8TGtPK5gUb1z-mK0U6oyUQOA0yYaTPrRuCag3Q?width=660&height=371&cropmode=none)

@@ -114,7 +114,7 @@ welcome餅係**元祖因幡の白うさぎ**
 [大山おいしい牛乳モナカ](https://hidie.net/tottori3zk/)  
 甜品time～
 
-![](/images/tottori4a.jpg)
+![](/images/tottori4.jpg)
 
 食完唞吓梗係再去浸過啦！  
 今晚一定好好瞓 Zzz...  

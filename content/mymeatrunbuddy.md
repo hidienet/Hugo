@@ -114,7 +114,7 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ![](/images/mymeatrunbuddy18.jpg)
 
 啲豆煲到離晒殼起晒沙  
-味道唔會好甜，紅豆味無得輸（大心）  
+味道唔會好甜，紅豆味（大心）  
 
 ![](/images/mymeatrunbuddy19.jpg)
 

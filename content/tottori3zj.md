@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day3：三朝温泉 - *河原風呂'
+title: '[ドキドキ鳥取] Day3：三朝温泉 - 河原風呂'
 date: 2020-12-29T09:30:00.000+08:00
 draft: false
 images: ["/images/tottori3zj.jpg"]

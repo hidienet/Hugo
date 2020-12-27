@@ -47,7 +47,7 @@ tags : [travel-日本-鳥取]
 一落巴士過馬路就已經係門口  
 會唔會太太太方便呀？  
 
-![](/images/tottori3zg1.jpg)
+![](/images/tottori3zg2.jpg)
 
 勁vintage嘅門同個匙牌  
 

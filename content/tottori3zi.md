@@ -1,6 +1,6 @@
 ---
 title: '[ドキドキ鳥取] Day3：温泉本通り'
-date: 2020-12-28T16:30:00.000+08:00
+date: 2020-12-29T08:30:00.000+08:00
 draft: false
 images: ["/images/tottori3zi.jpg"]
 tags : [travel-日本-鳥取]

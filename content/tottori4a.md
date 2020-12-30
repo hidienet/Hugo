@@ -44,7 +44,7 @@ check out
 
 ![](/images/tottori4f.jpg)
 
-[JR倉吉駅]()  
+[JR倉吉駅](https://hidie.net/tottori4f/)  
 
 ![](/images/tottori4f4.jpg)
 
@@ -52,29 +52,25 @@ check out
 有料嘅，不過求其買一千円嘢就可以免費擺兩件  
 夠一千又可以用埋鳥取pass（トリパス：2019.10.1-2020.3.31）有5% off 呵呵  
 
-![](https://dxbskq.ch.files.1drv.com/y4mvZBS0DXRESLo-_cuXBuyWgp5S27CB07MRoXDcIRAqCsNTp0e5VQeWe9xoaebf3wkT9fYFyDtJeEoQgmUON_V-cLdRRnDDkQ6V62Fl0fSVdR6sbI1AjwTIBwLCLPrlyZnPU86-Ajj-nZywYMAkd_J4GakhfrwQ0r_rFYQH4AZfxwWjQlKjMvtIm0oE0woUL54QgcqGgMaxT8eGPDG_HQrJA?width=660&height=371&cropmode=none)
+![](/images/tottori4g1.jpg)
 
 兩手揈揈又跳上巴士喇  
 
-![](https://dxbvkq.ch.files.1drv.com/y4mO2ie5f92xMUvCTsELTtvKDANlnebhpZ_IVAN5kmGAGeerZVh0HPal4dAurJDLuCMy1f6YqbXWo6fJH-7STJFJBE020ork4pAJVipPSLAQ4zBkF3A0M3PwrNG2uQql0URxp8VhVsMfqEjnT4gjMyltiFTfY54ZGg-NIuSbHivTxsnUp3ZA7HuTrX1g14pFjHKhnCTzrxvS43NvRxZJ_cnlg?width=660&height=371&cropmode=none)
+![](/images/tottori4g3.jpg)
 
 又同**天神川**見面  
 去三朝温泉行左邊  
 而家嘅方向係去右邊  
 
-![](https://bnbqkq.ch.files.1drv.com/y4mhrRM1KmhMXx5QMhdZmI40v0YG_y_-TVCbdwmoR0xkpPfOpeXHqMsy3hRxZTYcZZTQbjIfshCPwTgvmPnhQimL6twozaYFmiCubQh3QGCobP3RqVLsjVWbFF1L9gTRA73hQmLU8seSIswPXm7K0uHNP4p9T7nI9GujkKIkeZ_UktIspPA7lgE3M_W2ngYrj9ls-nKJgHFRv3GQAZTqMjVDA?width=660&height=371&cropmode=none)
+![](/images/tottori4g4.jpg)
 
-响**広瀬町**落車  
+响[広瀬町](https://hidie.net/tottori4g/)落車  
 行最少係另一架响**鍛冶町一丁目**落嘅  
-不過未見嗰班車就行多少少啦  
-
-![](https://bnbnkq.ch.files.1drv.com/y4mN0D72POVygnSbviXmhJD3HGeWWSEFjcnxFFhGLRdP_afxSPb39iLyFl_TbyVaTlMHbBjfg6sTD6Q06rfRc8XDxKgH3FU7wBxCdMbBcR9ohxMegO0ObqgbKw2E5O52cdDMUPSRmewfVywDF4fpSmV7LafAlLhwdVuqEbJPf6zVyqcijhhZ8OslG6auiacngC9sAdxuw4ixfsNlarti_MWOw?width=660&height=371&cropmode=none)
-
-渠蓋，係倉吉市市花：椿（山茶花）  
+不過未見嗰班車就行多少少啦   
 
 ![](https://bnbtkq.ch.files.1drv.com/y4mOoQH4WgClC-Br5QyI6GShr1szXGWXStSea1G-o6pripHiG9R8nnmDcc2U_HesME8Cv0dIyIlD8Ix7NVPa3-P5M3HU6dCx5GJ8SFCjYbcLotbaxhyckZCp69U24UNXzF2ajTa9B5z1wKVPXwNEKSo5JwuidPVpoOvxN6RZAYp1oAsXP3jnf_LPTNNKNVmf_cNmTZMt1g-hRpknzOo5o2evA?width=660&height=371&cropmode=none)
 
-**円形劇場**  
+[円形劇場](https://hidie.net/tottori4h/)  
 於1955年竣工嘅**旧明倫小学校**円形校舎  
 係倉吉市以至全日本最古老嘅圓形校舍  
 

@@ -16,7 +16,7 @@ tags : [travel-日本-鳥取, amusement - zene]
 
 咁就嘆返杯茶先  
 
-![](/images/tottori4e.jpg)
+![](/images/tottori4e2.jpg)
 
 諗住開電視睇吓hea吓，點知...  
 啊啊啊啊啊～  

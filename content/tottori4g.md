@@ -22,7 +22,7 @@ tags : [travel-日本-鳥取]
 去三朝温泉行左邊  
 而家嘅方向係去右邊  
 
-![](/images/tottori4g44.jpg)
+![](/images/tottori4g4.jpg)
 
 响**広瀬町**落車  
 

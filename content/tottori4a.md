@@ -99,77 +99,76 @@ check out
 
 有太多嘢想要（奈何荷包唔爭氣）  
 
-![](https://ehbvca.ch.files.1drv.com/y4maO3zipmu58Kw1cKVWklHhFJ4sJTcX7KmeMKAc8rP3HzeJfJBJ33tXsJTxH5V8E4DENc0_HsvpcaicTbuJFyJnbwY2uTDx5rtl6OuN9ZYlHjFzmimjg-j-88rpqcV_9hGpFPOkXZ-N3Y5nnBZpUI8bICm24iAqiWo_off3ytp5LubF7NjgljZsz6sZhY2sWReT4cn5F5TYaheErDrILeYKA?width=660&height=371&cropmode=none)
+![](/images/tottori4h14.jpg)
 
 拆解ねんどろいど 桜ミク  
 
-![](https://d3b2ca.ch.files.1drv.com/y4mO445hHkaYGHlRYSFzfWQN2QEu3fMgN9fEih2H1z9Jzhbsa9DBB491u6UgeZFaOPqOHNsDPvA2NV3LaChXzsm551CjXAlRQARRzqyvn8ePT1P-oZHXafHvOmZ6Jekl3KysBNFpkuxwovI0smREY3LIe8hQO1vbbaRAXu2WYqgxlcwNL1kGsrpwRrYuf0VSPDK-TBhq_XPFh-qYOfADB2tKQ?width=660&height=371&cropmode=none)
+![](/images/tottori4h15.jpg)
 
 實際模具  
 
-![](https://d3buca.ch.files.1drv.com/y4m5TuAcDEf6doQvrcqrfOWKrS-uaGjq771XBKTni2i8OfmYmvyJNZmvzjtYqnmCsmg92U2caW6-zkmIuPADBWOPSrhkuM6VuUryMPCQd7LGg_yuPiUb-AZ02cg5QoGHj-a3xksbFuO7W1a_c6UD16k-TfF13HJjux90p_ZfRvucOiGJHVb6YkxrxLYDhppyKumSJ0AE4gqIG8mMBbFTqpIlw?width=660&height=371&cropmode=none)
+![](/images/tottori4h21.jpg)
 
 去下一間班房  
 
-![](https://dnb1ca.ch.files.1drv.com/y4mviGyzQnpd0VwgOrQt2RFnCrDJ09TrUKM7861tV3PD_ox1sQV9Aiy_tDfEbvzaMuLdniwBtRyeqSt9q9FtLDghEL8vsPY97h_qvrHPzYOFiZ0j7_Umj4z3o4U-l3CuiXylFMShWK25O7qIFhjBKqRNjxtQXMy6n099zqHTCYdkct5DotVicgDKzgt91tbkkMZidD1AxDeKL9K3XO9uYvg3g?width=660&height=371&cropmode=none)
+![](/images/tottori4h26.jpg)
 
 呢期嘅特別展「**タツノコフェスティバル IN 円形劇場**」  
 有大大隻自轉中嘅ガッチャマン―大鷲の健 @**科学忍者隊ガッチャマン**  
 
-![](https://b3bvkq.ch.files.1drv.com/y4mJM3uzGjTCCeolPRwqgHNrQBmff-bRSB1dqom3S6SejDSIdmbBngHGj5NTsT-Obg8rKo_4sLD3RyUH0_kbKVyfPyiXwDrzjp-wl_5xXnQvbHm49KMJ0WfsFCu_a_5G94l1A4X1tXsvwGmlBH_rKwE__oeaLTPcCJCqVBLzHZpCKl0BroA7X8CZSu8vZmTu4ZHOcu8TdS2Oyyv-YuTxCBClw?width=660&height=371&cropmode=none)
+![](/images/tottori4h29.jpg)
 
-另一間房有**ヤッターマン**（小雙俠）、**ハクション大魔王**（噴嚏大魔王）  
+另一間房有**ヤッターマン**（小雙俠）、**ハクション大魔王**（乞嗤大魔王）  
 
-![](https://b3bukq.ch.files.1drv.com/y4mLb0iFqvgjwXKocVagNhurMhNQCwrAkPVmlrEpedZmNvCTbyq8Qu2rHFOg1n_b8mkexAnw-5AzK3KD0nRHHI11CmccbWemIReWt55viZ-SXYV-W38H43tH1EXZPbGNAlIC5e1mg2teZBZqKCtN6if_VxQnFBu6pEpj3eydMkY8ZCSw0OROpizm8wdNEoe-thVjH_4Eu8pwM8XstjkSFMOOg?width=371&height=660&cropmode=none)
+![](/images/tottori4h35.jpg)
 
 真人版**ドロンジョ**套戲服啊！  
 
-![](https://c3b0ca.ch.files.1drv.com/y4mbzd_2nkAG_7fjNjNVYBPVrZuL-af_sOaSMvKKFT4zvXLMcKbTH-pQna80zcKdwJESENO919t4B2pEfYeZvjdTsfAJHcPJbTSdw3SNcbieEENeJ12oQ_mqxF81AxyhjPRLMWZFppJsM-XKFocb00bx7RvJUQDDiUFvxSEvG_jnsNxZ79rgnt5J2bqCOtlEe1CY6OTh3tnEVtjMHGK062hcg?width=660&height=371&cropmode=none)
+![](/images/tottori4h37.jpg)
 
 下一間房有得自己cosplay  
 
-![](https://c3b1ca.ch.files.1drv.com/y4mUn3sfkwwwWFx6hnQWJ7u0JWdP1QFl6TclSkrYUHpEu9KIECRqp7_G04Zikqn2j_x_5zzHmPlaqLMzGanS-7KcclpRKOdZVl5jghSBTDy2ZeCuMvMSKIXF_rBLXyyVE8NhV5eTGmROV-vBNHh50trEDhouVuJ7Eq4lFGVd6JV3ngLW97oAzRovLXWevudRbAimU2naggJGOFiq1hyy-aaeQ?width=660&height=371&cropmode=none)
+![](/images/tottori4h38.jpg)
 
 有晒場景慢慢玩  
 
-![](https://c3bzca.ch.files.1drv.com/y4mWffGOFopSJPac1TBITihIeSEuzPm1HjvJ2l6LXIk9uiw0vptrXnBCm4nW_bVJueADgc8bYGecxN7izLIWIMmBth9FhD9Ao2HdZL1pdEsgMvvI61R6GXRKW7YnPBMAnKzdS6EmZ9Pu_1XWGDxFKlp5qngla04GgqjRSNIX91IlllJOP1kHa3Aot9dsn871a6dPhEu-rK-cYUAVfA0a_qWbQ?width=660&height=371&cropmode=none)
+![](/images/tottori4h41.jpg)
 
 仲有迷你影院上映中  
 
-![](https://c3bxca.ch.files.1drv.com/y4m9G_TryC1LAEzQxGdBVNw8FN2UdjH5SRZQJi5R7KhU23AJnx4z-asPDnYwbIBdievI8S8gKi6SvQ6hXSginSjkvOCfu0F8vOtqe1LOQzBT82k1JMLr0h6R-deVwfPPYWm9-6bZAeCGfJLxVAwxnQ5ToRBb5beHejGipriBQf_kF11_EDr5WOrDywRvuLCvnxL_3wpcMrp2BvYkfOGdsxmYg?width=660&height=371&cropmode=none)
+![](/images/tottori4h43.jpg)
 
 1樓行完，見到呢張紙就先搭𨋢去3樓  
 
-![](https://c3bvca.ch.files.1drv.com/y4mQpsSDluiY1x0iy3uRtlZjhyrMmj0hAgzLUfsqXwGvmdu1Dpz0o7pCYCgf9KQ6r6yVmNysmiFwgLcpMMV0Eg9REXLYSx16brHSUGJUtHPo8GbHhANW7dey1pq1JQyjthdtM3r0IQTkOPs3VBJ1MyVKaMByE0igR3Ihwx6jiszSNJeCR4f7jXkAECUvXeG99hA4uz8tBToKJa1wkT0DA7-Mg?width=371&height=660&cropmode=none)
+![](/images/tottori4h44.jpg)
 
 霜月 凜（心）  
 
-![](https://cnb0ca.ch.files.1drv.com/y4m44itidspLcXEkJIDg6vSCxOhv_e5jgnQD--HNtIlFtqPszYOVf0uFwsjr4NmjZ8wVlKa6FnS3PGwzXKKskzwOyqi4nPB5ttVkjqvDqmoojnRhnMbs01b-IWb4kc2tPRyGX30u5v92FhCzFzOsxNidKy-W921bbgUo8Arvj3G11VPBp8dPoZJ5VMJ5eRZ9Rw6_jRDdv_na3ralXTXcGPfhA?width=660&height=371&cropmode=none)
+![](/images/tottori4h46.jpg)
 
 有120款game玩呀  
 不過我係從來都唔識打機嘅  
 
-![](https://cnbxca.ch.files.1drv.com/y4moqW53JgKJFsdH_hh9EUfQPAKl4xLu7MZIHNXtttrZyoSXIbV3p2lW-3WPrhUXCaL5WSmoKLdyKcSOcpeH945_0Vz5dSlEZmGiSkbj2IavhDhh6i2_du7NEpHuiVSvlySq2jwbvDfmmJva0RpoyrGMdfyQ54WgTsahReFwb646nfVWz2NMc-2I9QXLJk4y1tg2JpJNlAyuGBmafIhQL9_Tw?width=660&height=371&cropmode=none)
+![](/images/tottori4h51.jpg)
 
 都係入房玩特攝好過  
 
-![](https://cnbuca.ch.files.1drv.com/y4mXLVDb2KJJnfF-RiHxNiJx2zU-mFse3wa1X9XqZta9glZxCGnigVltUEMz2ZfdyvuxXVyUlrjBvhlR3CARuJZcDS7D2C-hspMqyRj1HVvEf5coiA5q_4YsVWbGYM6Hl77dczcI8i-2oNRjWZCQJVpxq0YRqqLlFWpUr6onm3_Z9lg0RIcoAWraB2XzJOIaT9T63xwVeiAfBVozSAz8RFQCg?width=660&height=371&cropmode=none)
+![](/images/tottori4h56.jpg)
 
 人哋畫嘅黑板係靚好多  
 
-![](https://exbwca.ch.files.1drv.com/y4m1hK3zXHw_x3-3QJJCHahQS07xvVuZSBEx4N0a5p6CUZZ1f_1rx1V17UeG7S6YXFj5M1VH2yQB8pQkcQJm735TxWdN5T1a_pkoVuO8bCovhyU1lqnonXhqGBCE3ZgCqetZ7WV3AsA3Jb4jDVxx93vmTBaSw6kwiOGm5FlJ-p0Y56CsBPp0aVIzYzhqkqy0UtzKxE_14qJ0XjE-goStXTnUw?width=660&height=371&cropmode=none)
+![](/images/tottori4h58.jpg)
 
 走廊有以前學校時期嘅相  
-
-![](https://exbvca.ch.files.1drv.com/y4mm0PfFzlmR8kbNot3zYjwFPpsNS06DpJzp3EKpYLqlZzC17msX7B3P0i1tJMvHNWo-X-S6GR2gAdRf-fYv68HU1KWptK9etlV522zh5aIGOAgJtwFt092HEqPzdcWQOD8NffCW2UCaHyeN9gOzVdIcjcq4ZhdJycYNTdhIAKcgYdBClSZwCcDGFTliaDBv0cvwRw_XJ5oj1DYxz7Hi2H5Gg?width=660&height=371&cropmode=none)
+![](/images/tottori4h61.jpg)
 
 其中一間房就係重現返當時嘅教室  
 
-![](https://ehb1ca.ch.files.1drv.com/y4mhSgjfIgPWxzsnKW0UDMRSPCBL_p1dDMJbh_x3ktoJONsporwqJV-15MDJRfn4JP-jazxiSjlGWuRs2lqp-DkOfEpZ9HM3kWcfE2znu5zpzqVdHABV1P699HiDRNxuMDQ2EUNDt3YKUS-IiUc1KLR2dS9bi2JACTpRC6luZdEFPUia40wDEhI5LJnLy0toBsmi8XG5Ea46Q3v-m9fW0iXjA?width=660&height=371&cropmode=none)
+![](/images/tottori4h65.jpg)
 
 ひなビタ♪ギャラリーin円形劇場  
 
-![](https://b3bvca.ch.files.1drv.com/y4msk6Wwq2vE9yKUbJkGG7SDq14GKQ_6wa8rfmMKPldE1khX6FLKpC3QxhRyytX_OJyKEHqqxw0O_cEwWnpT4yU_qgKCGhPIsdhe8paHErJ4fBc_mE2X-B93kqEugiZwOQj4sPcTv0caJ7oSZGlC6VS7djr_tL55WQp_ussD9LgVrQ_jXhRJ-bwA-MQX6vHR9kDX_RCMk-7qh8M2yaJaostkg?width=660&height=371&cropmode=none)
+![](/images/tottori4h67.jpg)
 
 日向美商店街  
 
@@ -457,7 +456,7 @@ character房，有eva四葉機動警察batman等等
 
 ![](https://exzvqa.ch.files.1drv.com/y4m11YV-9LCkJ7ILxASsCFjDS-uYz4SVUFxAdpgkpNduYV9Dx5gtx5y0E95nraZNWS1Z60o63oDb0ZnpOuUqlCo8WMStaoQclqqVriNNke6u7kIJ7T6Pqdr4b7j540ZTVb1FmhBEnoClRv7Z7QqwZYOZrh6cXJsMsSqJd_xx5e2xTqlTcDVgoixeh1SPTXg8vtm_MvctN2Vei3B8aMSipPNpw?width=660&height=371&cropmode=none)
 
-**オークランド **  
+**オークランド**  
 舊建築上面嘅牌匾係英文字有啲好笑  
 
 ![](https://dhzzqa.ch.files.1drv.com/y4m6YYhv0RhVRfJJE4S1DBZ73TM8TMmCrFqDoZ5dGpqwxMf7yENQM_unhNCgmhrZLsswXYk7KtAUGb9x61cOOR7V83bewtMshABGbi2YgxYkduZrtJh0bs685dQcFH7CLnCLLraPkSdDZjwTcj4D85kDFAVmyYO0bwREnpEzklDrwDoEkluXXeGxJgH3R2KBG1BNKKnDNhcAkifM65ctHUvRg?width=660&height=371&cropmode=none)

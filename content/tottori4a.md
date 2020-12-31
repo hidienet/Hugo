@@ -172,57 +172,57 @@ check out
 
 日向美商店街  
 
-![](https://bnbyca.ch.files.1drv.com/y4mLmV2mokh8IVsjXeQRpqA13py9tAALDJCZ11F6uhimsgJCxYJyDn0UF3GRyL-ZrJIJjfwm-GbrIBFSb_g-sP-1Zg--Qm9grqGxykJGeYFiNJgmsrxtVgzYG_w_v2FlEvau8LOuq8J8K6hzmu7uOEzWQv_C1Bb2w4M9hiqtoT4J67lm9gkEKZymZUHpPp-JsU5sfMF6QvaZ66juqrNxuZl4A?width=371&height=660&cropmode=none)
+![](/images/tottori4h76.jpg)
 
 迴旋樓梯好靚  
 
-![](https://bnbuca.ch.files.1drv.com/y4mBUPr3Nus5qVlqLuTNHELkLRDOUCxv7XfdkDziaClvpw8KZWMClExbWZKWVPaqmpm417VRzSjSrtZw0_TN9Gt8JeATU99twn4oQIeQ4eyGLyYEmNZNOAlp_e4qh9UuO96EqOsbAlQ8VEQX2T42rPpkTgatBYyZIgZVV3U-jmyiCNDxC13qEEYk43EXiOTbOWtFmBW4Y0bapwcMQBZ43jznA?width=660&height=371&cropmode=none)
+![](/images/tottori4h78.jpg)
 
 上天台睇景  
 
-![](https://dxb1ca.ch.files.1drv.com/y4mMnZwzzuOTl8DBPZIAd8zLssRqM-cA8DEbZBhpXm4m1R4lNeumHZDjKTTT_A-mnVwI4GU3Oqt1I2_7nm0NHz6hy-gcEJmWd8LvGeokNWql1PBh3Xlyxp9AumvVwqeDUSc98evOCAlpLF50XNEA4RheErOkyV44kadOsC-Ix1d2jHn2SOhCoNx0EMgKVaLvgObq7cRoBdwK7yEMD8Yy3zH6Q?width=660&height=371&cropmode=none)
+![](/images/tottori4h81.jpg)
 
 天朗氣清，連大山都望得到  
 
-![](https://dxbwca.ch.files.1drv.com/y4mcbDouz71cwl6GQt-LoLLAilAIUcoFgAi9JI1tztjdu0Hm15fV0cIt50AMOoyMPxMjE-52eqgkxBRRmHZCEE35NO5VD7QAMNYGX9LtT2b1VmS3-j9sqq7WD-AOQi18mY-ybPmGgpEKIUHCOoMUq6oa-CJtICzG2_rFAmpj5vkZKgesWBknrZTDylUp6M5o-duLQHTcMxiKT5wiZXP8XKY8w?width=660&height=371&cropmode=none)
+![](/images/tottori4h83.jpg)
 
 行落二樓一入房就見到佢  
 
-![](https://dhbyca.ch.files.1drv.com/y4mYoIxmOZidbH7clyBTwyu3Cf2-fYR-xNGBil-qUbpFnqABDDJmZXoMYLopiuteUtYKK2YzpoG-LvWsGk9DOmgzwb9NS0fQ5QxixXvJ3Dct7zCSf2zeM-gjPw4Y_yvmmtIVXg779sff0EwX-KPbQQoHYy6ktu3kpSU8XZt-McfgqQQmOmp8_xXxojsrRvf60cl7lVa-QYzRiYEs6zGLZnK8Q?width=660&height=371&cropmode=none)
+![](/images/tottori4h90.jpg)
 
 next，動物房  
 
-![](https://b3b1ca.ch.files.1drv.com/y4myTzDJ75gXQqPbK3Z57xYJjvkpOLvWz7JC0iLkAK8JF_mwhXdER_BIScwvnutLPQ0vs_3-cWU-HXvSEaMqN8AUU_9WJDIm9faF7XKln9KeWYFxBqCGIRegEDeusYpsapBSybOefencbbRpUGm5BkJiO9aYTcihnbE6bxuoSUATfXHYk9YA5Xd7slEG6UkrEVNwV75L522H11buFk5V2ylFg?width=660&height=371&cropmode=none)
+![](/images/tottori4h96.jpg)
 
 military room（PEACE！NO WAR！）  
 
-![](https://dnao5q.ch.files.1drv.com/y4mPxDRe6zBw-MWpQOiVVynud8NJhQrrZfmCTaTGqD0JblhPqVlXRSqsHZP2RNm6Mpe4ULVf5qSFF1bB3_vCuFSE08oHaPStzrDIQ-nKx50G8ZF4A1H4-VeplkmLH7nJYWI9MW4ECQ53yVYUbGu6ce3elz2WUUFfOI3lJD2QVrBPEmaGQxJ9KYnBIvARpFXTeaQ_XuHensPPQRocBHhc5umqA?width=660&height=371&cropmode=none)
+![](/images/tottori4h100.jpg)
 
 hola大隻  
 
-![](https://eham5q.ch.files.1drv.com/y4mW2AUlTzSprrxVFEo-l4yuMAAEsWvu6X9fEQ1ksdoHyapgzTOZFzuJfUTGPsjV6o9RgpECPPVPL9yx4sL_200MGY4AQ3mFaALtMY-0oOAcZiYZFz_1lmdkINT-S1FXHv2JWZIMNNmotZ8y3xkSxTF1137q2E9Yax4Vv10D5LIk_eNspu36MU08CdbkrJWH_uEHXdJQwnzO5xnTyZl498Y9A?width=660&height=371&cropmode=none)
+![](/images/tottori4h102.jpg)
 
 character房，有eva四葉機動警察batman等等  
 睇到嘩嘩聲...  
 
-![](https://ehak5q.ch.files.1drv.com/y4mHip2zXj29bB9sRpDkK5iZw4jywApzV5jdvD-57GzIQf8VHMa5wNpjAKb1ilO7UEM4LRR7dvOX_3ZdeZWOn5P3OvXMZzsmHuEgbPNJgMaxv9Kkbk9c1QKck0JkBVy4j0ZanYBk4taWmuHp5a94iYpEwLrAdUWxPGCg4lNffSbv8Y7WXmR_WlnRediaiqw3pgta6c6RfSPDc1Qf1gN561eXw?width=660&height=371&cropmode=none)
+![](/images/tottori4h119.jpg)
 
 最後就係呢個日本文化房  
-由傳統佛像有日本嘢食藝術品建築等等figure  
+有傳統佛像有日本嘢食藝術品建築等等figure  
 
-![](https://cnak5q.ch.files.1drv.com/y4mp6-xwJ07c2ojQCdLtwyE3rmc6nS99g8-NBIfel9iAvIgmb0fczL6UZz5vtBo2A8POs3yIIZlLETeOztCpivjeeoGFObCXQShPoX8fdjkpgNvIGBm93YACUB3Xse2lpqqP_6URfNYvffG9Ltegy8PGBkb7Kw0IT1fxt0AOaDyvt9yguTmNlofs8piVrxxnHYRb8QiF_pS02gsO8DF8CvTkw?width=660&height=371&cropmode=none)
+![](/images/tottori4h127.jpg)
 
 講開日本鬼怪，硬係有鬼太郎嘅哈哈  
 
-![](https://exar5q.ch.files.1drv.com/y4mCOMU8u9kcPuVCUzyGy8ztp57FSJI-Xg7CW0RTjBEsgr-KyobmIQGnx0J_YTVWYk8T5D0jbVTxrBn4GtcVfvLvNA4MPNKgtctSbNwPeBGzQKlJjfohVMDlB2I-yLpGAvIaj1whY8tWOCASRhoASmzJ7dC06iMx0Uyob_url2t_VKQ7Sxcruo0Av-K8wKCb3tanA_HKo9lclngrXcBM3fVHw?width=660&height=371&cropmode=none)
+![](/images/tottori4h128.jpg)
 
 話說倉吉市呢度都有出咗位橫綱（最高級資格嘅相撲力士）呢～  
 
-![](https://cnan5q.ch.files.1drv.com/y4muXpXe5rPzEZ0alXg5HNzI8fwAn69dkaSlkZF6RQ9KmQEOXEFSESu2-RrG3_WivYs9kjJ3hnODUgg0ShCAGOdWem5FQg_Ti00xs4xIIKDjjxwG2XuZHA6T2uku8WtT4niSvn0E4Ls9r9QXKuEFdvQDAX0NvKcRiMky1nQ6eEAaqaiM_ApUQu8r-ZfRAtZgaznSRJhyBdxS3e7dsB2oe6Brg?width=660&height=371&cropmode=none)
+![](/images/tottori4h130.jpg)
 
 臨走都係要買返樣紀念品嘅嘻嘻  
 
-![](https://c3am5q.ch.files.1drv.com/y4m3kz8nyJAoha6JWKlRZSK_eXzm4zE0sU3UL1g5ggrY5xevIrmOU2itqUreb-oeru3KagWv1enjGhQQHTW2odSgVc-3mMKR7UHgfyw2LQ_PFBHqGQRdWb_VCjLzarTkFtJ_oNQE_MgkOYyvr3m99gGoez_-Oqe01ECaNcoCRDSvQTaj_3INgwQ5c15F_p4z17QYX4nXdTleAOG4Y7LrHa_PQ?width=371&height=660&cropmode=none)
+![](/images/tottori4h131.jpg)
 
 咁抑鬱樣嘅主角 @**遥かな町へ**  
 就無理由唔去**倉吉白壁土藏群**兜個圈嘅  

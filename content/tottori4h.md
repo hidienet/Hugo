@@ -15,18 +15,64 @@ tags : [travel-日本-鳥取]
 係倉吉市以至全日本最古老嘅圓形校舍  
 
 ![](/images/tottori4h1.jpg)
+
+拎嚟改建都要睇吓係換咩藥嘅  
+
 ![](/images/tottori4h2.jpg)
+
+佢係換咗做figure嘅博物館啊啊啊啊啊（激動）  
+
 ![](/images/tottori4h3.jpg)
+
+因為廢校後有七千人聯署要求唔好拆  
+
 ![](/images/tottori4h4.jpg)
+
+就改建翻新成而家呢個figure museum  
+
 ![](/images/tottori4h5.jpg)
+
+**ドロンジョ**  
+小雙俠唔係我個年代嘅...
+
 ![](/images/tottori4h6.jpg)
+
+円形劇場瓦楞紙模型  
+
 ![](/images/tottori4h7.jpg)
+
+結構冇變，仲有啲vintage雪糕櫃飲品櫃  
+
 ![](/images/tottori4h8.jpg)
+
+**ミュージアムショップ**  
+先入musuem shop，唔係買「紀念品」住  
+係買比佢更更更緊要嘅... 入場券！
+
 ![](/images/tottori4h9.jpg)
+
+然後用[まんが王国とっとり満喫周遊パス](https://hidie.net/tottori3k/)換入場券  
+又係計C9數嘅時候：  
+料金1,000円；用鳥取藩乗放題手形bus pass買1割引\* = 900円；JR West pass無得減  
+（\*只限常設展，用満喫周遊pass就任館通行）  
+用呢個1,000円満喫周遊pass就咁買已經抵返晒end game  
+
 ![](/images/tottori4h10.jpg)
+
+臨走先再慢慢睇有咩買啦～
+
 ![](/images/tottori4h11.jpg)
+
+有太多嘢想要
+
 ![](/images/tottori4h12.jpg)
+
+（奈何荷包唔爭氣）  
+
 ![](/images/tottori4h13.jpg)
+
+正所謂唔買都睇吓嘛...
+
 ![](/images/tottori4h14.jpg)
 ![](/images/tottori4h15.jpg)
 ![](/images/tottori4h16.jpg)

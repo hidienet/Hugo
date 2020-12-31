@@ -68,7 +68,7 @@ check out
 行最少係另一架响**鍛冶町一丁目**落嘅  
 不過未見嗰班車就行多少少啦   
 
-![](https://bnbtkq.ch.files.1drv.com/y4mOoQH4WgClC-Br5QyI6GShr1szXGWXStSea1G-o6pripHiG9R8nnmDcc2U_HesME8Cv0dIyIlD8Ix7NVPa3-P5M3HU6dCx5GJ8SFCjYbcLotbaxhyckZCp69U24UNXzF2ajTa9B5z1wKVPXwNEKSo5JwuidPVpoOvxN6RZAYp1oAsXP3jnf_LPTNNKNVmf_cNmTZMt1g-hRpknzOo5o2evA?width=660&height=371&cropmode=none)
+![](/images/tottori4h.jpg)
 
 [円形劇場](https://hidie.net/tottori4h/)  
 於1955年竣工嘅**旧明倫小学校**円形校舎  

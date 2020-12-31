@@ -196,10 +196,6 @@ next，動物房
 
 military room（PEACE！NO WAR！）  
 
-![](/images/tottori4h100.jpg)
-
-hola大隻  
-
 ![](/images/tottori4h102.jpg)
 
 character房，有eva四葉機動警察batman等等  
@@ -235,7 +231,7 @@ character房，有eva四葉機動警察batman等等
 ![](https://dham5q.ch.files.1drv.com/y4mSN0jAL0in0uRH05xPbF8FR0Eg2AiFORN7FglqFmJcUZLxcpmkodvaee_7HajsGp-W-VV_4Z8wodpQakcOM8l8xTFDLbSB52hRhRrd4L37xqUDCVAKcUcNZUrPz-tedqhuXP_YkqKQPv-lX2g2IZBaGVKHzg663COoQ9qx3UNvQ4EUc1JYJl4ARJclB9jkwqOtMQnLl1pqlHUGYoTjCuEQw?width=660&height=371&cropmode=none)
 
 決定行去倉吉白壁土藏群前  
-先去一去**満正寺**  
+先去一去[満正寺](https://hidie.net/tottori4i/)  
 
 ![](https://dhaj5q.ch.files.1drv.com/y4m-SWA2odNSsscZstph27I9J6US__0j4REmoiDlXfQbWUDktv_8Xf3uW61f_IqGv_OVO287Xjt17ASDGM-HWAhW0SDfzMSQuC3OZlNtLEaiLWEW6I-AoYf_Gplw_FiIuQJ5PhH32LLRiWXqI3sZdjKvasE80VPF7JEL24FlW8ra2zc2nHErXV1SxOaAXRVayoPTWlkS-aeR89vpsIIxmxVHg?width=660&height=371&cropmode=none)
 

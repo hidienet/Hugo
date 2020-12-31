@@ -41,7 +41,7 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 
 ![](/images/mainichi4.jpg)
 
-飲食習慣因為黃店以有啲轉變  
+飲食習慣因為黃店有啲轉變  
 以前唔鍾意但而家會去食[茶餐廳](https://hidie.net/dineinn/)  
 以前唔鍾意十十下但而家會[打邊爐](https://hidie.net/hotpot616/)仲拎返屋企打（&[盆菜](https://hidie.net/shingkee/)）  
 一直都唔鍾意食[龍蝦](https://hidie.net/labeat/)但今日會主動嗌返隻！！！  

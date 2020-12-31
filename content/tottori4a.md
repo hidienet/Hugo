@@ -74,16 +74,16 @@ check out
 於1955年竣工嘅**旧明倫小学校**円形校舎  
 係倉吉市以至全日本最古老嘅圓形校舍  
 
-![](https://b3brkq.ch.files.1drv.com/y4mjxQmyF6A17M9WEwcQyTBQA3TL6VGZNd6BC01lkq1FJKphVzEanfCot9r4p7AJXBX1Jo2cfhMIwm7lOJa3RvXPlJTvZCZHx8umvUTFtr2CLFScMcuJKtIr477rFEPhSMTEQAF0WUS5xdabHfH7o29I7gthMDp3Nj5UyGn6W1Eu9U7x7-oMp7zEjxSwDFAet6I6gZfQv8b4Q7pxGykulIPjg?width=660&height=371&cropmode=none)
+![](/images/tottori4h3.jpg)
 
 廢校後有七千人聯署要求唔好拆  
 就改建翻新成而家呢個figure museum  
 
-![](https://b3bqkq.ch.files.1drv.com/y4mikQZbgAN8X-IikucX7faKY-tt2QDcXiQp_7OakIYnlpZQf6y0jKK0XXsaUu4Ylnv7J4FuKF2uupRvk_pElUxfnnMHvsZ5Jq0lYkVPYnv7q5EJO-SfC_WBI1-UIP-iwD9bcfUwZIshqFk8GoVs2tFh6VQpEkO6o0cQW1W4zfsO4RQZdkoTyflhDFmomAIxBr29ZmOOlmyt2zfR1_vXXQ2pg?width=660&height=371&cropmode=none)
+![](/images/tottori4h7.jpg)
 
 結構冇變，仲有啲vintage雪糕櫃飲品櫃  
 
-![](https://b3bnkq.ch.files.1drv.com/y4mZiD2ajutXiqDPeqk941BbeJmrIbgekkiifnRxcbIaMLkf0F4r3MPS3apom1tyyob8Uf4HVPCdbRe0zkKOOimbNBwSA1sADukxp9s5OtkJ9Tf6YWqJFIT_sAHViW8-COBoY8lI9h-BgqK0jr40AsZ_rmSnWg56sBIB3XAjlb5qy5yXNC_tDTxxPJFmuqiXGNvRQWIB0YcysWkbWZvwUbM4w?width=660&height=371&cropmode=none)
+![](/images/tottori4h9.jpg)
 
 然後用**まんが王国とっとり満喫周遊パス**換入場券  
 又係計C9數嘅時候：  
@@ -91,11 +91,11 @@ check out
 （\*只限常設展，用満喫周遊pass就任館通行）  
 用呢個1,000円満喫周遊pass就咁買已經抵返晒end game  
 
-![](https://ehbzca.ch.files.1drv.com/y4mIdM_Jb6EXqJjD4tza2gWvByYxP2pXNQ-ynSC9W41Sq23jaANebhZ0gQs2Ag2fwe_LAS1eQSDoeOFufq54JDFUsjUci1Go0YtUtx6tw0yCoU6oyjY2qlAhrRd_V07_XwUPrtPP4vYucXpvMifte-rhkwL5PhjsCWmG4ywMtyFLGp0V2DXFhphEhtqe3_zmiuLSX1PD-eEK6lVp1TAZ_G3QQ?width=660&height=371&cropmode=none)
+![](/images/tottori4h10.jpg)
 
 轉頭先返嚟買物部啦  
 
-![](https://ehbxca.ch.files.1drv.com/y4mXunduOzyzbU84ouMJ2RRnBKQw8-kQslq4Tzso0eQrmmgK-zkFkOf315WfJPIU9eSTDFQUSgSMf6RrihVlfylxCyccKCnKd_-01KiK8ZHdpw2OEmEDGiK1tVxcosTVcRWcI3lTmBaG-2LS-5u337C3IWIdFsBwEFr5lU-4pHzsv-odTrnnaQNczofDHcMHDQCJdzOsFjeUg6JGJIOLPTUvQ?width=660&height=371&cropmode=none)
+![](/images/tottori4h12.jpg)
 
 有太多嘢想要（奈何荷包唔爭氣）  
 

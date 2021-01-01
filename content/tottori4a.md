@@ -248,7 +248,7 @@ character房，有eva四葉機動警察batman等等
 ![](https://dxam5q.ch.files.1drv.com/y4mg12BNxKhTlrrJsUC2v1vvkTl6uf8A4pSE5hLcbQgUimEnyvu9Y-LF3XZJeBBj4b38ykQ2DwA-2pLMOoU5e0t4EKcMTjHCDcK214FY62BFe2-zdFQDYhO4HezsmonJSMdBLQKCUSFgkV7gdCHAvdlqu3ZPuo5WBMQ0dGPz7eoQhXA846ANzlsjpq8Mmk2tSCr4zHqnXea5ZG5lUvJ5WMg3A?width=660&height=371&cropmode=none)
 
 繼續沿路行幾分鐘  
-就會到呢個地區嘅建築物群保存地區  
+就會到呢個地區嘅[建築物群保存地區](https://hidie.net/tottori4j/)  
 
 ![](https://dxal5q.ch.files.1drv.com/y4mQxNAMQhA7W0FJPpag-HiX4Rni2Oen9R8sdd6lHX8bs1qouAkvRO5S4e1D85hMuKxH8mc20_TQBILf_cK5oKYWlcMqK_Mkqz9Y1R4EZYVPNdEfRscfWq4gCkwSmXf6xxWKq236Jaa8Qje4TFy6ZHn-sdAy2TinbDD6NQHp6Ic473yRkkVa0vebvIZQXm5H8hjkDMK_3fioAHYbP0duh0QuA?width=660&height=371&cropmode=none)
 

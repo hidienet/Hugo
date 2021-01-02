@@ -245,30 +245,25 @@ character房，有eva四葉機動警察batman等等
 
 參觀吓算喇（笑）  
 
-![](https://dxam5q.ch.files.1drv.com/y4mg12BNxKhTlrrJsUC2v1vvkTl6uf8A4pSE5hLcbQgUimEnyvu9Y-LF3XZJeBBj4b38ykQ2DwA-2pLMOoU5e0t4EKcMTjHCDcK214FY62BFe2-zdFQDYhO4HezsmonJSMdBLQKCUSFgkV7gdCHAvdlqu3ZPuo5WBMQ0dGPz7eoQhXA846ANzlsjpq8Mmk2tSCr4zHqnXea5ZG5lUvJ5WMg3A?width=660&height=371&cropmode=none)
+![](/images/tottori4j1.jpg)
 
 繼續沿路行幾分鐘  
 就會到呢個地區嘅[建築物群保存地區](https://hidie.net/tottori4j/)  
 
-![](https://dxal5q.ch.files.1drv.com/y4mQxNAMQhA7W0FJPpag-HiX4Rni2Oen9R8sdd6lHX8bs1qouAkvRO5S4e1D85hMuKxH8mc20_TQBILf_cK5oKYWlcMqK_Mkqz9Y1R4EZYVPNdEfRscfWq4gCkwSmXf6xxWKq236Jaa8Qje4TFy6ZHn-sdAy2TinbDD6NQHp6Ic473yRkkVa0vebvIZQXm5H8hjkDMK_3fioAHYbP0duh0QuA?width=660&height=371&cropmode=none)
+![](/images/tottori4j2.jpg)
 
 **翠香園 津田茶舗**  
 踏入街嘅範圍已經感受到濃濃時光倒流嘅氣息  
 
-![](https://dxaq5q.ch.files.1drv.com/y4mpns2ci9r66rLhqiMgZXQ8HF5Jbfy0QxSyz98jjqNSRLzYcrNMjaI0zd5BFE2flM95uZzEGC2e4mlEJjI3qQauOZxsAt7owhl7gCHhFNcbD856dPl6XF5i4lN1D0uwnG2mvOjwQeSpgg-trmOkITIMODSC-UxNdlcK-8d2w6BFrPWwdXrNSj9SZD1L1ffoyzTbCAfkXQBJwHoT0wlrI0FCg?width=660&height=371&cropmode=none)
+![](/images/tottori4j3.jpg)
 
 **豊田家住宅**  
 国登録有形文化財  
 1900年江戸時代嘅呉服屋兼住宅  
 
-![](https://dxas5q.ch.files.1drv.com/y4mW56ks8lkCGCuLygSGOGRakMb689vHExdCtOzhCWIaEh9jaYp_D4XKH2SBXm23CQBoP9XqGX7dkpSalMr0ZSjgDV9IJAi-q1QpRC_PjwxzIEkKMPM0APJRAj1yV-vK-XrWCDKYzAzeKJGv3LV7-nWN5f6BUoSEmbB_pTYGlZNtWKPAYAZYZlIhVHIAj6hVdvJLtv6_BoCi1vjZy4iW3R0pQ?width=660&height=371&cropmode=none)
-
-**おもちゃのたいら**  
-懷舊駄菓子玩具店  
-
 ![](https://bnan5q.ch.files.1drv.com/y4m6rBQX7CBj5x8_xBJXBgXuhHPs3T7WHQSr9xjzcN368a56513E16SDX__WxHH1lD8dcH1ygt9CbTN6g2Q8TaN-H0TBFAJP6utAdiX-2ZMGq_-a2d3bak3C87xplokBC7qb0LjG7CSv7Ky-QvFybEANBWy5tPhrEfqqsdhnDU1bQfCESNwL7G5sQNzCORquQ4X6mfotL0Hmk0vdjxBZIU4ZQ?width=660&height=371&cropmode=none)
 
-**倉吉淀屋（旧牧田家住宅）**  
+[倉吉淀屋（旧牧田家住宅）](https://hidie.net/tottori4k/)  
 1760年（宝暦10）建築物  
 係倉吉市現存最古老嘅町家建築  
 

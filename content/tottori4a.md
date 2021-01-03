@@ -261,7 +261,7 @@ character房，有eva四葉機動警察batman等等
 国登録有形文化財  
 1900年江戸時代嘅呉服屋兼住宅  
 
-![](https://bnan5q.ch.files.1drv.com/y4m6rBQX7CBj5x8_xBJXBgXuhHPs3T7WHQSr9xjzcN368a56513E16SDX__WxHH1lD8dcH1ygt9CbTN6g2Q8TaN-H0TBFAJP6utAdiX-2ZMGq_-a2d3bak3C87xplokBC7qb0LjG7CSv7Ky-QvFybEANBWy5tPhrEfqqsdhnDU1bQfCESNwL7G5sQNzCORquQ4X6mfotL0Hmk0vdjxBZIU4ZQ?width=660&height=371&cropmode=none)
+![](/images/tottori4k.jpg)
 
 [倉吉淀屋（旧牧田家住宅）](https://hidie.net/tottori4k/)  
 1760年（宝暦10）建築物  
@@ -280,7 +280,7 @@ character房，有eva四葉機動警察batman等等
 
 ![](https://c3a6hw.ch.files.1drv.com/y4mwI2jX9S21HvEvsKGGlKA3oxAKqeFa0BVtKCBMpMhEL0UyCEl_ssafpEofB6I3LOCswWGeLKkkxrzYq84L7yzPYUaMNLjz68KWRl1u-p-U3ajsH2M6um_GyrWLYUdgoDBmqMVND1b86fa4o4rc9HV4h1pQHtME-7eNxDdoVKRmxOSRVhiv46K8gpfu_jEhyY1OTCWq5Bm7wv2NAPRLKIFug?width=660&height=371&cropmode=none)
 
-沿住**玉川**行  
+沿住[玉川](https://hidie.net/tottori4l/)行  
 
 ![](https://bnaj5q.ch.files.1drv.com/y4mE5ipqj7Lmu4kjdIkvHGftFNvKx8_-eWY3U-49s0m-1X3M0k_NXkZhK2nV1-FSVQ6-Mhoec0O9h1CUu8DuP4rqwMOUNR0jnfte1txb3ICzDEqxNkD_hLUGySattObjau4-UzOmbxlmskYRw6FOAOw5q_2WNUDWb1693J5pipm6Tz9jvhixTNzi_v9d4eFM6ceGFvNhDZt7vGsR2VkbI1t2Q?width=660&height=371&cropmode=none)
 

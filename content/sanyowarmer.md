@@ -7,17 +7,17 @@ tags : [lifestyle - zakka]
 ---
 
 凍凍凍凍凍～  
-沒有人肉暖爐就唯有想想辦法  
+無人肉暖爐就唯有諗諗辦法  
 
 ![](/images/sanyowarmer.jpg)
 
-相比即棄型的較環保  
+相比即棄型嘅較環保  
 叉電就OK  
-黑色的小小蛋又cool又可愛  
+黑色小小蛋造型又cool又可愛  
 暖度有兩種調校  
-回春時就不需要那麼熱  
+回暖時就唔需要校咁熱  
 
 ![](/images/sanyowarmer1.jpg)
 
-用comme ca ism的BB小手襪包住  
-美觀可愛又實用耶～
+用comme ca ism嘅BB小手襪包住  
+美觀可愛又實用呢～

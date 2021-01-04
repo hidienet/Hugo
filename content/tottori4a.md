@@ -300,31 +300,27 @@ character房，有eva四葉機動警察batman等等
 県指定保護文化財嘅**高田酒造**  
 準備中無得入去買酒參觀呢  
 
-![](https://exbahw.ch.files.1drv.com/y4mdnGlt70YkrXuDq7YFDqphebJAITMlfWb3w1nCy7GGj8YIQSUDHbgpvHhVLI-PTEFGLkKgVW3JJQBQFAHESz3NdToOrqzS34co3o95eftij7L-kmnPzAwNZjo-9OgM7pnZaoL92MkwHF3oGHktGHw30Gj4rG9BDgHDkqFglmy_dG9Yeh3QwZ1twbuk4BIzDHjoo8gSO-4mUooy1ddqK4z6w?width=660&height=371&cropmode=none)
+![](/images/tottori4m1.jpg)
 
 **弁天参道**  
 
-![](https://exbbhw.ch.files.1drv.com/y4mdEGV034V6HqLHpLbj_Vtf1axApWFCHFrThmLFmimvbz0NsV9WeA9rJGC95Bb_3c9Iczu4DcXD-JYQI9jAhl6MXAmVYcbd5Z-ZnsgaOA7EPOA1Z5mP2ieJqcII6aXRz8trXGIpNkJgD6LMNHbJ2P1ik7m8CKoWCIR9gIACjw6afst05PoQagkY4St7b8KMTERhU8pXFsMdLX7N8-2RAPTrA?width=660&height=371&cropmode=none)
+![](/images/tottori4m2.jpg)
 
 呢條小路係行去大蓮寺嘅  
 
-![](https://exaphw.ch.files.1drv.com/y4m9dA-isNRHhBV_W79A-hNtAxG7fWYxowlzE_sNflKz7gNLxWCQFXBZFmjTMns6BvLhnJkQl9NQqJg5p22W2zrR7Xby8n331e1ABjaNQdQDuKUHWzlxYr0sV-1XREUxbQcqPAqQj28QPee6CvG7G3WKNkbbmZffNTk0G72wb3-QIy98V-AsN4FxTiJo6LpO1k7fLJUiT_i85K2ZWZRCCeo0g?width=660&height=371&cropmode=none)
+![](/images/tottori4m3.jpg)
 
 行到呢個位仲一貫室町時代嘅風格  
 
-![](https://exa8hw.ch.files.1drv.com/y4mncnG0wF1q-ByOT_9zPba67XSYTm7WtnhjJi7WxKWXWNQBgz3_Njw4UbSCtWdB1spcVKn13hxbnOkO_l3B-LLml0AO4c14jxC6j824qk87O9UoD8B7sfsLZjTY3axT6LrFqo62gH6JPOsl69ra3JXvZvBQ5Hs_c2Bdcz1Eo3iwJO224pqzn7ZTOUwqq82ea8EJlMsE4WCIkz3nOzpiPqObA?width=660&height=371&cropmode=none)
+![](/images/tottori4m.jpg)
 
 直至見到[大蓮寺](https://hidie.net/tottori4m/)嘅真身哈哈  
 從1575-1592年合併嘅三座寺  
 再响1955年用鋼筋混凝土重建  
 
-![](https://exa6hw.ch.files.1drv.com/y4mGsEYxNywAEyusDjMAIBhgosG3RusWvWsbAIg0cVzFQmbZc18d5dWDYaBkGQMtUGs4_zn2LU8D7F1DIj08Gg0Gub5D40wTt25HM7Wqhg8RIq-64Uzr_w_bbXdx_5PrTqKenItSMguG23_YgmGrNsylg2mdqvXevF_Wt6GUlkXoWStMEErdhyj14WtaOoHz99t36moQeY3dYaHWYMlx50PqA?width=660&height=371&cropmode=none)
-
-**弁天堂**  
-
 ![](https://exa7hw.ch.files.1drv.com/y4mFyrmcEQqC10ezJHmkkL5LBQXUHIexui4p78RATuh1cd7ij185NoVTs2DEuy2omknikGweCIwJkcGpim2yS9693AJHyl8dTHO78JBq8SBp-G6ckEwhk-u7NggeX43_uoO2jV-G-1uYIzVhSKbPD1xGQYXK08Xk0G-AZZxRSDq49ZkuCL9mIY65IkNmakTkd4tPBJPLttNW6josn68YFYWmA?width=660&height=371&cropmode=none)
 
-到達**白壁土藏群**  
+到達[白壁土藏群](https://hidie.net/tottori4n/)  
 
 ![](https://b3a6hw.ch.files.1drv.com/y4mDhkMkCb1gl2_jgwunT-x1bFPXNVG5HlogMzSOCAnmAXULSBB2FdJdUBd8uc14bJHCPJv-9sf2PeutrRXqqZKu0gac2U3fGAy5YVXMrXiDUHNpEE_0XGodqnRh6tSqgaFth4ekuQhvZAyTYWjMG3AMIWM1wr2zmwNXABqNAbfK-ht71nPM9wbFHXObFMz-1rfgG8pCz38G1IF_ID-YPPrsA?width=660&height=371&cropmode=none)
 

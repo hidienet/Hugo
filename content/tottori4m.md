@@ -6,10 +6,12 @@ images: ["/images/tottori4m.jpg"]
 tags : [travel-日本-鳥取]
 ---
 
+穿過西仲町...  
 
 ![](/images/tottori4m1.jpg)
 
 **弁天参道**  
+見到花喱花碌紅噹噹嘅路徑  
 
 ![](/images/tottori4m2.jpg)
 

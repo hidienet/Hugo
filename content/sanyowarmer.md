@@ -14,7 +14,7 @@ tags : [lifestyle - zakka]
 相比即棄型的較環保  
 叉電就OK  
 黑色的小小蛋又cool又可愛  
-暖度有兩種調教  
+暖度有兩種調校  
 回春時就不需要那麼熱  
 
 ![](/images/sanyowarmer1.jpg)

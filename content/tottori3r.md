@@ -39,6 +39,9 @@ tags : [travel-日本-鳥取]
 ![](/images/tottori3n15.jpg)
 
 **「ターボエンジン付きスケートボード」**  
+
+![](/images/tottori3r8.jpg)
+
 同埋有隻青銅柯南焊咗上燈柱中間  
 
 ![](/images/tottori3r2.jpg)

@@ -252,7 +252,7 @@ well，呢隻係蟹唔係妖怪
 
 ![](https://2wg0wq.ch.files.1drv.com/y4mEOgfpaObkEE2gaYKIgG8deWsQ3aknZp4jSRVVy_8Qp7j5R0ylTROvJ7N08AncH-Nv5bmM_-112cV7QZiL4QZ4qmgDNR6oczfj_VOq46HDlHl7_I2_Cl2GFRExvth-lVjSurnyz1klqh9L3FpEuy3z6Adhm8xgRQK4PFVQbjpleAM7WW8OKlqKMUCZHtDueYydryMmTusFFs1crIkhmFEWQ?width=660&height=371&cropmode=none)
 
-返酒店睇木村（**[グランメゾン東京](https://www.hidie.net/2019/12/tbs.html)**）  
+返酒店睇木村（**[グランメゾン東京](https://hidie.net/grandmaisontokyo/)**）  
 
 ![](https://2qfehw.ch.files.1drv.com/y4maNP_zVkAWMUhi9kW1KaLOZtOv49QQvVq4tX5iaCmrTHiP_B-Th0JVQV8KuAr2UrQs0XQPCr9oW7kv5czERSfgaxALJMKIKGGUw3lyQixmTS97zcyd2O_GqrX7I2w0XgIu3oRAJhextnFb5Teed1q_XqYg--uzNHVezn58oW1F3TU2cZx9nnkTcHHSMXQynNJvqs2Wgf5LVnxW--DOeS6vA?width=660&height=371&cropmode=none)
 

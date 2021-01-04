@@ -267,35 +267,35 @@ character房，有eva四葉機動警察batman等等
 1760年（宝暦10）建築物  
 係倉吉市現存最古老嘅町家建築  
 
-![](https://c3aphw.ch.files.1drv.com/y4mHA3m_5-IMtBh5-oO5CijxpPNLlloQlVmzGjXrz3X_VozN7GeHWIlcVGTc546AgstpbO-6yhb8Oikb2TOCJnmJWqaBi8ueaTOj79jUy-RuQR7qCxuQVwcjcNcvZnqaGER0huOfxSY_efwEpePJPCD64cmyG5uUvasr2xnDs7GbBO6QZ-Cefn9zVFduztpwq5kJCRLY55q-XFq0VMy5iGKvQ?width=660&height=371&cropmode=none)
+![](/images/tottori4l1.jpg)
 
 **出雲大社 倉吉分院**  
 雖然非常近but今次旅程係冇去島根県  
 唯～ 有～ 响分院係咁意望吓  
 
-![](https://c3a8hw.ch.files.1drv.com/y4mHtN2WRQNZPvg-kL0hwgBkHHaM4BcdDjA_vs3qc-6kEM7SHdhCjmFc_fkiC0kyhRH915gNE5ns0dsc94epahsRkhfP_XjGlDZjpGbEceotOWUMsWOvLVB9GDAqWREp6Ak8BeaPBNVdTu9A-7-19T6CBQEOfXp_Bua2v1xq_L8T1JKfD5UAGia88V7R9TlApFgvCWWoibGfa-UXJP1AOYpCw?width=660&height=371&cropmode=none)
+![](/images/tottori4l2.jpg)
 
 **大社湯**  
 礦物泉水質嘅平價公眾浴堂  
 
-![](https://c3a6hw.ch.files.1drv.com/y4mwI2jX9S21HvEvsKGGlKA3oxAKqeFa0BVtKCBMpMhEL0UyCEl_ssafpEofB6I3LOCswWGeLKkkxrzYq84L7yzPYUaMNLjz68KWRl1u-p-U3ajsH2M6um_GyrWLYUdgoDBmqMVND1b86fa4o4rc9HV4h1pQHtME-7eNxDdoVKRmxOSRVhiv46K8gpfu_jEhyY1OTCWq5Bm7wv2NAPRLKIFug?width=660&height=371&cropmode=none)
+![](/images/tottori4l4.jpg)
 
 沿住[玉川](https://hidie.net/tottori4l/)行  
 
-![](https://bnaj5q.ch.files.1drv.com/y4mE5ipqj7Lmu4kjdIkvHGftFNvKx8_-eWY3U-49s0m-1X3M0k_NXkZhK2nV1-FSVQ6-Mhoec0O9h1CUu8DuP4rqwMOUNR0jnfte1txb3ICzDEqxNkD_hLUGySattObjau4-UzOmbxlmskYRw6FOAOw5q_2WNUDWb1693J5pipm6Tz9jvhixTNzi_v9d4eFM6ceGFvNhDZt7vGsR2VkbI1t2Q?width=660&height=371&cropmode=none)
+![](/images/tottori4l5.jpg)
 
 曾經多垃圾到列為恥辱嘅渠  
 而家都有少少垃圾不過至少唔臭嘅  
 
-![](https://c3a7hw.ch.files.1drv.com/y4mgsghGQ2LmnnAOEJHcmzPbunpvRVn29IdSlG_-si-K9eJIVdW35LXECMsIg8aG1IwbdxZl4gpHzzYNg4xrSoq0dV1FMUzlm5k_HGo5DfPbneRqK_eKWP2_83oeDaxBXuDtEYzUvLKsUr_c93BPhNR919aE8YL9EKL9n9kBQB872-7hGxG2C-Y_C_mUK7UNCNpVm2CdCPALIXEjGgViwLlQA?width=371&height=660&cropmode=none)
+![](/images/tottori4l8.jpg)
 
 呢邊係繼續用舊郵筒嘅  
 
-![](https://cna9hw.ch.files.1drv.com/y4mZHlR1uX4fyqB5sJYGIYrFmQECAu0mh3hf9VQio-3qXH8FxsccgIS6-iH-9p1nghw2kg8rCskhBSKg7vWOYux6kY7exNF8lcocXS_O_1XTNsJ-XnB8j-oKPAIVPbtvAPBeSGV7-xzqCE8jbzp5dSby6bNwlc1MYpwXnpEHVDythTMMVkSDY6MeOu9fitJmLXEmkW7CfFfld1U9JF3HzwMlQ?width=660&height=371&cropmode=none)
+![](/images/tottori4l9.jpg)
 
 唔拆嘅看板 x2  
 
-![](https://cna6hw.ch.files.1drv.com/y4meslEbST02LwgLrFD_Pu8T-8OTG3pJdXLTM2wvXSck9Antje2D_zY_JyBbwYT5Hdkott43_NcsKL_rGB91tuNKMZ0k2JPJ-vpGvn9JOl6XOr1LPWNXafChE2lpbRNdLFwx2O-ckl2Tkb3p9JPEzg-q9-bxAQ5IkNCQZY85S0j9f9jH6MZTpPdWwkQUmk3mijJA77_9RsPtu9l1f0bIlok4g?width=660&height=371&cropmode=none)
+![](/images/tottori4l.jpg)
 
 県指定保護文化財嘅**高田酒造**  
 準備中無得入去買酒參觀呢  
@@ -314,7 +314,7 @@ character房，有eva四葉機動警察batman等等
 
 ![](https://exa8hw.ch.files.1drv.com/y4mncnG0wF1q-ByOT_9zPba67XSYTm7WtnhjJi7WxKWXWNQBgz3_Njw4UbSCtWdB1spcVKn13hxbnOkO_l3B-LLml0AO4c14jxC6j824qk87O9UoD8B7sfsLZjTY3axT6LrFqo62gH6JPOsl69ra3JXvZvBQ5Hs_c2Bdcz1Eo3iwJO224pqzn7ZTOUwqq82ea8EJlMsE4WCIkz3nOzpiPqObA?width=660&height=371&cropmode=none)
 
-直至見到**大蓮寺**嘅真身哈哈  
+直至見到[大蓮寺](https://hidie.net/tottori4m/)嘅真身哈哈  
 從1575-1592年合併嘅三座寺  
 再响1955年用鋼筋混凝土重建  
 

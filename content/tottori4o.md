@@ -14,7 +14,15 @@ tags : [travel-日本-鳥取, flavor - 螞蟻族, flavor - 飲！]
 
 **赤瓦五号館 久楽**  
 赤瓦館有十六號共十四個館  
-而呢間就係五号館，個建築有過百年嘅歷史啊！  
+
+![](/images/tottori4o13.jpg)
+
+白壁土蔵（白色牆身） x 赤瓦（紅瓦片頂）
+個建築有過百年嘅歷史啊！  
+
+![](/images/tottori4o14.jpg)
+
+而呢間就係五号館
 
 ![](/images/tottori4o2.jpg)
 

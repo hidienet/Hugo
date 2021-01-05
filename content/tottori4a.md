@@ -359,21 +359,21 @@ character房，有eva四葉機動警察batman等等
 
 改裝成為鳥取手信舖同睇燈籠食少少嘢嘅地方  
 
-![](https://dxbbhw.ch.files.1drv.com/y4mfqDelBW3YiOaT1d1n_kHKtKgFpeaLgQ22O_B4sLtH7AlbxwBWZHoldpBWZreydANI97r4WjdFo4Qc1NSM1Joo5dfNHF2kR_nDYB34E3TVNcdiiJOI_ka-fA4kIDXiyXHhLoQm8bRSLntI6YW61RxTqCf_Fi85WY1f6zzN8jYFtbl1ExR8NeyrIu2x6nvoHHLSZxAZIzqdNdC8D3tQMNgHg?width=660&height=371&cropmode=none)
+![](/images/tottori4q.jpg)
 
-**赤瓦二号館 ワイン蔵**  
+[赤瓦二号館](https://hidie.net/tottori4q/) **やきすぎ彫刻館**  
 
-![](https://dxaqhw.ch.files.1drv.com/y4m-sK7AGOqTgmX7kreNTkWW0K25FYCA2Yq0xaHaDrAZp6HgP1zCqCQUYhku7wocHf42PblBq5VXGBp7MFFqwGkW-n_mCM_WkCwkZiMd1nw5C5dyA4XZYOxXZ-offxtSAJsxab-ChJigQEHRkyt5zs_pb66bTRQf7wKB6Yph4YjYwfa88br5R2ioOot1GkQL5R1qQI_o8UlmWetQ3vGPwMuDA?width=660&height=371&cropmode=none)
+![](/images/tottori4q1.jpg)
 
 **赤瓦十二号館 久和**  
 出售當地手作仔同藝術家嘅畫作  
 
-![](https://dnzbqa.ch.files.1drv.com/y4mZjl-yg0ss-lQEZQ5L3yon4szJ5gJdDY451j55whKDYGRDpOY012TKDEHALKMbGWTjZWUGyLWMeGYRuz8sL2KqgIfyad9K7ZPXURDjkUZ1ieh3NgJ0-McRwidV0mHly4QtOXvRTkkJCe3oCUzDKZwLMIc0lqYdT8iPXVRjlTrrm_-DjKLQVK0T2ShLXvcyeiHGhcrnsmBNMfZ9opTGwWktw?width=660&height=371&cropmode=none)
+![](/images/tottori4q2.jpg)
 
 **打吹流しびな**  
 紀念4月春天小朋友們將絵馬流落玉川嘅活動  
 
-![](https://dnzcqa.ch.files.1drv.com/y4m6KEzE8tQcpw9WOUOW94WRph9Iq-DDI5BBJi3LCOuGGEE1RPMsG2tQp46XkFypATq6S__kl3vMf9g_vDfJuDDmMD0DRDXwl8_tdkEhi0WdMJsEGz0pS-5bM4-T3LUE5NWi8siaXY4aDeuFLHZKyFua0u_CSfUFR8-tbbbuhM-pe67xv-YESQEppWYF-0Yf-GbZaaCz8ohlbOybBprWszyGw?width=371&height=660&cropmode=none)
+![](/images/tottori4q4.jpg)
 
 **赤瓦三号館 竹蔵中野竹藝**  
 建築物係改裝造酒廠嘅倉房  

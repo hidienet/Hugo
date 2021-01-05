@@ -17,7 +17,7 @@ tags : [travel-日本-鳥取, flavor - 螞蟻族, flavor - 飲！]
 
 ![](/images/tottori4o13.jpg)
 
-白壁土蔵（白色牆身） x 赤瓦（紅瓦片頂）
+白壁土蔵（白色牆身） x 赤瓦（紅瓦片頂）  
 個建築有過百年嘅歷史啊！  
 
 ![](/images/tottori4o14.jpg)

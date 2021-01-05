@@ -318,44 +318,44 @@ character房，有eva四葉機動警察batman等等
 從1575-1592年合併嘅三座寺  
 再响1955年用鋼筋混凝土重建  
 
-![](https://exa7hw.ch.files.1drv.com/y4mFyrmcEQqC10ezJHmkkL5LBQXUHIexui4p78RATuh1cd7ij185NoVTs2DEuy2omknikGweCIwJkcGpim2yS9693AJHyl8dTHO78JBq8SBp-G6ckEwhk-u7NggeX43_uoO2jV-G-1uYIzVhSKbPD1xGQYXK08Xk0G-AZZxRSDq49ZkuCL9mIY65IkNmakTkd4tPBJPLttNW6josn68YFYWmA?width=660&height=371&cropmode=none)
+![](/images/tottori4n1.jpg)
 
 到達[白壁土藏群](https://hidie.net/tottori4n/)  
 
-![](https://b3a6hw.ch.files.1drv.com/y4mDhkMkCb1gl2_jgwunT-x1bFPXNVG5HlogMzSOCAnmAXULSBB2FdJdUBd8uc14bJHCPJv-9sf2PeutrRXqqZKu0gac2U3fGAy5YVXMrXiDUHNpEE_0XGodqnRh6tSqgaFth4ekuQhvZAyTYWjMG3AMIWM1wr2zmwNXABqNAbfK-ht71nPM9wbFHXObFMz-1rfgG8pCz38G1IF_ID-YPPrsA?width=660&height=371&cropmode=none)
+![](/images/tottori4n2.jpg)
 
 白壁，顧名思義個外牆係白色  
 滿滿江戸時代嘅味道  
 
-![](https://dha5hw.ch.files.1drv.com/y4m9NkzJ4SJFYAnJXgQnmoJCWiyqzalnB-bU_arxbMBCO-Hm-uC3bQaa-or-dus9DhdthmOnH_fBq6ccyYv41oYGwJdOnYqZR3YB56MB8z79wmzTu4JOKCcn1Q3P5I4DHRBq43OZYGaUOLMHYO6qy8buxEgUnkwJEzZ8H5KsH-hC8HwpDL0jTF8obzVQPa2hHiARFKB96g90uIEqIQF54ieWQ?width=660&height=371&cropmode=none)
+![](/images/tottori4o1.jpg)
 
-**赤瓦五号館 久楽**  
+[赤瓦五号館 久楽](https://hidie.net/tottori4o/)  
 赤瓦館有十六號共十四個館（順序落無四同九號）  
 
-![](https://dha9hw.ch.files.1drv.com/y4mwnw3kVNewJXQOfgjkRMxkTx0K9LHHRStuAL1LEE9oMKAlZMcItZuk7iw-oQ6KeYemgN7AbeLDoWEd7H5OVqA6_B87jB9b4b_rhlzsNNeHJWoou32eGc_oByA1_VnCw-HIeKSMt5pufdXuLTflHLDf4RxEkf482EA0Ro_z4Im3iVcMjSpfO-1ZLJIjJPdqZsn3YRWB9ulA2kOZ5KuW3N5UA?width=660&height=371&cropmode=none)
+![](/images/tottori4o0.jpg)
 
 先take a break响呢個古民家改建嘅cafe  
 嘆返杯石臼研磨咖啡  
 
-![](https://dxa4hw.ch.files.1drv.com/y4mYWwUImjG92DAgCi4OcAlHnTn2XQxQq-Kbtr3x3lei07PwgUErI3a74EwZ_wVDpMBIDLfOxxy-kMlvl5_Cp0saxF9549Dsrs9aVOFQGseAJ_Y_K_7398R__it2wzGLBl8fGxRqglTs1hYmmpU4J97-Ox8n1cvJ3QvKm5QoiTY0hltGd1rwEyJ-W72uFp4v8SHOqYr4HNBtDtNQrqIvyhDXA?width=660&height=371&cropmode=none)
+![](/images/tottori4o.jpg)
 
 **石臼珈琲**，用隔離兜紅豆蓉嚟調味好特別  
 好IGable嘅黃色樽仔凍飲**二十世紀梨ソーダ**  
 **くら団子**就揀咗最傳統嘅甜醬油**みたらし**同季節限定嘅蕃薯**さつまいも**  
 
-![](https://b3a7hw.ch.files.1drv.com/y4muUpB1eHw2PpwCPe3neF5Kgop1HKJuFez6e21aijN4uCFfg0TPLbWGdcbH0KJj5EH3rloDp0gf3W7UhFshBKJjYIncfPHdzf-PozTBLnV46Mg955Db3emDBQam4yl4t4vwyYhZGrn6-RwI9vrYepQC9qmHBYMPxQJMUXctyy76AVunsm6a_IqVn9LUJGYYI94fj-m7nKw7OauZ2lroK7cCg?width=660&height=371&cropmode=none)
+![](/images/tottori4n.jpg)
 
 食完再上路  
 
-![](https://b3a5hw.ch.files.1drv.com/y4mj3DbW5djCvAOseX7uer7YqR5iHy4OnxjJHtHH33BXVVmXwfDj1_YI8SywlhCQbvxQaIrCvhjYkqHlh3MqPn8Kg6Pqw5f3V0rS0wIz6o9qAmvf-6ISn7ptyqEc-Dk1YQyd9K69Lx5IsZDmQ2eRxaNNtoIBrsxHcJ1YIp6esAFkSwfiT6DxKE-vbCLo9dH2lY4GJAZKMAUud825eWsZ6REhQ?width=660&height=371&cropmode=none)
+![](/images/tottori4p1.jpg)
 
-**赤瓦一号館**  
+[赤瓦一号館](https://hidie.net/tottori4o/)  
 
-![](https://bnbahw.ch.files.1drv.com/y4mxKjwbouZw4l1DO8NJ9cbWdO6eUrf6LUIxthK38dAIG62kIx3cjTGepSVf_Y_M8jiLciuT8REztUODsXlfuIXjoeGKjDpzntwZ6vCLEQBTGmi8LSZm74s0TVQb3heCdfQ3pj9kqoRX5M9Ri7_C5Rl41b8fWSLhfaRJ8Ch_p0Hq83CcuWe6RmVM6Xujepy57BHsrYKD7HIadidLDHHicUXqA?width=660&height=371&cropmode=none)
+![](/images/tottori4p.jpg)
 
 以大正時代醬油廠嘅倉房  
 
-![](https://bna9hw.ch.files.1drv.com/y4ml_jfJUp0dC_twlWT0b027v8P_kpDz5pKox_4TluX30dTRPTiznquFUgenuBMI935Z3GubJcpxYHqSaPi6WfpASOb_s9V6mGttt6DR1oU4H4fqGjHZpvTl6NrTTUgCRZY1ugSdenTlSDeMr_hjuTY-H3oso-3VHPdLse2ttCq_EpmuVJNlqwE11GkLFR9aE_uxM6yqPNbBS3JSKvSe48QlQ?width=660&height=371&cropmode=none)
+![](/images/tottori4p5.jpg)
 
 改裝成為鳥取手信舖同睇燈籠食少少嘢嘅地方  
 

@@ -41,16 +41,17 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori4p7.jpg)
 
-２階部分頭頂會見到間嘢個木頂結構  
-同擺放舊陣時啲醤油樽之外  
+２階部分  
+頭頂會見到間嘢個木頂結構  
+同擺放舊陣時啲醤油樽  
 
 ![](/images/tottori4p8.jpg)
 
-亦有傳統[鳥取紙燈籠](https://hidie.net/tottori3zi/)  
+大大個傳統[鳥取紙燈籠](https://hidie.net/tottori3zi/)  
 
 ![](/images/tottori4p9.jpg)
 
-同竹工芸品等等呢啲地元工芸品  
+鳥取地元嘅竹工芸品  
 
 ![](/images/tottori4p10.jpg)
 

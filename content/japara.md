@@ -9,7 +9,7 @@ tags : [glamorous - 蛋臉以外, lifestyle - rosy rosy, satisfaction - 黃店�
 近期換咗隻新香水  
 其實好多年前已經想買佢  
 但係當其時响啲格仔舖見過一次就冇特別幫襯到  
-不過居然**阿布泰**有售仲要好貴平  
+不過居然**阿布泰**有售仲要好平  
 好啦好啦，轉吓新味道啦咁～  
 
 ![](/images/japara.jpg)

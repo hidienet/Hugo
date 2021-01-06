@@ -392,17 +392,17 @@ character房，有eva四葉機動警察batman等等
 可以預約asoview! 付款租借倉吉絣响倉吉白壁土藏群周圍行  
 （倉吉絣乃江戸時代倉吉嘅傳統特色祥瑞紋飾、藍染、繪絣、手工編織品服裝）  
 
-![](https://d3zwqa.ch.files.1drv.com/y4mcjlgkabFw2v6jEy_z_vbpFZDeqBqfZM3s4eF_BzBgfFBnjZMcVAqclMlMydT2p0AxE3YqwbR887QklUG-cZiiaSHiaP6mUHpIjN4JPITIQK8ntME9KPasW3BYMsy1kGpZ4K6YdgWXwU7Uy_2ULX6K7ILQLw95-VayzXMC-1KZUfCL1QSkFiW3uYLlgPssNQ33IY4_zIBt7ddPrcIzXwjgg?width=660&height=371&cropmode=none)
+![](/images/tottori4t.jpg)
 
-**第五十三代横綱琴桜像**  
+[第五十三代横綱琴桜像](https://hidie.net/tottori4t/)  
 琴櫻傑將：來自倉吉市嘅前大相撲力士，第53代橫綱  
 
-![](https://ehzzqa.ch.files.1drv.com/y4mvSOZPC4BB25aK1BoZxE63NEFnC64kP5E7UkNMe63xx5muGDGAMPxkxs6niJo8yEuE89FEqd-hCWveRqWU7r4KduAs43hDoXjMfE4oQZhWYHgHG7HLs-0SNe7jvD0TR_CfZ-PzTm81_303f3aMg1TTEVvIJfjwRcGKOrJLj3t1_bUgbpgyB7pWXRTzet6LIQVVtPE52ijWXGGdheC1VfAGw?width=371&height=660&cropmode=none)
+![](/images/tottori4u1.jpg)
 
-**弓道体験 まととや**  
+[弓道体験 まととや](https://hidie.net/tottori4u/)  
 以倉吉最古老嘅西洋建築物**旧日本産業貯蓄銀行の倉吉支店**改建  
 
-![](https://ehzxqa.ch.files.1drv.com/y4m7J54cO0k0_rmnNcxxxyjKSxf32C5VDczwnmwv5SvVYoEkUACSQEsA36u1HqETfSsbYE1qkmVSxBUeFaUEAnGm6dbEa5hjoyBRG7fqtD7gOdyPsuyVVzYwrMjFSYR4mmEQ3lWxbxTUCrIzDNX9KD7TlnNzGIphq3hi5WQz9Pn2XlE-MDUm6IqVzpaGzS8oOY9rLBT2irpax_vkyDASF6NvA?width=660&height=371&cropmode=none)
+![](/images/tottori4u2.jpg)
 
 而家係個懷舊射箭場  
 
@@ -412,7 +412,7 @@ character房，有eva四葉機動警察batman等等
 
 ![](https://ehztqa.ch.files.1drv.com/y4m_eC8lpdYm2kH_liVLEy-R3un4vFZciEe4AnrSXeGe_46pE44rWoDjsXkcI1JJgYKlbh5Joi1g5AyX2gOTjOLLYZf-FxSmp4kQ0jAh1WvVDJ1pFL4YT5uOibl_tmGbvkZzKpDBacrwfiS61wqaMLE7ZBWITTCUwhAqCai2cVfigs3CZRh7rvuCq-jKePW5dKgwpc5F0XxhBeZZdz_mvP_gA?width=660&height=371&cropmode=none)
 
-**赤瓦十六號館 お茶処淡雪**  
+[赤瓦十六號館](https://hidie.net/tottori4v/) **お茶処淡雪**  
 有得玩囲碁嘅cafe，today closed  
 
 ![](https://ehzuqa.ch.files.1drv.com/y4mofeh5UmndNp9odECUGpL466mZpJVw_Y1mONm3r0kZcy4RQY6l8Q2io70bi25yClGH4Aoo2zCaaZ5t_QnEYkywY-De2qCH7Sdp5vK2phHlW1AwJH8U9jhYRNKzM35qw-0RnhT8Lj8LkPFw6h_hP-IrLLX4buoJ0qMYXCSHx3-GUFDqwyEiuuRUabeSmp7QIBPSRJEkGkDjmEjw_D4xqoAuQ?width=660&height=371&cropmode=none)
@@ -420,9 +420,9 @@ character房，有eva四葉機動警察batman等等
 **有限会社矢吹本店**  
 雜貨舖  
 
-![](https://d3zbqa.ch.files.1drv.com/y4m3lIeHWiWw6IooST4wft6bitxTrbNwbizeegvJwxriK1BXO1kPhYXnBsh-uxhm1DM4XZdsUUjFS-0tZZdzkcI9vCO9RG6bVnAY_MSglG-ISWq3YTwmdxnMWAQyxANEMe1PTB9bqSCAOMc1jXxwTazoGPR20uohJQCSVF2_bm-BpxFwtJlLV5FIfV3cPz0am7kR-Ay59rR_UAbO_k1G2lC6g?width=660&height=371&cropmode=none)
+![](/images/tottori4w.jpg)
 
-**赤瓦六號館 桑田醤油醸造場**  
+[赤瓦六號館](https://hidie.net/tottori4w/) **桑田醤油醸造場**  
 明治10年創業嘅老舗醤油店  
 
 ![](https://exztqa.ch.files.1drv.com/y4mUZSEXuv7MKVCD-QJNKEl9YNw5MLrZzHvyCrJcHqhr0ymN-UnuZ5sS9giXVTb4Wg6pJjTGLVS0deSIenDHBPRWIBLsiWvc_Z0lbDCpbjsgzrayOkmNvv-YTdLAIPHapHIi407mvTMb9ewp3r50EmMS0nqKmFIn0CGyzdM_9aT-sh4FAcaEnEUCRPZWpRTSjjoMTfLtSzxsLRjqyJSRGzSuA?width=660&height=371&cropmode=none)

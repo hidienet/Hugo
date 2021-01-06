@@ -329,7 +329,7 @@ character房，有eva四葉機動警察batman等等
 
 ![](/images/tottori4o1.jpg)
 
-[赤瓦五号館 久楽](https://hidie.net/tottori4o/)  
+[赤瓦五号館](https://hidie.net/tottori4o/) **久楽**  
 赤瓦館有十六號共十四個館（順序落無四同九號）  
 
 ![](/images/tottori4o0.jpg)
@@ -381,14 +381,14 @@ character房，有eva四葉機動警察batman等等
 
 ![](/images/tottori4r1.jpg)
 
-[赤瓦七号館 元帥酒造本店](https://hidie.net/tottori4r/)  
+[赤瓦七号館](https://hidie.net/tottori4r/) **元帥酒造本店**  
 
 ![](/images/tottori4r.jpg)
 嘉永年間（1848-1854年）創業嘅酒舖  
 
 ![](https://b3aqhw.ch.files.1drv.com/y4mI499DZZ-PZm_jyTZoDeDymlxIavpdbzYbSiCHioXVSzp7qkBcihsrygMMvq4cFtlNftQYgFrn5zZfPyKb451858oYaCYOyZ-Zz9yk15E0e_fW4OMOt_P2jaZWshxnG4C0epsEDp1cWXynpoW9yUB9G4QdVLDCQ9t5_4dP7tQVMOhNq4FJtRNQQPlOOXg6aU87aRg6jRwnw4HCyYda2HxxA?width=660&height=371&cropmode=none)
 
-**赤瓦十號館 倉吉白壁土藏群 観光案内所**  
+[赤瓦十號館](https://hidie.net/tottori4s/) **倉吉白壁土藏群 観光案内所**  
 可以預約asoview! 付款租借倉吉絣响倉吉白壁土藏群周圍行  
 （倉吉絣乃江戸時代倉吉嘅傳統特色祥瑞紋飾、藍染、繪絣、手工編織品服裝）  
 

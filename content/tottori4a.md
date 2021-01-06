@@ -379,12 +379,11 @@ character房，有eva四葉機動警察batman等等
 建築物係改裝造酒廠嘅倉房  
 大正元年創業嘅竹工藝品老店  
 
-![](https://dnzyqa.ch.files.1drv.com/y4mp0oUNYAXtS88FfaXLc4uvgpKk5bD6yaTA032kTO5pt1JvWvfvzeRljFcgh2Y2hOkQlyv6m4TlRka0tYFbTh_jyqxVft-43Dj7-FEHpQxv0rzozQ8l3Hb9EYYpi_v4NoJrbA_7RWE3vtEUNXAsFCDHf-MEWdu0hvIpOT7LRJMdhnccaDlDgRUC1YCGF5ydf7i2tS_IZZkqRK5egYm_SMhmA?width=660&height=371&cropmode=none)
+![](/images/tottori4r1.jpg)
 
-**赤瓦七号館 元帥酒造本店**  
+[赤瓦七号館 元帥酒造本店](https://hidie.net/tottori4r/)  
 
-![](https://dnzvqa.ch.files.1drv.com/y4mYwfgFZ1zKJG6kLsbTTZR0hGPhBDhul5dnaeY_w1tOMccDXArC6ZinHW-eHNHAzyOTw_7MRoHJQPtq47A58YYXx5AiwW9Zmbi9hRQdUEINTXy8CpjSrYOXr7jGjiv-rBxrZoTFvR16IUk7ua0JERrXIQpa7P2U4ekcTjbxE-58-ji9OebxUpEfpcYWTCA_q6tu61DbwHRvdtKaUPiAvKH4A?width=660&height=371&cropmode=none)
-
+![](/images/tottori4r.jpg)
 嘉永年間（1848-1854年）創業嘅酒舖  
 
 ![](https://b3aqhw.ch.files.1drv.com/y4mI499DZZ-PZm_jyTZoDeDymlxIavpdbzYbSiCHioXVSzp7qkBcihsrygMMvq4cFtlNftQYgFrn5zZfPyKb451858oYaCYOyZ-Zz9yk15E0e_fW4OMOt_P2jaZWshxnG4C0epsEDp1cWXynpoW9yUB9G4QdVLDCQ9t5_4dP7tQVMOhNq4FJtRNQQPlOOXg6aU87aRg6jRwnw4HCyYda2HxxA?width=660&height=371&cropmode=none)

@@ -6,7 +6,7 @@ images: ["/images/tottori4n.jpg"]
 tags : [travel-日本-鳥取]
 ---
 
-離開大蓮子再向前行  
+離開[大蓮寺](https://hidie.net/tottori4m/)再向前行  
 
 ![](/images/tottori4n1.jpg)
 

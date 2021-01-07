@@ -1,6 +1,6 @@
 ---
 title: '[ドキドキ鳥取] Day4：赤瓦一号館'
-date: 2021-01-07T18:30:00.000+08:00
+date: 2021-01-07T08:30:00.000+08:00
 draft: false
 images: ["/images/tottori4p.jpg"]
 tags : [travel-日本-鳥取]

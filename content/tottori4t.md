@@ -11,6 +11,7 @@ tags : [travel-日本-鳥取]
 ![](/images/tottori4t1.jpg)
 
 **第五十三代横綱琴桜像**  
+好似張開手擁抱住個太陽咁  
 
 ![](/images/tottori4t.jpg)
 

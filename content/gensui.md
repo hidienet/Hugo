@@ -1,6 +1,6 @@
 ---
 title: '元帥酒造 - くらよし蔵酒'
-date: 2021-01-08T12:30:00.000+08:00
+date: 2021-01-07T19:30:00.000+08:00
 draft: false
 images: ["/images/gensui.jpg"]
 tags : [flavor - 飲!]

@@ -1,13 +1,17 @@
 ---
 title: '[ドキドキ鳥取] Day4：弓道体験 まととや'
-date: 2021-01-09T12:30:00.000+08:00
+date: 2021-01-08T16:30:00.000+08:00
 draft: false
 images: ["/images/tottori4u.jpg"]
 tags : [travel-日本-鳥取]
 ---
 
 呢個地區除咗白壁同赤瓦  
-都有舊舊西洋風建築物  
+
+![](/images/tottori4u3.jpg)
+
+亦有舊舊西洋風建築物  
+（呢間**東仲町公民館**仲係和洋並存呢～）  
 
 ![](/images/tottori4u1.jpg)
 

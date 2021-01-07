@@ -406,19 +406,14 @@ character房，有eva四葉機動警察batman等等
 
 而家係個懷舊射箭場  
 
-![](https://ehzyqa.ch.files.1drv.com/y4mvmZS6SomzsfGnYrDxdY8YhaCSB7nUaJHf1gw630yGfTRR0ReSkZDETapWTEiaW2SUkG9zG8UM7Se-IBMT72KCoscZank9FATcaH0rPnYzxNuTTbPFqqwWmFf5gTT-1Zc75Mk24KiO-jdf6eHT2Au1KTgLpEPXwiVH4g2Lj9UnpTiGjSXOu2JB6anFWw3HYkjPogkGi8vG1EQYVyKbFJa8w?width=660&height=371&cropmode=none)
+![](/images/tottori4v.jpg)
 
 **防災センター くら用心**  
 
-![](https://ehztqa.ch.files.1drv.com/y4m_eC8lpdYm2kH_liVLEy-R3un4vFZciEe4AnrSXeGe_46pE44rWoDjsXkcI1JJgYKlbh5Joi1g5AyX2gOTjOLLYZf-FxSmp4kQ0jAh1WvVDJ1pFL4YT5uOibl_tmGbvkZzKpDBacrwfiS61wqaMLE7ZBWITTCUwhAqCai2cVfigs3CZRh7rvuCq-jKePW5dKgwpc5F0XxhBeZZdz_mvP_gA?width=660&height=371&cropmode=none)
+![](/images/tottori4v3.jpg)
 
 [赤瓦十六號館](https://hidie.net/tottori4v/) **お茶処淡雪**  
 有得玩囲碁嘅cafe，today closed  
-
-![](https://ehzuqa.ch.files.1drv.com/y4mofeh5UmndNp9odECUGpL466mZpJVw_Y1mONm3r0kZcy4RQY6l8Q2io70bi25yClGH4Aoo2zCaaZ5t_QnEYkywY-De2qCH7Sdp5vK2phHlW1AwJH8U9jhYRNKzM35qw-0RnhT8Lj8LkPFw6h_hP-IrLLX4buoJ0qMYXCSHx3-GUFDqwyEiuuRUabeSmp7QIBPSRJEkGkDjmEjw_D4xqoAuQ?width=660&height=371&cropmode=none)
-
-**有限会社矢吹本店**  
-雜貨舖  
 
 ![](/images/tottori4w.jpg)
 

@@ -1,6 +1,6 @@
 ---
 title: '[ドキドキ鳥取] Day4：赤瓦二、三、十二号館 | 打吹流しびな'
-date: 2021-01-08T08:30:00.000+08:00
+date: 2021-01-07T12:30:00.000+08:00
 draft: false
 images: ["/images/tottori4q.jpg"]
 tags : [travel-日本-鳥取]

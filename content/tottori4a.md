@@ -394,8 +394,8 @@ character房，有eva四葉機動警察batman等等
 
 ![](/images/tottori4t.jpg)
 
-[第五十三代横綱琴桜像](https://hidie.net/tottori4t/)  
-琴櫻傑將：來自倉吉市嘅前大相撲力士，第53代橫綱  
+**第五十三代横綱琴桜像**
+[琴櫻傑將](https://hidie.net/tottori4t/)  ：來自倉吉市嘅前大相撲力士，第53代橫綱  
 
 ![](/images/tottori4u1.jpg)
 
@@ -435,7 +435,7 @@ character房，有eva四葉機動警察batman等等
 「食」嘅話就完全冇問題！  
 有雪糕啫喱macaron呵呵  
 
-![](https://exzxqa.ch.files.1drv.com/y4mLKfTkJusPJa14ChfQPdQrFWEkolfWJH0AQE5yVX4vP3YYhm7ky7wSZEHGfqVC5_PvPiWv0R9o8DTUJx7DxpKQRCg3RfqG7nVHNG5-6ejk0Y_PJNTIvIZqF-TlTPx4mg7-tHMt3vPdlCuvVErTL1ifYubIbF_aFQtXXg2mEBpUkgQvUuJ2TPsSPsEcq9FWnfiNSDMGpe2cAh6jRyArVbQFQ?width=660&height=371&cropmode=none)
+![](/images/tottori4t2.jpg)
 
 **琴櫻紀念館**  
 毫無懸念裡面係琴桜傑將嘅展示品  

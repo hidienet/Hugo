@@ -435,24 +435,24 @@ character房，有eva四葉機動警察batman等等
 **琴櫻紀念館**  
 毫無懸念裡面係琴桜傑將嘅展示品  
 
-![](https://exzvqa.ch.files.1drv.com/y4m11YV-9LCkJ7ILxASsCFjDS-uYz4SVUFxAdpgkpNduYV9Dx5gtx5y0E95nraZNWS1Z60o63oDb0ZnpOuUqlCo8WMStaoQclqqVriNNke6u7kIJ7T6Pqdr4b7j540ZTVb1FmhBEnoClRv7Z7QqwZYOZrh6cXJsMsSqJd_xx5e2xTqlTcDVgoixeh1SPTXg8vtm_MvctN2Vei3B8aMSipPNpw?width=660&height=371&cropmode=none)
+![](/images/tottori4x2.jpg)
 
 **オークランド**  
 舊建築上面嘅牌匾係英文字有啲好笑  
 
-![](https://dhzzqa.ch.files.1drv.com/y4m6YYhv0RhVRfJJE4S1DBZ73TM8TMmCrFqDoZ5dGpqwxMf7yENQM_unhNCgmhrZLsswXYk7KtAUGb9x61cOOR7V83bewtMshABGbi2YgxYkduZrtJh0bs685dQcFH7CLnCLLraPkSdDZjwTcj4D85kDFAVmyYO0bwREnpEzklDrwDoEkluXXeGxJgH3R2KBG1BNKKnDNhcAkifM65ctHUvRg?width=660&height=371&cropmode=none)
+![](/images/tottori4x4.jpg)
 
 左邊**はこた人形工房**係由細到大都覺得樣子怪異嘅はこた人形  
 右邊**夢倉**係豆腐料理嘅舖頭  
 
-![](https://dhzwqa.ch.files.1drv.com/y4mqU2IZDuZq_ISfdyFldR2GZJmpStMTq-2oYkui42l-6U69v1THZ_NoQVy97ikz0Q5yrdW6ZeEr_pjXdBnUq4IoDBaI4fekgB4isz0IGTBj-HSalz9mEjqxlP5bF2zBYOM_UFL7EMCuHVUDB8p52p8nAvIqgFAysVxkShKevvvAymy0OYghyXBVmwnGi1xhH6hXD4LQa0NWkFDVNe7i2k6vw?width=660&height=371&cropmode=none)
+![](/images/tottori4x.jpg)
 
-**赤瓦十五號館 日本料理 飛鳥**  
+[赤瓦十五號館](https://hidie.net/tottori4x/) **日本料理 飛鳥**  
 一日開幾粒鐘㗎咋  
 
-![](https://c3zcqa.ch.files.1drv.com/y4mVUAlBGUPWXNDaNsVVdrBA670fp-JJg8PpA1vAJ4mI7iD0GySLLfA9g_hMRP3nmSnCcphwho28hif28o0ihazUuprJ2GMT6XyWWWht8faooHZ4cEhx9H270j8TSW95kJfnWP36lUWhyno4Pby7K85VZHW-C_dQ0xk14xO1Zly6BqZ4NvG8TGtPK5gUb1z-mK0U6oyUQOA0yYaTPrRuCag3Q?width=660&height=371&cropmode=none)
+![](/images/tottori4y.jpg)
 
-**赤瓦十三號館 白壁倶楽部**  
+[赤瓦十三號館](https://hidie.net/tottori4y/) **白壁倶楽部**  
 建於明治時代嘅**旧国立第三銀行**  
 亦係国登録有形文化財  
 食西餐嘅～  

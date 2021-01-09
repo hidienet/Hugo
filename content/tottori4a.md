@@ -330,7 +330,7 @@ character房，有eva四葉機動警察batman等等
 ![](/images/tottori4o1.jpg)
 
 [赤瓦五号館](https://hidie.net/tottori4o/) **久楽**  
-赤瓦館有十六號共十四個館（順序落無四同九號）  
+赤瓦館有十六号共十四個館（順序落無四同九號）  
 
 ![](/images/tottori4o0.jpg)
 
@@ -388,7 +388,7 @@ character房，有eva四葉機動警察batman等等
 
 ![](/images/tottori4s.jpg)
 
-[赤瓦十號館](https://hidie.net/tottori4s/) **倉吉白壁土藏群 観光案内所**  
+[赤瓦十号館](https://hidie.net/tottori4s/) **倉吉白壁土藏群 観光案内所**  
 可以預約asoview! 付款租借倉吉絣响倉吉白壁土藏群周圍行  
 （倉吉絣乃江戸時代倉吉嘅傳統特色祥瑞紋飾、藍染、繪絣、手工編織品服裝）  
 
@@ -412,20 +412,20 @@ character房，有eva四葉機動警察batman等等
 
 ![](/images/tottori4v3.jpg)
 
-[赤瓦十六號館](https://hidie.net/tottori4v/) **お茶処淡雪**  
+[赤瓦十六号館](https://hidie.net/tottori4v/) **お茶処淡雪**  
 有得玩囲碁嘅cafe，today closed  
 
 ![](/images/tottori4w.jpg)
 
-[赤瓦六號館](https://hidie.net/tottori4w/) **桑田醤油醸造場**  
+[赤瓦六号館](https://hidie.net/tottori4w/) **桑田醤油醸造場**  
 明治10年創業嘅老舗醤油店  
 
-![](https://exztqa.ch.files.1drv.com/y4mUZSEXuv7MKVCD-QJNKEl9YNw5MLrZzHvyCrJcHqhr0ymN-UnuZ5sS9giXVTb4Wg6pJjTGLVS0deSIenDHBPRWIBLsiWvc_Z0lbDCpbjsgzrayOkmNvv-YTdLAIPHapHIi407mvTMb9ewp3r50EmMS0nqKmFIn0CGyzdM_9aT-sh4FAcaEnEUCRPZWpRTSjjoMTfLtSzxsLRjqyJSRGzSuA?width=660&height=371&cropmode=none)
+![](/images/tottori4w6.jpg)
 
 醬油係有得試味嘅  
 不過托豉油呢啲偉大工程唔適合我啦  
 
-![](https://exzuqa.ch.files.1drv.com/y4majGwfKHBqP07ahc3KLFM4brr_ie9DrtAbGy0LH2P6h1PA3jXouo8VSrW3T9h6YttDGJWvnhAYT2MVH4Az9V7-CwXIa15Jxw_EihTuHg3sXV60bD7icCsFi40chhVYINasGAaa2HasgRQXBHWOGLzdV7fApXrkwFbxMWV9DImePR4zGqTB9Pg05Kf-t6AOPh5p6Hj6fGuMcGfPIC1x6_jmA?width=660&height=371&cropmode=none)
+![](/images/tottori4w9.jpg)
 
 「食」嘅話就完全冇問題！  
 有雪糕啫喱macaron呵呵  

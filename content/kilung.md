@@ -9,14 +9,17 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 啊～ 天氣又終於涼涼地  
 可以食啲暖身嘅嘢喇！  
 
-![](/images/kilung.jpg)
+![](/images/kilung0.jpg)
 
-**基隆茶餐廳 - 臘味糯米飯 + 蛇羹 set**  
 平日好少去嘅茶餐廳  
 不過呢間用有70年歷史嘅前恒貞大押改建  
 外牆油上超sharp嘅鮮黃食  
 裡面係極高身樓底感覺好寬敞  
 加上新簇簇勁乾淨環境舒適  
+
+![](/images/kilung.jpg)
+
+**基隆茶餐廳 - 臘味糯米飯 + 蛇羹 set**  
 
 ![](/images/kilung1.jpg)
 

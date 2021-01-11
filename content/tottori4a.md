@@ -330,7 +330,7 @@ character房，有eva四葉機動警察batman等等
 ![](/images/tottori4o1.jpg)
 
 [赤瓦五号館](https://hidie.net/tottori4o/) **久楽**  
-赤瓦館有十六号共十四個館（順序落無四同九號）  
+[赤瓦の館](https://hidie.net/tottori4/)有十六号共十四個館（順序落無四同九號）  
 
 ![](/images/tottori4o0.jpg)
 
@@ -447,12 +447,12 @@ character房，有eva四葉機動警察batman等等
 
 ![](/images/tottori4x.jpg)
 
-[赤瓦十五號館](https://hidie.net/tottori4x/) **日本料理 飛鳥**  
+[赤瓦十五号館](https://hidie.net/tottori4x/) **日本料理 飛鳥**  
 一日開幾粒鐘㗎咋  
 
 ![](/images/tottori4y.jpg)
 
-[赤瓦十三號館](https://hidie.net/tottori4y/) **白壁倶楽部**  
+[赤瓦十三号館](https://hidie.net/tottori4y/) **白壁倶楽部**  
 建於明治時代嘅**旧国立第三銀行**  
 亦係国登録有形文化財  
 食西餐嘅～  

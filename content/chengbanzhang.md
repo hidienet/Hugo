@@ -42,11 +42,12 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ![](/images/chengbanzhang4.jpg)
 
 **酸梅汁**  
-酸味甜味好平衡，美味兼解渴  
+平唔互搶嘅酸味同甜味  
+美味兼解渴呢    
 
 ![](/images/chengbanzhang5.jpg)
 
-裡面係有醃華話梅㗎
+裡面係有醃話梅㗎
 
 ![](/images/chengbanzhang6.jpg)
 

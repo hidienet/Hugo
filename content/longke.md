@@ -1,5 +1,5 @@
 ---
-title: '[正港遊] 萬宜水庫 + 浪茄灣'
+title: '[吔孖系] 萬宜水庫 + 浪茄灣'
 date: 2017-10-28T18:23:00.000+08:00
 draft: false
 aliases: [ "/2017/10/blog-post_28.html" ]

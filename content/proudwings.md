@@ -1,5 +1,5 @@
 ---
-title: '[ccheers!] The Galley by Cafe Proud Wings'
+title: '[cheers!] The Galley by Cafe Proud Wings'
 date: 2021-01-12T14:30:00.000+08:00
 draft: false
 images: ["/images/proudwings.jpg"]

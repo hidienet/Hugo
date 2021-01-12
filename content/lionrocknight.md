@@ -1,5 +1,5 @@
 ---
-title: '[正港遊] 夜行獅子山'
+title: '[吔孖系] 夜行獅子山'
 date: 2019-09-13T22:32:00.001+08:00
 draft: false
 aliases: [ "/2019/09/blog-post.html" ]

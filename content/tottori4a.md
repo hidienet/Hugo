@@ -457,15 +457,15 @@ character房，有eva四葉機動警察batman等等
 亦係国登録有形文化財  
 食西餐嘅～  
 
-![](https://c3zyqa.ch.files.1drv.com/y4mB-jGza9VHaHKZtxPmAJ1wXNcpMhd4Y9LjnzPdIol1HtsTbhI-3wdSzQNb3Id67HGQveLRmtn3pqTdkmxU7T-Ra5GOh9nUrNlehqEKBUJrTMJNFAHqouCk0_xmveJg1bnKL3u1azySD1KMm-C_N-ej6W1Y82K_UQo_q62b7lvCZkKuGpdY_fxa4VRXARWW4-0w0LEvVosxjzCOuumCKaXBA?width=660&height=371&cropmode=none)
+![](/images/tottori4za.jpg)
 
-**町屋 清水庵**  
+[町屋 清水庵](https://hidie.net/tottori4za/)  
 創業過百年嘅涮年糕店  
 啱啱午休冇得試（淚）  
 
-![](https://cnzaqa.ch.files.1drv.com/y4mDPDol0qSdEsYccW2A1qpor8cumH62YRW6pKSVxQ6BzzS2IkCewI45PXr1eYGPC24NaIo3dFUBcizXsfuAauFwfdOW0x6Ukh3ia9YR7DOHSCaAyxeo9dMnWNmtSlxqWWiK47aGbZWXeU_sm7nCLHHnEtYUjzt7H5K4dFLfWMREfSAWORC5LU37ptnIpme88eEOrgdY_ql-hxQPnUhlAxbDQ?width=660&height=371&cropmode=none)
+![](/images/tottori4zb.jpg)
 
-**大岳院**  
+[大岳院](https://hidie.net/tottori4zb/)  
 建於1605年嘅佛寺  
   
 行完呢個傳統建築物保護區  

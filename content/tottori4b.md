@@ -8,49 +8,49 @@ tags : [travel-日本-鳥取]
 
 繼續倉吉行...  
 
-![](https://dxzwqa.ch.files.1drv.com/y4mT-3hwSK8FBLRLRbEjNgGYLts4xZoq72voNKMIFZiupct4Oi5vPVTCLIBfd9n5EfYlkTvHfbwu57ts-ZvejyO2n0QWBIkKd2XD510InVmRDs2iroW93GdBgzi0gIiahO-WY52fadVTtawJxT7Wv5DUMm9kCOetxL3zKBsWbo-Uy7WPeic1wIn0vBI4Ye3LaOqEPpMlWFZ5otrN2U_nXiUmw?width=660&height=371&cropmode=none)
+![](/images/tottori4zd1.jpg)
 
-**鳥取二十世紀梨記念館・なしっこ館**  
+[鳥取二十世紀梨記念館・なしっこ館](https://hidie.net/tottori4zd/)  
 由倉吉白壁土藏群行12分鐘就到  
 
-![](https://dxzyqa.ch.files.1drv.com/y4mW_OOOrKhQDvy7-K95t4oOkew2OnJXPVjXFZu_MUj4sNzD9J_yj6iO-Ygd3g3t0mLcpAUPHcqpz0aD6shXVcEcwxBtd-LjXc38r_Aqc7YZmwTgOWNXtn_Puk2R2uzyoVKz6jIvN27OBABuETSBJYAe0liu7bFamF8VD7lLFIhc2VIy4oncsE9rILxfsl9vUYNa-X_XK10LQuIozARhixrqw?width=660&height=371&cropmode=none)
+![](/images/tottori4zd4.jpg)
 
 又利用**まんが王国とっとり満喫周遊パス**換入場券  
 再計C9數：料金300円；用JR West pass半價 = 150円；鳥取藩乗放題手形bus pass無得減  
 慳返幾百咁啦都～  
 
-![](https://b3zuqa.ch.files.1drv.com/y4mSXBtb-vdmaf7WYx_rTAuYbSjzStGBak8qfBqzPVtg4J9XK4fDZbNtuIk7c4fucoB_pqjDUVDYMGUKfwUUuFO9rLudFb2I3L9NiMR56TqOY3gF2S96YnbSa2Z0XMMBKHyCvgYN9Q1cOJnYPYDlpEvK9xapDA761GpNJE-tS5t4efycVJXsXQYZk21dZtxqeFleFp7PamX01OlkUifwk6NTg?width=660&height=371&cropmode=none)
+![](/images/tottori4zd29.jpg)
 
 睇吓日本以至世界國地唔同梨嘅品種  
 
-![](https://b3zbqa.ch.files.1drv.com/y4mYVJa9obCzbxKY6s2rswemv8OCMp0CnwUeefwbe1Y_0Cm2U6PuPbStSMusUkSevEE1EfEVoal_p0a-RLUFuncgetHiQ8dj0TGG6b32yHx45H8GJqXivTrhYc_pg-wlIWnLBvGyr2s7oemQKGlQh2GI6sC7zW1mCLWCCwGPvMNPjrjbOMtvZ3P7K5pxWT4j0sxbNwcm3vPZLYzMGoLZ_U0UA?width=660&height=371&cropmode=none)
+![](/images/tottori4zd7.jpg)
 
 **梨と生きる「二十世紀梨」ものがたり劇場**  
 呢個劇場好好睇，啲人仲會郁㗎勁詭異（！）  
 
-![](https://d3aqpq.ch.files.1drv.com/y4mGIx6Pux8vFike5oiH_SPOcn6mbcKGoGbj0sE8hcTr-EA13GuQQgM7qAcqUUBRAqX1lJFJtVLTQzO-LIcL3_rGqC_rPqDFuL8kkPyl7ezKBvcJ8cZXM20hpqP_tKNkypa44QhOHFApWd8wQ3oqmLU_irWdLLJcNLqu8iUaQXaaWU7M2z-iOJLEMSYlqgt-4pUV0PECMlEJAOJC1Nk17jiCw?width=660&height=371&cropmode=none)
+![](/images/tottori4zd5.jpg)
 
 **二十世紀梨の巨木**  
 兩層高，直徑20米地底根部都有5米  
 差唔多成百歲㗎喇佢  
 
-![](https://d3atpq.ch.files.1drv.com/y4mcwYU7tz-p5ddCe0LhZr_WVIkLtDmLSFAOPYNzQuRoKfnwb8dVseFHn-XlrhPaCu-YEaRYHzUaTYS58c0-xqpMDnddoANWseRZ_sACl9Lc529qJzXWZL1OoVo0NRpbWDMvGQOqQtvAsjxy45AUnUPClyVt5y_j6a7vfvLFDDhuJMW_YACKKGePnCptoqvquvKyIFsZS-JlGxKZ3lu5JmocA?width=660&height=371&cropmode=none)
+![](/images/tottori4zd39.jpg)
 
 其實個館係啱小朋友玩嘅哈哈  
 
-![](https://d3awpq.ch.files.1drv.com/y4mRL51JAsdg31nJNbvj-LdrIiYL0sxrq2U7cmgsm1F3y-HWQIi-0gDMX6LIxqSXTsGhYs_teUKCBd64oiDiTG3RGfR_8fgpTbELtWQa6AypQzzm4z_LpgQdwYm-eWeDwxWgNmoZhkJ2JmalBLBn3_ffC8MHlh6ii01v_ZMeB6V2BQg_9iyOxVIh_5FXxgEZvxTWRLRskDbLeIn5Wrf1F_RQQ?width=660&height=371&cropmode=none)
+![](/images/tottori4zd36.jpg)
 
-以前個木箱啲標籤  
+以前木箱啲標籤  
 
-![](https://bnzaqa.ch.files.1drv.com/y4m6dV8kxzvzKne79U9Wzr_ceRTyGIDIY6Pt-gOjPQ1j4qO4ZvQpzxJBodyq9BQJjWExz_e9tLxGcxzr95cOu8_RmLJv9kx2jnYgAECQtfPxzdPn0hTby_48kcPVeJNxTwL50zBAe-32eR7kxiHQz4N9qgmZ0BCjTu0Up4x2s9uo6ScneIHHRQZzyhxRbNX32mlNhP--ykKXtClV5EEim2Q3w?width=660&height=371&cropmode=none)
+![](/images/tottori4zd24.jpg)
 
 而最最最吸引嘅當然係試食梨  
 
-![](https://dxzzqa.ch.files.1drv.com/y4mIzL4X-9kKsL6MK8BYhCqJTlb5VkMhGSPJbphxqyIqBcKfAjT44jJ3hDWvbayUoy8XwIaTzwBw29csYt-nei5Sd0H8wEkQfrAjOMk0lxy2jSrXlVji8pTCA-R71-r9oa2GUpLL1jML2f0Mb_Q48lesXsKP1yir1fTxo88ZkYrTYzNQnfm1pBtluwdn9qx-zguBcOn8_93sPKYk_uUpAMp-Q?width=660&height=371&cropmode=none)
+![](/images/tottori4zd25.jpg)
 
 切好雪凍慢慢試  
 
-![](https://ehatpq.ch.files.1drv.com/y4mOoIakqmRYQ_Nim6YHYd7tm7WwRhxpoTKR0FnE6dIBd1UAuJq5omejJNDVM5QV3o8ObbjnSIPCdma67cqtv_ifQouOzT7zNUOftXtzGLxhDr3vaU3N9Uv_NkB-02XSvEbuRaKbvlWWu7fW_vE6tt7Lz7txRZVl8UcRbjJz78S_L0gzchVEM06JBW_upl-yBLZdtiPQ_vPihF5txsfhulWVw?width=660&height=371&cropmode=none)
+![](/images/tottori4zd42.jpg)
 
 未諗到有咩好買...  
 

@@ -62,28 +62,28 @@ tags : [travel-日本-鳥取]
 
 返[倉吉観光物産館 長生堂](https://hidie.net/tottori4ze/)拎行李  
 
-![](https://exawpq.ch.files.1drv.com/y4mivH6Sn8sR6El_62greNbx0ZN76brxx5ZyW0x-2-AWftUoSCm4JwgEwPl3_xXds3ReYH75Qd1gTVIFixygkDStc554mwvOAJSU1Pvv6CW7v4L_bZ7u5ocvCAsQEDI-6PTTWJIkxiGn5EEPq5wsBPctM9YMnDmxvt3WCbujHgLE_ug0UcewGHBUU_G63A9_tsbpTxfx_2N0wRHUvBGi52mqA?width=660&height=371&cropmode=none)
+![](/images/tottori4zf4.jpg)
 
 搭特急 京都  
 但係個pass只包到去下一個站  
 
-![](https://exaxpq.ch.files.1drv.com/y4muAirqMIDQudRDC01sMqC3m5sF0nkfOlUJsyjPVtXJ6A5vCJp8M8znLie9sWIkNkaG1YAgXNmgLV5oCZVMIBUQcK2L95jWbpewt9na8myBx2HaLSx4jx3feCaZ91EVL4Tlr2GZOqWftecj4AsUtoml-aq0fIWPj9WsQQNFT4Gm4UMjSnbXTbyy8b3hVLogl1OF4XVXMy7BAJMaN91KBG5-Q?width=660&height=371&cropmode=none)
+![](/images/tottori4zf.jpg)
 
-咁其實我又只係去下一個站啦（倉吉 → **鳥取**）  
+咁其實我又只係去下一個站啦（倉吉 → [鳥取](https://hidie.net/tottori4zf/)）  
 
-![](https://exavpq.ch.files.1drv.com/y4m5OpI3xRDQe-PizYLBcAeJABnTEvq8x44tEeTeo6H8B3xgvYpdp6Rl-b4zv96BCvffGuMU1QuZ5fLexSc0TNqzrCIkAC685ezRvByKN1SVRXYkMd8dyNzwyJMfumt-rRefzvF7VWDJl6fMtCcVXay-mThAQBksMYxKh24uqCFdV08vPUH5R4CKqf-ec-CMkULlsl_0oyLrm0Paz45VFWLbQ?width=660&height=371&cropmode=none)
+![](/images/tottori4zf5.jpg)
 
 啲座位勁舒服  
 
-![](https://cnarpq.ch.files.1drv.com/y4mHySsFUKBIWyFLBmSqlDH3zwNIirHOsvXOn5m4IChUkVBkZ98nLzowpcbnZNOpyT2zm9cXM_IXTtd1uuOCDK_6UHfbYaa_eEQ0WXQCwiqGu0anQBwZ6kebNk28x39YnZSM1601CJEu5RYzMyFrQPDgx6JUQCxGuBZ3YihSK9RcMDfKi-h-QT-u4A0zJy3jcRyZEdSs6AyY08ijwK2JXDCVA?width=660&height=371&cropmode=none)
+![](/images/tottori4zf8.jpg)
 
 開始日落  
 
-![](https://cnawpq.ch.files.1drv.com/y4mk3OhKQTXd6-1ZFHktlYvTeD7TzWu_MolA0O6HnGgeTMVUmOH4mdoSm5NKrIr4eGuVxpKFMrs6uV850RL1CMQr8sVJJYKXjNIz9GFZTMldgyifivSa1_iRSTo2nqDu3aePelUC-4oMM68EPIfPLr6kRz8Xb0pH5kjA3UYIs9P7_HyPwJCEneAQqNilDX9q0u1fs03LhRYU3tov2vAkYD1Fw?width=660&height=371&cropmode=none)
+![](/images/tottori4zg1.jpg)
 
-20分鐘就到**鳥取駅**  
+20分鐘就到[鳥取駅](https://hidie.net/tottori4zg/)  
 
-![](https://c3aupq.ch.files.1drv.com/y4m3y-sag8WOO-fEtClRf501eRi8S-TTofX66PcLWZZsvD1FhKuZUH4Lcc5HpzkIcYp4xs8Hzwwnh7eORpLqU3LhExTngXcM_kVzCCAzgGY_ZBeAv5hw4IqtRWSBS97o97klDUgLqzugcRRG53LegqAXbPEfZtlsZO91ansBYK5ScK_RlcgFbEawf499TBq7ekdIx4o0R5xzBmYeXnsbtSWTw?width=660&height=371&cropmode=none)
+![](/images/tottori4zg8.jpg)
 
 去酒店check in擺低行李先  
 
@@ -97,9 +97,9 @@ tags : [travel-日本-鳥取]
 只係排兩三個位  
 再過幾分鐘條龍已經好長lu...  
 
-![](https://dhaupq.ch.files.1drv.com/y4mFxlyrByRc1YPdZwIrLdLsabKkpyGQMbMmHRGcL5XpnyAH43rIw27O88N3xVyDqIJr9n4H6iq0hAbwEoflGRYApqC8qrlUOWlxNpYlOMBKVlIKGMwD_osIZHoG5yYa1KjpXxYa3tHFnwVmcLvyYZanSoMvUtwUPCrazuOwAhInhgtIyxTAyrUdM1OIbdEhVKA6AsZw60Jzr1GOhipP_eqtA?width=660&height=371&cropmode=none)
+![](/images/tottori4zh.jpg)
 
-**味暦あんべ**  
+[味暦あんべ](https://hidie.net/tottori4z/)  
 終於開店 & 輪到  
 
 ![](https://dxavpq.ch.files.1drv.com/y4meSqQQOzih7zb72E4ANoivnUtBEqN5EkOpBaFImxEXL6vUlkq3tcLpPF9rzduCp9JQUMzYMEwnLdnbmNZyRKzFY7iQaWjUX2RQ-Gis9QDlF2Sl0mY3c8iRIbqW7S-2mZ1K3NA95SB2DlwlRKh4CQlEiFSMwKELxjSirLlSRtu5ItU0AJdTdaIKVgbVSGx9sSxZZb31JIxnk-NxafOQwsZqQ?width=660&height=371&cropmode=none)

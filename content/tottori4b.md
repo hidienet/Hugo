@@ -54,13 +54,13 @@ tags : [travel-日本-鳥取]
 
 未諗到有咩好買...  
 
-![](https://ehavpq.ch.files.1drv.com/y4mz3EuRlSj6Xot9kGunSRS9tgaurZYZKXw6gHHKT6XlCWDUr9PkI5RuNVxgsMWlwG2VkAul5w1R5jrfoe6g3hr7Ruj6zTWQtg7b41XpAwypl4oTtHMFtQBnoJGfmMJGEQCXqs6FOD4e4mSG_G9EmKXqfH8PFLxs2MiR177Rayn42hJ2KlyYYPL4lSC3wtNiVM1RTUfMWEhwxV9dSxl8U35Ww?width=660&height=371&cropmode=none)
+![](/images/tottori4ze1.jpg)
 
 搭返巴士返JR倉吉駅  
 
-![](https://exarpq.ch.files.1drv.com/y4mWsQEvBYH67n1xUI7gZdOWkGJwnDuG9nGT9PdNhuQrmDd1uFIGvM2p5ua4S8OWQE2Wof0TtIBuSbxC4Y3IYXxtC3caEmZ5oHCJPQiClxQG5MSMdAZNCJwwd-FQBjmCVh7CVy-sGL6ymZG2gIobG5Et4k_JJoGI9kICsWl6zPZ0jRranVv4_lNfGd8GaVOtQpJ15xYHRfm2v55X6KsstKp0A?width=660&height=371&cropmode=none)
+![](/images/tottori4ze.jpg)
 
-返**倉吉観光物産館 長生堂**拎行李  
+返[倉吉観光物産館 長生堂](https://hidie.net/tottori4ze/)拎行李  
 
 ![](https://exawpq.ch.files.1drv.com/y4mivH6Sn8sR6El_62greNbx0ZN76brxx5ZyW0x-2-AWftUoSCm4JwgEwPl3_xXds3ReYH75Qd1gTVIFixygkDStc554mwvOAJSU1Pvv6CW7v4L_bZ7u5ocvCAsQEDI-6PTTWJIkxiGn5EEPq5wsBPctM9YMnDmxvt3WCbujHgLE_ug0UcewGHBUU_G63A9_tsbpTxfx_2N0wRHUvBGi52mqA?width=660&height=371&cropmode=none)
 

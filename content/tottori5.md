@@ -54,7 +54,7 @@ tags : [travel-日本-鳥取]
 
 ![](https://c3zhbg.ch.files.1drv.com/y4mziBsChja8esmEuo7yzzFvHydoN2KHsQ9d7YOO5XeLUaQAf0qLkeqcfjymjNbI7PL3OMg_cV_-rc4AADq8IZopQ1VvZstntGHcfRjv-7iN1gmEaf9k8xY-FRyZzNX5kOPD6W890C5UzNMYU2685KIUg6rtdpbVJmjWM6qERktNk-cjzJ0S3Mcye46EZ8vvVS7vICAy4n1FfKsD1E8xXcybg?width=660&height=371&cropmode=none)
 
-貴還貴，呢個**鳥取空港（鳥取砂丘コナン空港）**點都值得一嚟！  
+貴還貴，呢個**鳥取空港（鳥取砂丘コナン空港）** 點都值得一嚟！  
 
 ![](https://cnzobg.ch.files.1drv.com/y4mzZ-uwNG_9VRIgCO5dQLv7G5guJ4l6pjokkZN6uIUFVYncJNGYoJwzs8cJ_HzOfZNRXewh0Bear1XJD04XV81DBcPtQ8oNGj3pnnf0sdmW-xOLfhXdOL3em6AJbbob2J4PBm7nuQ00U2p5pjSRc3XbPFYymWe7fUAULlW7x6MCsD3PVpJHNGlq1wqdKzuv7yJ_HDZRegEyAc1ZvMklj4qdQ?width=371&height=660&cropmode=none)
 

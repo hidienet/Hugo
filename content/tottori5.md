@@ -12,7 +12,7 @@ tags : [travel-日本-鳥取]
 
 今日有太陽但係好厚雲咁喎...  
 
-![](https://d3zobg.ch.files.1drv.com/y4m8OLS3b7XZnNBqD5XhyqElWXlMsfjy4ZJtCC-WyxDNJfykU1WsIQ7qAIany_Mh50eAgvQ6qhxxkyINYVv8Kxv7VmbNWl-a7cZruSxuKEOyJZzXUvWDrmINgi3NObPUaS13bo_oaBXqUcU1j-OowMvQPJW9PujSfCv_dJtoZEvf5AmIHeT8W14xzIMw4pxeZdZwSYQILsn3_Bjuh3OilBm9g?width=660&height=371&cropmode=none)
+![](/images/tottori5b.jpg)
 
 [すなば珈琲 鳥取駅前店](https://hidie.net/tottori5b/)  
 澱粉質 x 澱粉質 x 澱粉質嘅早餐（汗）  

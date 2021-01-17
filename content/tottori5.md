@@ -8,16 +8,16 @@ tags : [travel-日本-鳥取]
 
 又一早起身落樓浸溫泉～  
 
-![](https://dnzmbg.ch.files.1drv.com/y4mD0yZ96mxPX_VwQ8UFqGNXE4kbtcF-YxQvTm_98QOrkaKAj6bDr9lRe6GicHN8pHrZs0YnNCfxC48OA96FyTl1mgDYd1D_KXs2PW3x1DVqM4V5AhsDrQMcBVT2B02e2joLesjzl80-gV6AlIWkRzJxl4gquoS6I7QV1UEUctT8rlBAxX_qEN6GfUKh_lXMcEPmIXbwWP8V21HlIAyyi-0-w?width=660&height=371&cropmode=none)
+![](/images/tottori5a.jpg)
 
 今日有太陽但係好厚雲咁喎...  
 
 ![](https://d3zobg.ch.files.1drv.com/y4m8OLS3b7XZnNBqD5XhyqElWXlMsfjy4ZJtCC-WyxDNJfykU1WsIQ7qAIany_Mh50eAgvQ6qhxxkyINYVv8Kxv7VmbNWl-a7cZruSxuKEOyJZzXUvWDrmINgi3NObPUaS13bo_oaBXqUcU1j-OowMvQPJW9PujSfCv_dJtoZEvf5AmIHeT8W14xzIMw4pxeZdZwSYQILsn3_Bjuh3OilBm9g?width=660&height=371&cropmode=none)
 
-**すなば珈琲 鳥取駅前店**  
+[すなば珈琲 鳥取駅前店](https://hidie.net/tottori5b/)  
 澱粉質 x 澱粉質 x 澱粉質嘅早餐（汗）  
 話說鳥取係最後一個有Starbucks嘅縣  
-响未有之前就出現咗呢間Sunaba  
+响未有之前就出現咗呢間Sunaba喇  
 
 ![](https://ehzjbg.ch.files.1drv.com/y4m_DvoPaDsPxgeY_XWa60cbDuqrfH76exk2Fij55afsHBzF_6LiGB5X9RSaGlqsaUJzs9cohVsfU1dgOLvbmlVa_RXLTa1-8wllMDhll5Gegokn_lhiF-mHnBIH7Yegoc--yf2WPea_SHRsIoYNmUVx8ON_XruiQLfR5pqAVKYqNH4babo6tWIwp17lxswmdJ6YvkrhBD_kGtO72JfLb_Sfg?width=660&height=371&cropmode=none)
 

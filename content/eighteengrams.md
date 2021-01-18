@@ -19,7 +19,7 @@ tags : [flavor - 飲！, satisfaction - 黃店懲罰日]
   
 ![](/images/eighteengrams1.jpg)
   
-其實Americano同Long Black都係Espresso加水幾組合  
+其實Americano同Long Black都係Espresso加水組合  
 就係先後次序唔同，咖啡嘅風味都唔同  
 豆脂嘅香氣都得以保留啊～  
 今日隻豆帶微酸，同心情差唔多  

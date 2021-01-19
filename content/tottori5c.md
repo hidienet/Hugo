@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day5：（ループ麒麟獅子バス）'
+title: '[ドキドキ鳥取] Day5：ループ麒麟獅子バス + bus'
 date: 2021-01-19T08:30:00.000+08:00
 draft: false
 images: ["/images/tottori5c.jpg"]
@@ -42,7 +42,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori5c7.jpg)
 
-然後再轉巴士（有料）  
+然後再轉**巴士**（有料）  
 响呢一刻其實有啲唔太抵嘅感覺  
 嚟鳥取縣玩，搭JR係最快但係好多時又要搭巴士先夠點對點  
 不過買重覆日子嘅JR pass + 巴士pass又好似好戇居咁  

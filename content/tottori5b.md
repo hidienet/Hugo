@@ -23,12 +23,14 @@ tags : [travel-日本-鳥取, flavor - 行膳積腹, flavor - 飲！]
 澱粉質 x 澱粉質 x 澱粉質嘅早餐（汗）  
 駛唔駛咁補充體力啊老細？  
 
-![](/images/tottori5b3.jpg)
+![](/images/tottori5b4.jpg)
 
 仲厚過我面皮嘅多士  
 係靚嘅，不過姐姐實在不行了（飽）
 
-![](/images/tottori5b4.jpg)
+![](/images/tottori5b3.jpg)
+
+![](/images/tottori5b5.jpg)
 
 杯咖啡就飲得晒～  
   

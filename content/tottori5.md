@@ -19,32 +19,32 @@ tags : [travel-日本-鳥取]
 話說鳥取係最後一個有Starbucks嘅縣  
 响未有之前就出現咗呢間Sunaba喇  
 
-![](https://ehzjbg.ch.files.1drv.com/y4m_DvoPaDsPxgeY_XWa60cbDuqrfH76exk2Fij55afsHBzF_6LiGB5X9RSaGlqsaUJzs9cohVsfU1dgOLvbmlVa_RXLTa1-8wllMDhll5Gegokn_lhiF-mHnBIH7Yegoc--yf2WPea_SHRsIoYNmUVx8ON_XruiQLfR5pqAVKYqNH4babo6tWIwp17lxswmdJ6YvkrhBD_kGtO72JfLb_Sfg?width=660&height=371&cropmode=none)
+![](/images/tottori5c.jpg)
 
-食飽就搭JR pass包埋嘅**ループ麒麟獅子バス**  
+食飽就搭JR pass包埋嘅[ループ麒麟獅子バス](https://hidie.net/tottori5c/)  
 （原價成人一程300円，一日券就600円）  
 兜呢度嘅主要景點咁  
 六日及公眾假期同八月全月先有  
 一日得幾班要好好睇住啲時間  
 
-![](https://ehzobg.ch.files.1drv.com/y4mFJWYuXMGvrZ8Dyf1jhDgiZADylBGMgMenbeYFjNMaNE5svAXNcOjDPoApKXNSOSTsvxP6Ki3HptkiJeeY561apN_eOrVIDviYItOtf25Ku_mhKJkNRmZLabeGtMhycSp2T4nWfI6p5MZlhFj-OAPDIspx4SWU2MPrUIl6gnvuLq0H06n64W5fHrTHJOmwyEe7EdGdLYU4i3motLwPH0ldQ?width=660&height=371&cropmode=none)
+![](/images/tottori5c3.jpg)
 
 途經適合小朋友嘅玩具童謠館 - **わらべ館**  
 
-![](https://ehznbg.ch.files.1drv.com/y4mRDVsreg180hGeEc2KdkiLWijgEHZJbSbksMeyDgsgYLFh7E18vMhIrIW5PILSCM7HjiNNXjqnL3nwJsK2qsOwB6TokPuAsefixKizIDUD5NYVJuOgsqO8o5lcjQ3xxxHQWx2YWiSy3YqJK2qBMEB1g2SkiON4gjCJcLubmEOq8h-p62IW916QhaVSqBxf16dikFEOyG-U4jObTh-No50RA?width=660&height=371&cropmode=none)
+![](/images/tottori5c4.jpg)
 
 **鳥取砂丘**，呢個站好多人落車  
 不過我晏啲先返嚟  
 
-![](https://exzibg.ch.files.1drv.com/y4mpL6EZTu51RD1egwxJusHZ7YevoEJc2tpZ_Jod5Q7sLR5BrXZG_tNOAodgInTX8B7ZpV7IZCOlnW58ZIxpF5HbtWXAOES-hHIw4Hw9YzmN9bRG6E2eNbDcRu1RPBWEkai9PbPtvop1hnJFgJCCCFrVZgT9uF4Rkuj8DFb2UlRWCw1bocoCa97FndjfHBhJ2py1P_BHottK_2LPXP1XDq7Hw?width=660&height=371&cropmode=none)
+![](/images/tottori5c5.jpg)
 
 **鳥取砂丘こどもの国**門前嘅蒸汽火車  
 
-![](https://cnzfbg.ch.files.1drv.com/y4m95nitxNZEywo2zFi5tqDSu4n5JLWaC3UVJTlb5FpUaSP7_cV5XgwiB2TeQS01kvCC7Ox4FDH9dEQqCVueYa0TxqouwjVYIGZIiXd_DMrNUZaUmBAdh1pqRCnk9yWEPEcweuDnZ56GjweqbNmFU7fL03sla4e9b2i4709ZC3xzsjGNNM3Z9WRZ1YaH6h_KYXjDpU9ChiiVheccn6wkAjXzw?width=660&height=371&cropmode=none)
+![](/images/tottori5c6.jpg)
 
 天陰陰咁...  
 
-![](https://cnzhbg.ch.files.1drv.com/y4mYthOSVLiu7kN5Ua6nhiO20gjhu9puVNhLN7G1czGwDJibqwwqfL-OOn--VNORJlB28ATic2fxtbW-lUnwwO2om_ARIktGAvudzsyniZXoJjv5Dk1n_TbQ2T7sygPupN_uPeiDJQJqBY1QRnaohB-4P2kLjGJn_DqtfEZFzlBNWRy5bGqx3r-wp_XGOWb9BXv_dmRQyCAn-KC8ivYyqbrYA?width=660&height=371&cropmode=none)
+![](/images/tottori5c7.jpg)
 
 然後再轉巴士（有料）  
 响呢一刻其實有啲唔太抵嘅感覺  
@@ -54,7 +54,7 @@ tags : [travel-日本-鳥取]
 
 ![](https://c3zhbg.ch.files.1drv.com/y4mziBsChja8esmEuo7yzzFvHydoN2KHsQ9d7YOO5XeLUaQAf0qLkeqcfjymjNbI7PL3OMg_cV_-rc4AADq8IZopQ1VvZstntGHcfRjv-7iN1gmEaf9k8xY-FRyZzNX5kOPD6W890C5UzNMYU2685KIUg6rtdpbVJmjWM6qERktNk-cjzJ0S3Mcye46EZ8vvVS7vICAy4n1FfKsD1E8xXcybg?width=660&height=371&cropmode=none)
 
-貴還貴，呢個**鳥取空港（鳥取砂丘コナン空港）** 點都值得一嚟！  
+貴還貴，呢個[鳥取空港（鳥取砂丘コナン空港）](https://hidie.net/tottori5d/) 點都值得一嚟！  
 
 ![](https://cnzobg.ch.files.1drv.com/y4mzZ-uwNG_9VRIgCO5dQLv7G5guJ4l6pjokkZN6uIUFVYncJNGYoJwzs8cJ_HzOfZNRXewh0Bear1XJD04XV81DBcPtQ8oNGj3pnnf0sdmW-xOLfhXdOL3em6AJbbob2J4PBm7nuQ00U2p5pjSRc3XbPFYymWe7fUAULlW7x6MCsD3PVpJHNGlq1wqdKzuv7yJ_HDZRegEyAc1ZvMklj4qdQ?width=371&height=660&cropmode=none)
 

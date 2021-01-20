@@ -1,6 +1,6 @@
 ---
 title: '[雞] NENE CHICKEN - 韓式甜辣炸雞 & 初雪炸雞'
-date: 2021-01-19T13:30:00.000+08:00
+date: 2021-01-20T13:30:00.000+08:00
 draft: false
 images: ["/images/nenechicken.jpg"]
 tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]

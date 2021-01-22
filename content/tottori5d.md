@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day5：'
+title: '[ドキドキ鳥取] Day5：鳥取空港（鳥取砂丘コナン空港）'
 date: 2021-01-22T12:30:00.000+08:00
 draft: false
 images: ["/images/tottori5d.jpg"]

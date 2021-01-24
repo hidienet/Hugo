@@ -220,7 +220,7 @@ Locker + 即影合成相corner
 
 but呢隻柯南就超超超超超難搵！！！  
 
-![](https://2ahjpw.ch.files.1drv.com/y4mLOxfU-4zhxEJK_we4b2M7hVjpO1C9ZaUFhpfiES1vTwiCwdwaTrAlB0d9EzeiaOJSvQr-O2a1vMNfUwJscYgcGZNWNMmD1rNPaB9EdMtK05J-MJKbkUUnH8JefjfFH9ZoCP-OPoOKF0pCzKekgqqHZDTaIORko1kWfUX9X8J7LlxnaKOfiW_i8yGtaT2uq1gst_Y_LenkQ7k9w_d7G1lGA?width=660&height=371&cropmode=none)
+![](/images/tottori5e.jpg)
 
 响機場食埋飯先走 @[大江ノ郷自然牧場－HANARE－ 空港店](https://hidie.net/tottori5e/)   
 呢度用嘅係**天美卵**，好好食㗎～～～  
@@ -231,7 +231,7 @@ but呢隻柯南就超超超超超難搵！！！
 
 ![](https://2ghfpw.ch.files.1drv.com/y4mWvlx_D3Jd75bIbeak--_Mc7MeDWS2eCNIRoIRSDnUvr4tiXwIp0TAiC02b2zcYGVGwQISNQjxe7UbY05O42lJ2-pmyuxya2rZQYT8DLj1fInqfpND3PKyWyTgmw8w6deV-yRGi5vfWNdjoApHgqmtTcWMOdDzDPKAegacfJA5YYPepnsZ8aTtFRsSgMYAPe0hrlOGdihdK6nIJgYe_TRvg?width=660&height=371&cropmode=none)
 
-搭呢架，來回都只係得三班嘅**賀露砂丘周遊バス**（有料）  
+搭呢架，來回都只係得三班嘅[賀露砂丘周遊バス](https://hidie.net/tottori5/)（有料）  
 
 ![](https://2ghdpw.ch.files.1drv.com/y4m8ApslNXMPYNIFDt_4NgDiisEtvFPP-7moblAjC8k9k_1zRD3tlMsH8A0LalxAFIvO_I7UdlrRrjmI04RLHO--0fxmdMn4xBEBFkyS778UJtWVXxZJB9LIzTtYVwBeL19xQUVaG2QV1sG9AE2QtRNNqL1vOi1tPZogomJFP85knpBlLomCLbIptMnrR7fskgJINS3VB999baEazN-M89t6w?width=660&height=371&cropmode=none)
 

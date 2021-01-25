@@ -125,10 +125,6 @@ tags : [travel-日本-鳥取]
 
 配對game  
 
-![](/images/tottori5d17.jpg)
-
-玩咗就係咁嘅  
-
 ![](/images/tottori5d18.jpg)
 
 距離**青山剛昌ふるさと館**50分鐘車程  
@@ -163,13 +159,9 @@ tags : [travel-日本-鳥取]
 
 **コナン探偵社 鳥取空港店**  
 
-![](/images/tottori5d26.jpg)
-
-裡面有大幅牆畫  
-
 ![](/images/tottori5d27.jpg)
 
-其實都係買嘢嘅地方啦  
+即係買嘢嘅地方啦  
 
 ![](/images/tottori5d28.jpg)
 
@@ -177,15 +169,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori5d29.jpg)
 
-Locker + 即影合成相corner  
-
-![](/images/tottori5d30.jpg)
-
-打開呢10個locker裡面  
-
-![](/images/tottori5d31.jpg)
-
-都係唔同角色㗎  
+Locker + 即影合成相corner   
   
 ![](/images/tottori5d32.jpg)
 
@@ -197,11 +181,7 @@ Locker + 即影合成相corner
 
 ![](/images/tottori5d34.jpg)
 
-又係影相位 w/敲鐘 + 心心郵筒  
-
-![](/images/tottori5d35.jpg)
-
-將凳都幾靚  
+又係影相位 w/敲鐘 + 心心郵筒   
 
 ![](/images/tottori5d36.jpg)
 
@@ -252,25 +232,13 @@ but呢隻柯南就超超超超超難搵！！！
 兼去實驗會場學吓呢個沙丘嘅風紋形成  
 （教師知我唔係日本人特登講慢啲所以聽得明同聽得晒嘻嘻）  
 
-![](https://2wf5ca.ch.files.1drv.com/y4m29zo5SfIwsLlQCjM4bCC4vhNmZGwDYZp-pr9OtMv9EviQCggeqPacQoLfXXzLXnurKH4MGKIDz5MClrhg9IGCEGwh8sDSqX4vE0aLsP7cA6lntCGJMvkwXHG2AbE1bq5U0wCwMrxsXxtGT4OgwbgHtRuN8TdXQxioyrqPbgX_l_t6Mw-NMuhjDYa3T_3iMUP7LN3cAnWOpoSG8xR5eUMtw?width=660&height=371&cropmode=none)
+![](/images/tottori5h1.jpg)
 
 因此...  
 
-![](https://2wf3ca.ch.files.1drv.com/y4mfKgBRoAlsUZDj_gOv_dBslHObuw5CQTXvRMZjxrjOLveB3tZXqhXEav8gedAiSD-lzs_gKpcw69szwxKmMDSJWzItYOa678dpFGzTYkWE6Wfwh4h69rVFiwOOOmLDZL-U7xDa_IhpBLPoISYqroVTdu1EnD6zoN4HQv2Vz_yLh7jwZWmmi6R7TrC6W1WHs9Dct1id1UfyIaGORbLbJ-EoQ?width=660&height=371&cropmode=none)
+![](/images/tottori5h2.jpg)
 
-...我好清楚今日嘅**鳥取砂丘**係絕對睇唔到風紋嘅！！！  
-
-![](https://1ahkpw.ch.files.1drv.com/y4m2w3aaITzcOzX3VrQ0z5AM107Io4iovFiAw2NEZzBn1Xtpv0wdKmdQih46amx6ssg2SbO9YuPG1J4m_Nu1Xdk2eNIJXAHYZfBoi4TPmT0a47qAjSYYiz7iO4OgPqwdra6xYJInsNshpoabTM4weLjPEiqR8gBML1N-DhtbgTRwL8sOYCbIBs-IEWjbS084a0UxqclT7h-Gx3p8bdQKyT8fA?width=660&height=371&cropmode=none)
-
-齋睇沙與海  
-
-![](https://1ahfpw.ch.files.1drv.com/y4mGFM-wgdMrQOxsveXkUU2nHJx86dWKGnSgqBoALOTz4qpaIAGn9Hmdn3QD-LVf48c1dOwyhnEIPhfgXZjUpt8vWR-VdE0lgjinYeT2HV_9Vn4cUV4Fe3d66em2UtGWX_MeeijnlCovXcjpG3dPcxZjbz7ilyABavVtt9_SKQ_gsvWLnouXkGo-FJnlIhX1IwKzn0MoowLGV0LNhnPcxz-4Q?width=660&height=371&cropmode=none)
-
-and 食風  
-
-![](https://1ahbpw.ch.files.1drv.com/y4mcDWZP-K6ouh_4XjMA0rFtQofg85KDMZ49PodfgXZ_-Gqu4bxwyHpuncD7HVaP76oyZL6QPD-NyObFQp3aDS-NfSqlK7EQgBIBbTAcNrIzp9YXYrsV0ttMRp4NMlqAtKSYXDC-NhaiE451K3ahbf8cWJo8px_WkAbkp1j5STepzmJInquSG22DwLl9ROp279Kgq-14Ri0Ta00HiuUujthZg?width=660&height=371&cropmode=none)
-
-放心，啲沙好濕係唔會食到沙嘅  
+...我好清楚今日嘅[鳥取砂丘](https://hidie.net/tottori5h/)係絕對睇唔到風紋嘅！！！   
 
 ![](https://2wf4ca.ch.files.1drv.com/y4m94lKWWpu_qrlNsWnFYHalfJkIy2TrM7QVG2gvGM56F8VIWuYCauGqbLNx8vGa7-NWkyy_X0Ba6eiOSXOPODajpBNAy-WUqlDCv4WRwHFnnPiJ5ZmmGlagtcNeJUrWXfGIRM0ah4DO9SXH1OKQb1cAa3ZYvbxs2E0Ee1rmCyQN8x6BmpHSvgZPY41MKxzwZ1TCFLsFQ0vGGdo25I58-cuBg?width=660&height=371&cropmode=none)
 

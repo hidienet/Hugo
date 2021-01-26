@@ -6,16 +6,15 @@ images: ["/images/tottori5i.jpg"]
 tags : [travel-日本-鳥取]
 ---
 
-
-
+無謂吹風，華麗轉身唔眷戀沙丘
 
 ![](/images/tottori5i1.jpg)
 
-無謂吹風，華麗轉身唔眷戀沙丘行去砂之美術館好過  
+前進去砂之美術館好過  
 
 ![](/images/tottori5i2.jpg)
 
-冇諗過搭嘅纜車  
+抬頭有冇諗過搭嘅纜車  
 
 ![](/images/tottori5i3.jpg)
 
@@ -27,7 +26,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori5i5.jpg)
 
-入去
+入場
 
 ![](/images/tottori5i6.jpg)
 

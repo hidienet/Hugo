@@ -325,18 +325,18 @@ THE LOVE STORY OF TAJMAHAL
 
 食返件[鹿カツ](https://hidie.net/tottori5j/)暖暖身先  
 
-![](https://0wfpca.ch.files.1drv.com/y4muvi7GhqJdaO7o0WFOhvbix_gZ14z5F8LyIvHbN0oO61teUvKU62DQqaj17AixagCwXIDoYzp2wDMUeCSYiIPpk6XpFmAIvBhmVW6J0T3vEmq9k94wZhCckb0ydPAzSBJPTgju3Bfy9xCGAq-XVdkX4hTdSfBlFk3RXi5pZVO3q09bSA2KGMrrXryuI-xxyvVX5ULH7iiT8X79DAGmLHThA?width=660&height=371&cropmode=none)
+![](/images/tottori5k.jpg)
 
 人生交叉點之仲有20分鐘先亮燈  
-同仲有5分鐘就係最後一班免費巴士之間  
+同仲有5分鐘就係最後一班[免費巴士](https://hidie.net/tottori5k/)之間  
 
-![](https://1af8ca.ch.files.1drv.com/y4mSwOBdQkPMgEkVIAFY9Q8Z4hdIIBu1btkbN1BZ3RKv9JcvR9bsEm1_p2dBNXF-1jS6u0fiVLaJ43BTRHjJXZUeX-0sWYGtTlmaTgflEV7I0sWdxL6jIPa7io_grP8-j0mI4-LtyfH-2ZQLdlGrPpXV3gVBPIRBpK1wlCHdL69Re4_w1qQnaMEqd3Sx6w7biCX6MW6NfONT5HoUxJhWOQ9Hw?width=660&height=371&cropmode=none)
+![](/images/tottori5k.jpg)
 
 揀後者！  
 
 ![](https://3qgmeg.ch.files.1drv.com/y4m1XgRavnzgkwPUx9iwbfCv3TLli6vd6g3fX1Lx93rxhO_bsbjmdNaa20Abw9G4YxyIGN8c7QJrL3OLeLDLIQCH3SlDCwkzOvqQo_Jq9eCEqYAPjzp7d2NBmxTbC7-SSuUgTkATMC2w0E4MH-4dvK2ItcG-UcZqbu0b0YHYeDw_p3o-yo4uTeRlG5GrLQhUZrBb8NMyB5ov7o3T9MdKM610w?width=660&height=371&cropmode=none)
 
-返到**鳥取駅**，就直接去日本涮涮鍋的發源地**たくみ割烹店**  
+返到**鳥取駅**，就直接去日本涮涮鍋的發源地[たくみ割烹店](https://hidie.net/tottori5l/)  
 食鳥取和牛しゃぶしゃぶ  
 
 ![](https://3qgqeg.ch.files.1drv.com/y4mE1CNVP84acUqxbUBOzyoeQkqH_fIR2D7OhUViyF8Cxs8DDpm81kbPiDiegKWMfTVU0lBu8naoEr3TJBONH7ZUsacim0vnDEDjejbrGIGoQKWb1wfY0UKjj4VXkwu2LWNhFNV7gDGzuPyV0mkq_eNs35VQHvaniTEKP3SqmV2XlaafJUb7HU0kGroFc32QOaCEKBa_oEWPEBXeSNlXan99Q?width=660&height=371&cropmode=none)

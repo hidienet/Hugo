@@ -347,19 +347,20 @@ THE LOVE STORY OF TAJMAHAL
 
 肉滑又唔油膩  
 
-![](https://3ggueg.ch.files.1drv.com/y4mjI7Q2m1-FdziNOm7axHvrJsuAPfdPFsPfQbvNzfsMDAz5MHGYR4wuvejLjur1wy12GTBEq8d0Yg5bXDtFEF9mqk_RUS-MloiHEf8bHwyLOngtzxvbGDnNyFJeUEkhGqb-zG7bwt5i_EPnidsRP4K4_kVCWH0IS1mmPEXWVj6gBQ8cGG4BR3ibloEzWL0WO1B-J6Osvf4yamh6FCHaVidjA?width=660&height=371&cropmode=none)
+![](/images/tottori5m8.jpg)
 
-食完又影水渠蓋：鳥取傘  
+食完又周圍[行吓影吓](https://hidie.net/tottori5m/)  
+水渠蓋：鳥取傘  
 
-![](https://1wgneg.ch.files.1drv.com/y4meMG6J0XEXb4ocfG9lLBUkdh4rNCOOnOZAq58lBb_tvJz-H20vFcxmaUVFShZH8Zb2089Z6bVxF2ki5PkLioShsgVp1uX0qXDPoSR1gjIRXADNSxtY1IlV3FGt_txKbx-uD8d4YKIFsomy64H07NPWGOtNn1c7RnkvfItk4iEIqOSUWl7x-hUEtYdW2wDEPVC2vJ3CtfaDddZZQFzNuXb-A?width=660&height=371&cropmode=none)
+![](/images/tottori5m9.jpg)
 
 8月中旬會有鳥取しゃんしゃん祭  
 
-![](https://1wgqeg.ch.files.1drv.com/y4mAGkeqkVxS6paP4lQFQoWxeJbwr3zsKLzw6PF6CUwylIlxaPg0_PaYOVxbCdZMU_o83R8_EjI8xxjwrfWbFBXuIciWjOiNwkkVAEFhOlFH7qq7-3gKxFQjoMPQ9WFoJ2xO9COqfAThflj18vIdenWaN30ila061eHZ_E2HfS46Y56XE4Ox5qmLWOqYxILLlARJGpGpeORyfnHw8BxT_dpYQ?width=660&height=371&cropmode=none)
+![](/images/tottori5m11.jpg)
 
 唔難發現周圍都有呢把遮  
 
-![](https://1wgpeg.ch.files.1drv.com/y4mNxqTD6Pfz2rw3BUAk3O00pn_GCLcIpIMfypYGgb88hK-ZPsbUqfqdexchBs14Hnxcb6pBzulF5oKtQCAtevn0l-rmtx9W-lDwPjrRL1qm6pZkGFLcR7mr7x1BpuuQu6v-_Df_5-cTtHEeB-eQnZM7wWf_Oj5CQqIvAxU_ukxndbJHjSbd5pN7_WpN9Cl7z44U5pwzFubXlllfh3cwpJVRA?width=660&height=371&cropmode=none)
+![](/images/tottori5m12.jpg)
 
 郵筒都有佢  
 

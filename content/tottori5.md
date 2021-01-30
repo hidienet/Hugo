@@ -364,16 +364,11 @@ THE LOVE STORY OF TAJMAHAL
 
 郵筒都有佢  
 
-![](https://1wgreg.ch.files.1drv.com/y4mBjNw5alqfryhTqhziEgEVTLHWG50GMXjVRxwyT-SS39pBa9CZFFTCQoqr0_uvJDRLCfq3StEWPH5NxfPT9nLp8Ta3jw6RnBCI0rnIM_uJDOA9CSFokf2lQAbsdeWictABHK7Mzo3bJ7_I2hS3a8dWD5loCXLWEwR8z1ihrgh6QLxJKITHGSa6nj_Qb4yFJJli_2Xp2p0i7VBKJczyVuBZA?width=660&height=371&cropmode=none)
+![](/images/tottori5n.jpg)
 
-今晚嘅ice time又係**グリコ アイスの実**嘅天下  
-有極濃郁提子味嘅**濃いマスカット**  
+今晚嘅[ice time](https://hidie.net/tottori5n/)又係**グリコ アイスの実**嘅天下  
 
-![](https://1wgueg.ch.files.1drv.com/y4m9J_FIOQs7lbzfJu6c_rwo78rgVfm8_-08zo8_Rgx6ziUAohf9qSpbHcvQTKNh6p7ZUQIuZNkGyEGzXJDQvuI4qZzdU6znIBhVxG-wIwM9IEjNAA4Eww6nQqmpSc3DXV4NFLvyxXskyOtNkH7GzPiodGLBbp8LrYRtKAbs725jb220ls7vdwXK3NLNmDH8r-GptXk7NvA_TdaUxveQsJs4w?width=660&height=371&cropmode=none)
-
-同滑身濃厚唔甜抹茶味嘅**グリコ アイスの実 大人の抹茶ラテ**  
-
-![](https://2agmeg.ch.files.1drv.com/y4mcknTx650HLZsb4mCVBt8sWR2AMDbzpHfqcj7ng_TnhUj8jLPnr0_NAA0Mlme4uVANnyAFrtF2ij49jttLtsxy61ZP210GxDr7e7VuaK0m2pfwkdHBYq-6XJ55g0s2qKB1VGlpameZjl6iqtEakAYJ-xa7HDYE6oZL1wHdhS6UksBz7g5q3l6byrV7nYlU4ZJJeV6zhOu2NVSyhleqw6xtw?width=371&height=660&cropmode=none)
+![](/images/tottori5n2.jpg)
 
 落樓浸溫泉就梗㗎啦  
 返上房都會開返呢部空氣清新+補濕  

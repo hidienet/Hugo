@@ -8,23 +8,23 @@ tags : [travel-日本-鳥取]
 
 一早，先起床落樓浸溫泉（哈哈）  
 
-![](https://2qgmeg.ch.files.1drv.com/y4mG5ou8YJTme8957viKc7h-bK-vQQxZy7iC3gzRudwDjTQYqwk8k358evMyLdiuUUbIhuIpGacP4p4eN4khSM_qoq_3TSnFHzUwTcdo63WLZOTT3YtIvaARoNDFO2SD5hdd0cXHkUchSNewkvyChXLoSwtTwgE08OzhxlIKuAImJRsmMwNyIO80WtZil_zDtFdXGzSoSk4Vv6j5krlNgUcZg?width=660&height=371&cropmode=none)
+![](/images/tottori6c.jpg)
 
-落街食早餐 @**砂丘そば**  
+落街食早餐 @[砂丘そば](https://hidie.net/tottori6c/)  
 清清哋，個鳥取竹輪勁好咬唔錯唔錯  
 
-![](https://2qgseg.ch.files.1drv.com/y4mhe1ckRtQjoLOMMzE40IJ1VyuUfkvF1X6v8Rl66YcPTwhMHDrkiKv6VLKYwVF060Shdj4qPlG_201xNYhqpezYeYIuicMr76TQlLXrNE8EVi8lqt9vcY9ib7WpDEEvUD-einjFsQQlhWgtmYxPEyW64lMupZUlfh0qcpwg4kb0mo6lLqfdFF4O3p9G5iCbigbXCZ-gfcyc9NBLXph0yZj0A?width=660&height=371&cropmode=none)
+![](/images/tottori6d1.jpg)
 
 食完就返酒店執行李走人  
 最後都無搭過呢架可愛嘅**100円循環バス「くる梨」**  
 
-![](https://2qgteg.ch.files.1drv.com/y4m3GeyaPxWqmGbvGwZT6jttLA4rNvueAAyj_wBiBHVY57jrwFtG2wFaqXWzfY0OHGm-xjuy-V3Ow9CZP6zUFs-mtr2GrRCeNv3qsHC3X7Vhv8pOWRx7xWvvvksISoN1PubEh7QHOrC06_kaDmhdrUB-8BtGHs9OJnuWNfKkEEaqNgy5Bt875OJxYy58P5bxn73mvzvAePBYOATcyKlunMarA?width=660&height=371&cropmode=none)
+![](/images/tottori6d.jpg)
 
-搭JR先返**米子駅**  
+搭JR先返[米子駅](https://hidie.net/tottori5d/)  
 
-![](https://2ggseg.ch.files.1drv.com/y4mMoJjb9kdKpDipGal_CaRqy-Hd7NXEQkbv1cpWZ0blRkVIKW1BaCkTM-3LuMGlNPj8YxRc1AoyE5lqGKuDUzd_Ceqqkt2cobbMf1m2IGkycTpRBzpPD0nEWFKR3-bRF3bRd8xwuI3LOS9E6t5XDJ5koTn4GLmCLhWKltIlM5XrKb4apHxUgZ7DfrmVg0Ge1Np4T3r710rmereUkJxRg9dOA?width=660&height=371&cropmode=none)
+![](/images/tottori6e0.jpg)
 
-**アベ鳥取堂 「かにづくし弁当」**  
+**アベ鳥取堂** 「[かにづくし弁当](https://hidie.net/tottori6e/)」  
 雖然特急嘅車程只係1粒鐘  
 不過都會爭取食駅弁嘅時間  
 仲係鳥取蟹便當喎，唔食會對唔住自己㗎  

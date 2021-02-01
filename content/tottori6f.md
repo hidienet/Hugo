@@ -28,7 +28,8 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 
 ![](/images/tottori6f5.jpg)
 
-& 天花    
+& 天花  
+（不過當然揀坐另一卡：**目玉おやじ列車** 啦～）
   
   
 {{<tottori>}}  

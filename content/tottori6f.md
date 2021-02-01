@@ -6,11 +6,11 @@ images: ["/images/tottori6f.jpg"]
 tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 ---
 
-鳥取 → **米子** → 境港
+由**米子**去境港
 
 ![](/images/tottori6f.jpg)
 
-今次都係兩卡車，先入**ねずみ男列車**  
+**ねずみ男列車**  
 
 ![](/images/tottori6f1.jpg)
 
@@ -29,7 +29,9 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 ![](/images/tottori6f5.jpg)
 
 & 天花  
-（不過當然揀坐另一卡：**目玉おやじ列車** 啦～）
+  
+今次都係兩卡車  
+不過當然揀坐另一卡：**目玉おやじ列車** 啦～  
   
   
 {{<tottori>}}  

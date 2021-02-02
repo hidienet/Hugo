@@ -20,7 +20,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori6d.jpg)
 
-搭JR先返[米子駅](https://hidie.net/tottori5d/)  
+搭JR先返[米子駅](https://hidie.net/tottori6d/)  
 
 ![](/images/tottori6e0.jpg)
 

@@ -61,31 +61,15 @@ tags : [travel-日本-鳥取]
 
 落車  
 
-![](https://1wfhhw.ch.files.1drv.com/y4mLm-z5W8gmWSyScJ4NDn9rE1k3neEMSdhUFni-QC9JsCC1uzsUIyDQJIosmT0Fz5KF5VZSJOhRqo-ihH6aYOLQnX0DzWIFqr-ygDYqawIKzr-En7XGQt63389TE7usXmJw6BnD5FHS5-laKHBBgh2CA89yFs89u6819Bz8VIkvExeIvWTh5VE3kgsTTwNXJT_6wU6wdA_iUnsfnqU0s-GNw?width=660&height=371&cropmode=none)
+![](/images/tottori6h.jpg)
 
-米子駅／「ねずみ男」駅 → **境港駅／「鬼太郎」駅**  
+米子駅／「ねずみ男」駅 → [境港駅／「鬼太郎」駅](https://hidie.net/tottori6h/)  
 
-![](https://1wfehw.ch.files.1drv.com/y4mnXqTx5kCj3dhr8TIMvv5GeUzSNuJiszOcgjsK-t-YeMdbSaRm9m8xBDyDjWGIgfY8d8LXcGPraw9EP0ZHaI2Z9yTUoCc-oTLPgWP_wa9_sVWbGGkkrADVl339a2JhvRpNshyyyIRlQ5ZqnR-2kCexNzp1YJqNO9oyi0CDqEl-g6bdbUNd2Oymhe08qC857ylmnMkkSs8CV57o8y-k9aBUw?width=660&height=371&cropmode=none)
+![](/images/tottori6h1.jpg)
 
 搭晒一！整！條！境線喇～  
 
-![](https://1wffhw.ch.files.1drv.com/y4m7oRNbRapuW9dhP1up5T6TyGJXVqODCH4ZL1ixhG-aZ7AOM0Jh_2JoTlDzCVSiGCoNgrfxcuzeB2JXW-p69GUnKgdXJGRL6YMcOrmN-4i86CFiM6zSmHcuKWaWw86jSOhAPL3RZGvU6JKfW1m-4Y2IcxPAjYM3heRaDEbpED8Cg_Y-7uMUbXnawEWMc54401kK-ZQKGvP2jUg0R-LD3CHtg?width=660&height=371&cropmode=none)
-
-個站當然係鬼太郎鬼太郎同鬼太郎啦  
-
-![](https://1wfdhw.ch.files.1drv.com/y4mt-cYOpcAnPp8XTyBsBgKg_0D3uyFIz8-XInqJ0z9bprp8TDm-BH3MOlI6woh04BlgdrZoKmlvd-ZmkWlKDmx_6W7IMsZrQc2aDDxTNJbKJmnYTnu-sQG7v4WBLNr9Dfb9OSCGP_M1vG8UYTPF6KzfDCf_Q2Rxs2UFMfc8-ZswpZPZZxDBNBEmWJyXi4Opc8opFc1RlR2WRXIIMT53VyUEw?width=660&height=371&cropmode=none)
-
-天花板梗係有  
-
-![](https://1wfahw.ch.files.1drv.com/y4meS4y2wPAPYhJZ7adDqeBpH8cC1n6T8RVaOn9UluyYpvybGyxcP7n_GIDh9ZtVKkWEi67FbtlVdP1J4sA2SzDdA8irnhgwIrytOdFIaUXAk-9Jq6P8VsE84C05LOgnJS4dhFXhZHmJfTuTy-19LRhiL6QsAEPxIIFQmS9Eanm22Ujd26XV3iXGK1VZyze0-TqolJ4P5xz4C1e69x1WhaY1Q?width=371&height=660&cropmode=none)
-
-拍咭位都係  
-
-![](https://0wffhw.ch.files.1drv.com/y4mWRJZurd65qQ6qpT1-QdIPzlxjcF79gWK4Av6KGegJqKEPWYNvzg9m5wqzp5YoDRwWTcAVuK8f1wBIex0zQTaEeDGhS3MYhEhgfkAsxUbRwwxi2vciNz1sN0sOh7mGrDt58M6M_xPB72yl4y4e77c3E7qapGflpNI52iAQCIDhiX5CNxSTKKkMy_21kYL8mwttjlR82eViQtfMuYoZsmnVg?width=371&height=660&cropmode=none)
-
-自動販賣機都係呢  
-
-![](https://3gfjhw.ch.files.1drv.com/y4mB9n8cxiDfRC6VNhIn-KFCaUVlix7aDA9hUDxboK1pjFg8h3o67iAoJXfThdXM6POwVTnXbGIthP8dGmuIyZlBXumnl1MWLAVOElEbddHatDtpxbppD3i5mVIEsEWHBU3uygjiO9Wh2RIiC2XR6fVfJYdXhzadGiQgFZfIur62HochMn1eCAemJQL6afyHUZOdWjt-n6YrNcRKLb2fJkOew?width=660&height=371&cropmode=none)
+![](/images/tottori6h6.jpg)
 
 出站口就見到**みなとさかい交流館**4樓有浴場同桑拿  
 仲係有爸爸浸緊嘅梳乎樣  

@@ -1,6 +1,6 @@
 ---
 title: '[ドキドキ鳥取] Day6：境港駅 |「鬼太郎」駅'
-date: 2021-02-03T16:30:00.000+08:00
+date: 2021-02-03T08:30:00.000+08:00
 draft: false
 images: ["/images/tottori6h.jpg"]
 tags : [travel-日本-鳥取, satisfaction - 搭條鐵]

@@ -72,6 +72,7 @@ tags : [lifestyle - 逃離852, travel-泰國-曼谷]
 [johnson's - UV white powder](https://hidie.net/johnsonsuvpowder/)  
 [Love Farm - Chilli Lemon](https://hidie.net/lovefarm/)  
 [Amarula](https://hidie.net/amarula/)  
+[Counterpain](https://hidie.net/counterpain/)  
 
 
 ![](/images/bangkok6d5n.jpg)

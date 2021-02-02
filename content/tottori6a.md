@@ -29,32 +29,18 @@ tags : [travel-日本-鳥取]
 不過都會爭取食駅弁嘅時間  
 仲係鳥取蟹便當喎，唔食會對唔住自己㗎  
 
-![](https://0wgmeg.ch.files.1drv.com/y4mSd8hfLacHbdSZcoOKeJplccyBunIAZhSoFc0FHASZwFAjsEy4MFz8QmWOCMvBVhLfnXoViLipkOqvsmzyG3Z7fyQ3KYbxIZpwigYKy2GObpJgJju--YAJ09rhLQHu0EKnxVK6SklLjITm-eHpbdqbcsGxl07qZW797w66FV-EMuKVvKM839NY78D8wFbcllk8JkTP5Kgo8awEbAdDv2efA?width=660&height=371&cropmode=none)
+![](/images/tottori6g1.jpg)
 
 厚雲again  
 
-![](https://1agmeg.ch.files.1drv.com/y4mQsylTmJD6Tv54FjNEifd5U8SzrN_S0P9b5p66DG0HX82JSniljRSnbEErD3_Qq6kMRj8dtuOy2u4EINkMYrTux3Bh6yOJcbyPEAly0_txPQ1l6ifPdhKdvd5cS7WxCjLTswC_3fvOO42d1dggSFLj-6bYEtFod_JCKQiZrIFcJciv8b1x0gqyY6K61QzEwrwV6jPqWoJ_At7Vij3JzlFUA?width=660&height=371&cropmode=none)
+![](/images/tottori6g.jpg)
 
-返到米子**0番のりば**  
+返到米子[0番のりば](https://hidie.net/tottori6g/)  
 然後轉車去**境港駅**  
 
-![](https://2wfjhw.ch.files.1drv.com/y4mWFVK0R0_1zledeq1tB1CevOw0d5XZWL5stU_Re6mMpL_mvIeqA_V1MQnF3HXnMlOu7Jnp51zwsZHmNAbY3wd0-DEVB67PWspb9zRbdn0GD3m5dTrl4s5xuIS0_vDDBJ8SJknJWWzIp3RhydNRTvB1Gr6Ucx9hWpdDmjoSPmTwmf3s1X2JTcbrXMLSfAwVuC7sM_2T62mPkMmOesqkENzUA?width=660&height=371&cropmode=none)
+![](/images/tottori6f.jpg)
 
-今次都係兩卡車，先入**ねずみ男列車**  
-
-![](https://2wfghw.ch.files.1drv.com/y4mInb3LYzEut7HP1Gcvm4IwK2mQs_27ntSK1CUmZtgUTI8KfeuVbvM992EC8-Y4i9Ky8QxJQpw-V5J6KYjQJnMzwYj2w7BsQwk2paDDxHoy4c7EGNgj7Ypw_A8chY6atfiAhJ9fuWcqaoIuHCCKOvui4eU_pJbkfl2S9YyTqFB9ujObz5RJ4p7lk6sCkreCZBUTBEHNOp0VtUNiyX15hzk8w?width=660&height=371&cropmode=none)
-
-當然車身有大大隻鼠男  
-
-![](https://2wffhw.ch.files.1drv.com/y4mlUofJsl9ALJaWD8v_KiYIj0pCke6cJaVt-Br7-UFMi-_Ke9J-NyZiF9ZcDPWCm7iPAtPghGr_cCzWpx4pzHz__n8g_6xNvXOy_rCZvmJRRsMcU8Qq5ZoSPmvhkUIFDId6I4fI99ebeJFu9U9mOClCZeEW2SUiDjJ-NgHh3OtS0v8aJYKuWiyUCpszvLsXw7_0tLaZFPidWHlyMbKID6msA?width=660&height=371&cropmode=none)
-
-同滿滿鼠男凳  
-
-![](https://1agueg.ch.files.1drv.com/y4mkVZ5hk-kF_a14XsyRxSgevK0UAPLb9ILx2MmWbbSQV9TuSKsegW6I8HFpk8zNuRm5OTCxo4nzG9ZD8Civ2j9Tk9lz4oOkrDuckGqNjfdErxFNiVmVse68hfRbHredhJiK5Hfsy2nI0C1jDBOFz8DI93XNeu7_cPjO1CWOeCQ8zMHuLP2AkA_VYx9YrUZU7OfiRRfgdxw8U3NQo0zgp268g?width=660&height=371&cropmode=none)
-
-& 天花  
-
-![](https://1agreg.ch.files.1drv.com/y4m1eXXdKVMMbJoY6ivXfjD7XrkFuHo8fx807ZwlcTJzdrlHqHLk1AfCFK_xWg7CgobjsCbQJTax7PG2zwZ7yW1OZZXKfKjqFsI0Pj9IOhM_-kGhUb5NELsIhKGeOLtVjP-FLkRnr3awciW5Ajoaz2Dp2pxeTuDfkPcA428OVLBkvxZuC8BJHJz1Lu355VjX2iONRukbD-DjXsuZPVpeW-9sA?width=660&height=371&cropmode=none)
+今次都係兩卡車，先入[ねずみ男列車](https://hidie.net/tottori6f/)  
 
 而我當然揀坐另一卡：**目玉おやじ列車**  
 
@@ -66,7 +52,7 @@ tags : [travel-日本-鳥取]
 
 天花... 都話浸溫泉係最舒服㗎啦～  
 
-![](https://3qfehw.ch.files.1drv.com/y4mYm_IafpONUWzQcsaIcvYhJ5w4NdCub1VRprivJG-j8IkhNMUZjex-kVqDN5UTpGUXCKiJhRUT66OqwrP0kibi4yGi2tZWClNKyraBQq_3y1RlHc5EtICpJtJfnGgJlHeJ8vM-F2_-QZ9HU7xczjWrhXedrONIzvcOEKZQx7qxWMx0Mx5JpDUFcBm-JF1z2WCxPKx7ZaNMyMy0uH8Uec7Zg?width=660&height=371&cropmode=none)
+![](/images/tottori6g2.jpg)
 
 米子嘅白大蔥（！）  
 露出綠色嘅部份都已經大半個人咁高！！！  

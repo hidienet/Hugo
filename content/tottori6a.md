@@ -75,24 +75,24 @@ tags : [travel-日本-鳥取]
 仲係有爸爸浸緊嘅梳乎樣  
 but唔駛啦我今日又係揀有溫泉浸嘅住宿哈哈哈  
 
-![](https://2afjhw.ch.files.1drv.com/y4mGfoUzHmQ__KDOv0BDftloc4Bb5EXDyxiO8DVcZcTmTSVhutVOg_qlHy_WdA0xlJy9d_zFg4w0KV9k_UdzKht-eCN7RJc5UnXTviMiz1j9-2Vf0YjyV2R31dSYL1IRjQNiMDL1TOK0vqnulW2FwXG3UDf8lkzlZsuLDRYQ7w9w7RRzzvAQPhYm0Ti1uoAKldly1Yq4hPhUWFl1wcX71JIpw?width=660&height=371&cropmode=none)
+![](/images/tottori6i.jpg)
 
 行出車站就爆多鬼太郎銅像  
 黐線㗎完全係memory謀殺之地  
 
-![](https://0wfhhw.ch.files.1drv.com/y4mlqpJCzr6EaGeXusujy5RcQhLB3NgXo7JleVG9jVs1wdD-bzSbIsidOdHMi0LRpfwmUr-Y0lVDHC_mF2LE8w3U-770dZk-nOeMrU4YWHejOdRc_gcI9hrxR4IoG3Nyh7LUkgkfn35yAt4PY7uv1UKUb2ELkXD18ZTz6uEvnTUd7bvxiImdtlNCHekhBEgyP0GlxmppCbtOF44iy0konlnYw?width=660&height=371&cropmode=none)
+![](/images/tottori6i1.jpg)
 
 哎吔吔，的士盞燈都係爸爸  
 
-![](https://2afahw.ch.files.1drv.com/y4mrVlhHqAvkB-NUq94Hj-JrBRNrwdU7nDkh3XeoREAj4uq-xaJZlj4LJ9OeJUmJUMA4ZBS3FGwLytks_k0RtY59DaP3OxE0zVJKc_Au7VxB1IIE4QtwV8rdF6SNiuqR4kWiz0xoDjGX2OOZxCr7zkvnH4Od4FWPjX3uOC99nycIC6wFlit4JN01ujqNYoxn8TeiMnqQKkCzilt-o2ej1klww?width=660&height=371&cropmode=none)
+![](/images/tottori6i2.jpg)
 
 連交番都變咗**鬼太郎交番**  
 
-![](https://2afbhw.ch.files.1drv.com/y4mSOK-I3EkWqduZkkGB963N9hhOzSsGZcsUkKWWRE2dGxrBczT7AqScCZpiAoss3GYiAHWbSp1MHgb3Gm_bwCnmzRWQeYkUoAac6RcI4hq1SV4x6eAzQtGKa0nfE_kLfbJcWmjGQYW3MsdrMMPehgpl7CgdD0l6wHz53MrEPtreSy7MoAvpyz9rLrXgSLdyT17Xco92yWnqzAxyoLvQQ7TRg?width=660&height=371&cropmode=none)
+![](/images/tottori6i3.jpg)
 
 轉個彎就有嘅無料足湯：**妖怪たちの足湯**  
 
-![](https://2qfdhw.ch.files.1drv.com/y4m63x_kFuRcym5hAxxhwOxSoby7jwSoHb4a13V5NQ8lORGdbK71cfciUkQ9XoVjv7Cva5qsMNqTWKZoyM9eo6QZen_VKzW1Lun7HdIqwKFOnCbzTxcMD6l1UePxGZWJOiIuBZBewVjzomP3sPOEo5QrhK__R2YMfeSDhETTl_dXJ7uUX1mqPyQ2K_VKUCctMJ7GG2kWYHLLs99mFvGSMCb6Q?width=660&height=371&cropmode=none)
+![](/images/tottori6i4.jpg)
 
 然後去酒店check in完擺低行李又出發  
 **水木しげるロード** GO！（**水木茂大道**）  

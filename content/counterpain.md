@@ -7,7 +7,7 @@ tags : [lifestyle-急救箱]
 ---
 
 諗住買嚟看門口  
-點之真係要有開嚟用嘅一日  
+點真係要有開嚟用嘅一日  
 
 ![](/images/counterpain.jpg)
 

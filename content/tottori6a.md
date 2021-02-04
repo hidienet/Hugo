@@ -95,89 +95,89 @@ but唔駛啦我今日又係揀有溫泉浸嘅住宿哈哈哈
 ![](/images/tottori6i4.jpg)
 
 然後去酒店check in完擺低行李又出發  
-**水木しげるロード** GO！（**水木茂大道**）  
+[水木しげるロード](https://hidie.net/tottori6j/) GO！（**水木茂大道**）  
 
-![](https://2wfhzg.ch.files.1drv.com/y4mlSqm7b2L_v1y5wrELRSHH2Arc8aiAbK3kFOShaeBdAurIxSik6wT3fNMHgyqd5s_HJ1l3A0ytx-e2m_32eQtt0JaevigeZgMe9AIU1_vdct6ley1Q5a_D5seULfAsRiVxC_fzf7Ny_8xPQZ8e34zqUtrZszn1HHJ4m4wnX-GMME03o5Fc6dtWbu0J9MArO30QpVDi931eNJH9u2v2CS4yQ?width=660&height=371&cropmode=none)
+![](/images/tottori6j1.jpg)
 
 三平茶屋  
 
-![](https://2wfkzg.ch.files.1drv.com/y4mxcqBm02e-49VFVAgSEfINU0uffhjVQ0VtUanB_ZDHLPcqNeroGjXSwNE3Rx1USrMpLBrNOLYp7OwZBY1CRy0XrDMWJk9_oYPSuBNc-Hi-i-yLaeerYmH1085e36L13zRPYXMcSrrr3n0zODPeFsELs9ia_WX22az9Gyl-GCb24JdFdHiV6GBA7ag1WMNdIOV07ykV0MWBDqGf8klMfznig?width=371&height=660&cropmode=none)
+![](/images/tottori6j2.jpg)
 
 ねずみ男と握手 銅像  
 
-![](https://2wfizg.ch.files.1drv.com/y4mttCbxm-0pdOkru6rdgfLFzjUyZHEGSH4erCHnMjGnXyyhBrNhkP8Mc2pL9Dz_stU4LFeQLbCRh3A4PJTf4fYj04HKxrkg6D8vCJN1FcKt6IMvNbJyDGBMMUFRd_K3lfhkH6FE92bH5971fKRV58xLbY6mmgdy7SX3IseyP5HQ-aFNuV8aLLGiju3aSj7hkxI2b5fr1PRQW_svMZAqD8l7A?width=660&height=371&cropmode=none)
+![](/images/tottori6j3.jpg)
 
 目玉おやじ 銅像  
 
-![](https://1afihw.ch.files.1drv.com/y4mSXy9Bp6HORtGLHvubudO3rdU1xthWg9zz1zv4rlzcho9N4M_GvC-P0ovXLduox66XsQhW2WNxLGarxnNDN7MFUSzEETXqbmuz5mra58FqC2oJbWNHEg7l3SXKXLaBEJWV_COLURZUZAoSyTI46W7TtPmhGklgIP89wxNuLXSOGNdBiEzEjh8deXUL5fNEATE56mkXNjTUs3EgYy5zLFxhg?width=660&height=371&cropmode=none)
+![](/images/tottori6j.jpg)
 
 鬼太郎 銅像  
 
-![](https://1afghw.ch.files.1drv.com/y4mv7ZeyAF31L5Akn-WCAuUMCVECAFb5bC6bVoRvGpvyApaeDUd7ELzbnfCfRHFi4hqR20px6iVxen6aWzvaKV2G5bDLDjv0g7vKyz31ub2YhI6haKFZa88AWx90s6GB597Ayjb5TVrEilQgbUyjmZ2JvGcUUJV3ntdwWg6n-TtBPRXW9FM7TvSKHEiVJOi9UjuUhKvbD4hsmGWR7oV03egDw?width=660&height=371&cropmode=none)
+![](/images/tottori6j4.jpg)
 
 **鬼太郎はうす**：買紀念品嘅  
 
-![](https://1affhw.ch.files.1drv.com/y4mNOPqWAeWKvy_h9LKXvjkpjuwKVBEUIQyNhF4YEriKXFwtowYdCC0ZK7qrRPX1pV91HmNp9vucqEGqwFT5K5BILHo4fT_KV9WHZUavwG8dESMOYj7c71jrLWWYloy4NQEho0xY1pftlz5xJy4IXsoUV4XhxECeqHPW00PpiHwao4Gv8f9JX6n-jtTozwIP5kgbRQDlE-5e7rZl_Y2uNgKsQ?width=371&height=660&cropmode=none)
+![](/images/tottori6j5.jpg)
 
 合成照影相亭  
 
-![](https://1afchw.ch.files.1drv.com/y4mCM-bkMG3hquoaKLrSqe9zjNbjeB3VT9iS8GOBuMHzrfYOqQ9PEy_kwo1bjCBfArfRusozfgo3JpiuDRSUzKs4LMf-EmTNM3cNdMHxzmTWsgu8PoVr7vCe8AggH8PceFQ7EfqxVUmIJnJL2ms0-Svm54fNtU_2H17GarOVQ5S7lOA05vsnKpe8UDn-xj2pLNMfv42VYFIgksAsMb8VXLACw?width=660&height=371&cropmode=none)
+![](/images/tottori6j6.jpg)
 
 **妖怪神社**  
 
-![](https://1afdhw.ch.files.1drv.com/y4mAW27vjvWBvPgqerKgMsTESEOv0LtsK3yQo89NgSLdaGndp4jNJHL-7rvL1ouHSKCcQlSQxcgIBRCzVAL1PtENjkJYyC05xzqulVjQqHCZCJuVumcbJh4g2w7Tl3KDANesSFLSjb5YE34SiVHf2IcsKkUC2QVK046aqPg6tyVUh6o8aSqJd_8qaRm9eC87CNqCGQ9MCIqTGSflCtXAmOCeA?width=660&height=371&cropmode=none)
+![](/images/tottori6j7.jpg)
 
 爸爸個眼球會轉㗎  
 
-![](https://0wfghw.ch.files.1drv.com/y4mLFtBbrtleSRYDtqFeSYli15aZ3Bg-ApxLV0qa6rUIJLXaID-qScYlaSacrf_V1QlTIGy49JVubGyHymss5B7hX9-wnrL8m9H7m3jXMH669Jqeo39EWYmvKdBE2NrvaIM4EbjyE7kNtp3OrXpXS7fgoQy3YIsSa_jdV--Dd57bPWE8acRpiW30gNsWUt2uAQo7-a8YkBFIXWdiGHnXwKIRA?width=660&height=371&cropmode=none)
+![](/images/tottori6j8.jpg)
 
 河仔禿樹石橋同銅像  
 和諧嘅景致  
 
-![](https://3qfnzg.ch.files.1drv.com/y4mBr3MLzgY4nFDwj7LvPFpPXOayY_2wV0J-8FVzG82LOC3BiiDltg9tsW1gjMiQxV5qYAcd1AN_aYyV9ga1YkIyTuGXOkvqO_P2TiIiVtgZQYLu6NYzskabMJaFdw7JSKHwrY029zatodNRVrfqwPFHh-lxfHKF2Wr2Pyofr-evXrbXZLIS2DA51FSFFuhVm2rB-Kq7q1DKacgO7htLvOVXQ?width=371&height=660&cropmode=none)
+![](/images/tottori6j9.jpg)
 
 而橋邊都係有鬼太郎兩父子嘅銅像  
 
-![](https://3qflzg.ch.files.1drv.com/y4m-Pf2kpBkeC3qo6CczNzIs2pUCJDwl4DiGKXWbLzhPcQz0JlpEmnqO8wXnF73fkkkGIplzzf0_8tSJ-xdB_x-eA3FeJ8Cw7ay_wjD6U3vDYTq65cOWNE_L6t_Iv0-AndcHLMQUeaYxMXb6SLMEU25u12ANGgQ1RqmsD5CWAljsNS-MgZhL8EtB8CsNOblxqp3PYWdRH96LknwhoJcqpIBQg?width=660&height=371&cropmode=none)
+![](/images/tottori6j10.jpg)
 
 條水木茂大道又係兩三步一影相  
 比由良柯南嗰邊嘅コナン通り更「舉步維艱」  
 
-![](https://3qfmzg.ch.files.1drv.com/y4mBEZxTg0p1hpGqmJk6ehuNhOIFBE4zAvZKKv4B2MW9YBh_LE4twJ7QbeMHzv3HFsqv7GaU0ufNG78itNkLI0Q5PQdxjls3kFqsVegdcx-ZoJvJhqKxBLuZ40XfG7Js9kX0HdYN4-5j4b6ogTlXTypKBjMrkI8zMjtvBVjx7h0-kBgyFh_Jb4AhnR880POE7SuiN_LaVax_EVaC0H3L_Kvug?width=660&height=371&cropmode=none)
+![](/images/tottori6j11.jpg)
 
 點睇都會睇錯為妖葉(孼)堂嘅**妖菓堂**  
 
-![](https://3qfkzg.ch.files.1drv.com/y4mVDfsEsoqX3kdN5dLrRS8LTm1G1wT9RKFF2y3l_3onz-AF3p7fu77EIFVamzMKsmJ95sYcl1s2vGyQTaqcd18eJVfegZ4DnRBWBXfDGgZV964d2_FZnRtS6usWk16dmomKGgSJg7K0pGerLkPqUMmiNyAPOJKwmhjYsa3l79lnpb1XSmWrNHJBKVZzlXnDDZyJrReJU-_JykXkDEVYg_psg?width=660&height=371&cropmode=none)
+![](/images/tottori6j12.jpg)
 
 ねこ娘 銅像  
 
-![](https://3afpzg.ch.files.1drv.com/y4mco4pwnxAxx51gPbGNY4HfNvZCMjJpL-UZqN8FfKv2TNseExTGHudE6hjkCDJ4AtZsqNYWz0Vgvjnbgc5hsnIfbxlFRXDfzKf8RMr6LMfm50RFmVr9AnoW-VVUn1gohF7OWY1U8eDuw2gdYAD-hGJsFW24vHLjgexjtOsKKe7ZVtaEekQFuc8YtXyHiizkxkanHgnfwtjBIEXTEbS-m0WcQ?width=660&height=371&cropmode=none)
+![](/images/tottori6j13.jpg)
 
 周街都係鬼太郎  
 
-![](https://3afozg.ch.files.1drv.com/y4mWh__SsOO9z1579hb3iFdDH6BTeSNXKF3UaNuTEKm5dJn8DK8Ks3CuJPGDV4ScQ8UUZhaorFn9dY2kcPYRXx2q1JkPWZpciZN3MXAmlJobzCLmBlWMv_Rmsj8djBz-WDyyJAmOXqVb4bzs4pPfsclPkrO5wIQX4Dgz76ASruTFcx0Jbgx2eBVxdP0g1MIRs0-nDy0ZDu6nZitIheMMT2b5w?width=660&height=371&cropmode=none)
+![](/images/tottori6j14.jpg)
 
 **砂かけ屋**  
 話係俾妖怪休息嘅地方喎  
 
-![](https://3aflzg.ch.files.1drv.com/y4mCxJqlpJXcOJ9fivO5RkQEH1QQiDEhQ9xRO-Kv08ARjtGc8ekmpsrwnlje0n4Jz2wsu-pIIhK4KzMaajLOyEWWdaOsFEBE0mNb5NF-yXv3U_HZfrbnp6Nj1Y8H6p8QKLPVNbDDBccpNSwh7wGe3kpvDjUSjodforxEEwgtXrc907uqd-SK7RvtLFIa4mCqZHD_-GJwdKd6zM9PY8mDlr7rw?width=660&height=371&cropmode=none)
+![](/images/tottori6j15.jpg)
 
 簷篷嘅燈都有唔同嘅妖怪  
 
-![](https://3afmzg.ch.files.1drv.com/y4miXa7oD1GRVWpyBJdypZvppEDPi9-cT8iU-EEyJRFbvxjfGgRNkIB6SsiMs2DiAWU2t_974kjxQxYol01cfeLJpKmnI2-HLf-zwYFScvUmy6gzk_FrDaws8V7SLGXOPROcpEmpc-Fmt3kgoZrv6u8yyp2uywMOyH7Zyen0DruJnaPa6ISCQYKCrdQW8Ksv7zbY6I7guUB8cXXSzh-JDnP8g?width=660&height=371&cropmode=none)
+![](/images/tottori6j16.jpg)
 
 **本舗目玉おやじまんじゅう**  
 嗱嗱嗱呢間真係好吸引  
 
-![](https://3afjzg.ch.files.1drv.com/y4m7UkTX27SZ6JBkKhlzrtD5C3EIJAMBwg89X1jHvefVb4aEebcFtJlZ06Hd8iuzPXLGdgMiOigd6dJdHAAJtOb6ToOzYLH706onmu1tj1StamsU7p4jeGoir7QRFNdoRYwzYdIspqDJfPNumy-UWy9Z21zc5B8yvermf0wq6IE1fW8l5lLIJjue2Y4TWqMDsKk7mth-Z0GXYZ9ar3hjzIl4Q?width=660&height=371&cropmode=none)
+![](/images/tottori6j17.jpg)
 
 妖怪ATM（誤）  
 
-![](https://2wfpzg.ch.files.1drv.com/y4mSpJX780ETtsxj5U-cQMnblIjicJYHBy3NMNuWvlNOF8kMeR5daO8nuwEvQRNd48iiiWlt_uQI9XQPqDwvD_rPCOCOr2hHTcJnYHxbegW7YvA5z8wUQZfXsAmoIG-Nv72vHHoHUkoy0ldF5fVkfejTHF5nC4pBZxGcKiGyvaLk6L1tCT_5MOvsGknQo99RUgKADr5KhXaqBxAd9BDUV9RkQ?width=660&height=371&cropmode=none)
+![](/images/tottori6j18.jpg)
 
 傘化け 銅像，好可愛（心）  
 
-![](https://2wfozg.ch.files.1drv.com/y4mCkZDeIoea6t4Q_eTTNFv_vgKrY9DaBIM-p3Q25G0hxMi3jvZl2uXrlNKtXEroy_WX_tEvNpS07H1EF_NzxiyWrguHb6Rb1TC0NwIvh20AZpaKtGWaXqhRllzrUE7n5sh7VAeULEqbiW5gekXoO0U3YADzAmrMq7AvsRI19v3TmuDlefY6rEygKBUwcsngjGP7t1T3vzYf68d84jQ_M3I1Q?width=660&height=371&cropmode=none)
+![](/images/tottori6j19.jpg)
 
 由鬼太郎駅到水木しげる記念館  
 呢條水木茂大道只係短短嘅800米  

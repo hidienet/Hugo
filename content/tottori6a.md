@@ -184,9 +184,9 @@ but唔駛啦我今日又係揀有溫泉浸嘅住宿哈哈哈
 响有啲趕時間嘅快睇快行中  
 都用咗半粒鐘先嚟到  
 
-![](https://2wfmzg.ch.files.1drv.com/y4mbA7tKsNXsKwPYBCUciFIIsKedMPy-TbbmVF86cemMOpK8RuKey-_ggMh4W2jrP61C_sHbnzplK-nDpDtylzorVoIjXGj77ZJpGUJQaQ1LkYGyrHqBC7AEUgta_JR_hrWLDireNMFbMlwL13kP9b2UET-2jdPd-akp5vsEmubt3XtaO-Y1JN5P5LIl8rL0TL5A8Ktk2e_zaEk2sKkVP90NQ?width=660&height=371&cropmode=none)
+![](/images/tottori6k.jpg)
 
-但入去前都係要响**妖怪食品研究所**啪返粒**妖菓目玉おやじ**  
+但入去前都係要响**妖怪食品研究所**啪返粒[妖菓目玉おやじ](https://hidie.net/tottori6k/)  
 好好好好食！係好睇好玩兼好食！！！  
 
 ![](https://2afjzg.ch.files.1drv.com/y4mPKkp6M_Be64opTf9QLJXAg2eI6_2f2QnsfJvULak7UfZ2jwn4-R5qc-VIuFS99TYxqVpsZz7uLQLNfNS-COM5RXWFnWQKIX8bJdKmozhC9dVSP-Lp34MGrKtWF9xvC18QSJV16_rIZhHvzm55EMvIhZTdUoLlNlQoKXUH823XnuHJXKInH0-IOIOgQbDI4vvsObN7IMxc1SeS_wHA-BJjA?width=660&height=371&cropmode=none)

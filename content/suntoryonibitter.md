@@ -6,7 +6,7 @@ images: ["/images/suntoryonibitter.jpg"]
 tags : [flavor - 飲！]
 ---
 
-今個冬天嘅味到有啲濃烈... 
+今個冬天嘅味道有啲濃烈... 
 
 ![](/images/suntoryonibitter.jpg)
 

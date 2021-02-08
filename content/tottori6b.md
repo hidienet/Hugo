@@ -220,27 +220,25 @@ well，呢隻係蟹唔係妖怪
 
 再食返個酒店送嘅醬油拉麵[夜鳴きそば](https://hidie.net/tottori6t/)  
 
-![](https://3ag1wq.ch.files.1drv.com/y4m26cJzdGYYM9tPcr-4TSNdr9peGEsm_UUt4d16bqFb2xWbxgEoaiuRgfxV9mWNmGOXE7owL8InmF4brtADXfmOcJj73BltrmkrcT4Fs_X_v3A_UB43FwFbqV4ESmkmCRmcFbtHlRJe5AGG6B_th-gHTrbijmLmRYpU82YHCQQ5tWmisEX9hfub-bgtoTbM_adNbbORIl8NnZa9cuAWhSjUg?width=660&height=371&cropmode=none)
+![](/images/tottori6u1.jpg)
 
 食完嘢照常理係會好好休息吓  
-不過有啲嘢未做喎都係出一出去  
+不過有啲嘢未做喎都係[出一出去](https://hidie.net/tottori6u/)  
 點知境港駅附近係冇！便！利！店！  
 要兜五六分鐘嘅住宅區先會有  
 
-![](https://3ggtwq.ch.files.1drv.com/y4mK-pbrbfnbE4voSLOnpJuRlUtcCwaVT8rC4TNStsEf6tkVpGadMouhXA-hRVKhuHLFQdUX43OiNc-Da-WmtH3SBHSVVMJyZ73D2a0g2WIZEwrSB_4H2xZfI7lPLrR_S2zgcNhizpwwduwbjqxfRQkv2IyBvZqR65Ev3bJu-VGHaHNqoZZVVRhFpS2ImPUAa2ya14V5vzxctaTWKuilnzYFQ?width=660&height=371&cropmode=none)
+![](/images/tottori6u.jpg)
 
 買完嘢再响境港駅附近行吓  
 啲爸爸燈夜晚睇突出好多  
 
-![](https://3qgywq.ch.files.1drv.com/y4m_NxdyFmZ7bcNGCMnEk3_pZPLuHDV-p-HMQZNZYwPtDYkLcfKCoavhGmB2HYnZ6G7h_XAOr-QHZ-EAmZ_XfFUfdfjyRpUoc9UHxdEYZuoExVeUdUvN0bE9ZCcHwwEYjUb1eGQS4NYNwyl1WX6NQephqBzWMwL3ODVPktlEOxrY1FbpZAaEZCeqZA6W9a9TmAyfRdgoC8yVYycAP9aSoWwhg?width=660&height=371&cropmode=none)
+![](/images/tottori6u2.jpg)
 
 ねずみ男列車，應該係今日最後一班車  
 
-![](https://3gguwq.ch.files.1drv.com/y4mOqUgf-7OvYdJrdtShToN2KquDd-9tMAUOjgTEtr4ty4EjhYQ7dxoez1_3-28FRgWzP-4wygQctfPw4hOa47k52AhF7EcqIdcSRdt5kuejjP-AsHNTwltRz8Cc8K1e8TjlM6fIzqf0WaPTJbnQK_v8Wqw3p3pCVaxVN8QTtPW0KufGCkXpdDc3zTnMMf70O0kAShyXMx4SfmCA8jJwjpZ8Q?width=371&height=660&cropmode=none)
+![](/images/tottori6v.jpg)
 
-哈哈咁荒蕪都要行去籮神當然係為咗雪糕啦！  
-**ローソン Uchi Café SWEETS 和栗と安納芋ワッフルコーン**  
-以香甜嘅栗子同蕃薯作為一日嘅句號就最美好～  
+哈哈咁荒蕪都要行去籮神當然係為咗[雪糕](https://hidie.net/tottori6v/)啦！  
   
 仲諗住唞一陣不如凌晨再去浸多鑊溫泉  
 點知已經瞓瞓瞓到... Zzzz.....Zzzz.......  

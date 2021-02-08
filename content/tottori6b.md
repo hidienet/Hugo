@@ -212,13 +212,9 @@ well，呢隻係蟹唔係妖怪
 再上酒店頂樓浸個[溫泉](https://hidie.net/tottori6r/)  
 天然溫泉not人工㗎喇今晚  
 
-![](https://2qffhw.ch.files.1drv.com/y4mcvlBc0H0oeWtpdlAisjbRzuzL7XZ1TC9U5WrTJkLQJDOBFFTw-QH1nDfKZvRTskM0L61PrBnKEUxlbifxIVECeR7ZVdgeUWmcb8jeL74G1uF19e32diiLaHLNyo16ar-IZqJ-UD3SZXcu6081EU5v2U4f5JeSOqFLaIx-52aLawPfhWROa9a5eSNx_MQ6vUSqFZl8Ox81kEQqow7Y1dfnA?width=660&height=371&cropmode=none)
+![](/images/tottori6s.jpg)
 
-醒目嘅我再拎定散銀  
-
-![](https://3agxwq.ch.files.1drv.com/y4m_plqUHsfVDIRplqzbvcBzeWEnq7ShH9YP8AfFiTkQNA7pkM-oNuf3AmPW7Kei-tgGe18U7eHWUDkgSPSz4rYscaDe1GNy2TglQlsWoBI1IVcR6W1E1YvZFNnFpZA-aUnZ-TajoSMHpXzt5fU7bmwmJ8Ge1Xh32P1U11MC4jCD0CrEIBQmQxw67oJ3Ci9NdMupsS2XlNRaRpi1PDCjiu0Og?width=660&height=371&cropmode=none)
-
-浸完溫泉買啤酒，呵呵呵  
+浸完溫泉買[啤酒](https://hidie.net/tottori6s/)，呵呵呵  
 
 ![](https://3agywq.ch.files.1drv.com/y4m2hLJJagt_5elqkcNXE-dmGuFEt7SYZeV4tq2hYZVJsQNoP79oRjLUXxVhe8Q37MYBUM9Slx_FW7nB0W2MpLbONko8dQijP8yHaR_7UA5A122DSroVgOPKZYjUVT1JJ1Vy06gFBWvz2y7_PVQ-LudXJa1PYNrztZAPkIoeBEo1tPEnCaW9zhakwDm6EIk8JFBryIcSg2s95QN-WsYndWn0w?width=660&height=371&cropmode=none)
 

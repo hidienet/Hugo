@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day6：Suntory The MALT'S 100% Beer'
+title: '[ドキドキ鳥取] Day6：Suntory The MALT’S 100% Beer'
 date: 2021-02-10T16:30:00.000+08:00
 draft: false
 images: ["/images/tottori6s.jpg"]

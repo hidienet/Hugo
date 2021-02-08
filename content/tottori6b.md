@@ -203,13 +203,13 @@ well，呢隻係蟹唔係妖怪
 
 臨走當然唔會空手而回啦
 
-![](https://2wg0wq.ch.files.1drv.com/y4mEOgfpaObkEE2gaYKIgG8deWsQ3aknZp4jSRVVy_8Qp7j5R0ylTROvJ7N08AncH-Nv5bmM_-112cV7QZiL4QZ4qmgDNR6oczfj_VOq46HDlHl7_I2_Cl2GFRExvth-lVjSurnyz1klqh9L3FpEuy3z6Adhm8xgRQK4PFVQbjpleAM7WW8OKlqKMUCZHtDueYydryMmTusFFs1crIkhmFEWQ?width=660&height=371&cropmode=none)
+![](/images/tottori6r0.jpg)
 
 返酒店睇木村（**[グランメゾン東京](https://hidie.net/grandmaisontokyo/)**）  
 
-![](https://2qfehw.ch.files.1drv.com/y4maNP_zVkAWMUhi9kW1KaLOZtOv49QQvVq4tX5iaCmrTHiP_B-Th0JVQV8KuAr2UrQs0XQPCr9oW7kv5czERSfgaxALJMKIKGGUw3lyQixmTS97zcyd2O_GqrX7I2w0XgIu3oRAJhextnFb5Teed1q_XqYg--uzNHVezn58oW1F3TU2cZx9nnkTcHHSMXQynNJvqs2Wgf5LVnxW--DOeS6vA?width=660&height=371&cropmode=none)
+![](/images/tottori6r.jpg)
 
-再上酒店頂樓浸個溫泉  
+再上酒店頂樓浸個[溫泉](https://hidie.net/tottori6r/)  
 天然溫泉not人工㗎喇今晚  
 
 ![](https://2qffhw.ch.files.1drv.com/y4mcvlBc0H0oeWtpdlAisjbRzuzL7XZ1TC9U5WrTJkLQJDOBFFTw-QH1nDfKZvRTskM0L61PrBnKEUxlbifxIVECeR7ZVdgeUWmcb8jeL74G1uF19e32diiLaHLNyo16ar-IZqJ-UD3SZXcu6081EU5v2U4f5JeSOqFLaIx-52aLawPfhWROa9a5eSNx_MQ6vUSqFZl8Ox81kEQqow7Y1dfnA?width=660&height=371&cropmode=none)

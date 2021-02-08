@@ -19,17 +19,39 @@ tags : [travel-日本-鳥取, flavor - 行膳積腹, flavor - 飲！]
 但係蟹季唔食蟹真係唔得呢  
 咁新鮮，梗係要隊**松葉蟹刺身**啦！  
 
+![](/images/tottori6n5.jpg)
+
+![](/images/tottori6n7.jpg)
+
+![](/images/tottori6n8.jpg)
+
 ![](/images/tottori6n2.jpg)
 
 再加個原隻**松葉蟹鍋**  
+
+![](/images/tottori6n6.jpg)
+
+清湯已經夠晒味！
+
+![](/images/tottori6n9.jpg)
+
+慢慢擺唔晒一鑊熟啦～
 
 ![](/images/tottori6n3.jpg)
 
 哎吔個碗仔唔夠大㖭...  
 
+![](/images/tottori6n10.jpg)
+
+大兜蔥 x 蘿蔔蓉醬汁配料
+
+![](/images/tottori6n11.jpg)
+
+掉落蟹醋度
+
 ![](/images/tottori6n4.jpg)
 
-拆肉浸蟹醋慢慢食  
+就可以拆肉浸蟹醋慢慢食  
 
 
 

@@ -8,7 +8,7 @@ tags : [travel-日本-鳥取]
 
 先出返**水木しげる記念館**  
 
-![](https://1whpqg.ch.files.1drv.com/y4mJI5fxVbAezHsgSiX0Zm8r8_QcuBwM1l0w7t7nKFiHpnEhx5W_q639uQIuo-bnN2LjIodsLtclWlWDadr2gY5ZI5L7uuJCY64NBZdPWG1ffLArEgy1l7SHbIf9UeShh0h0ABFYufVqkSm7QnXaTX6pe58daabXbLvO668yvpi6QdfTq68VTns3ZkVT6iPewWoe4H-BsHbKTrTL88DEGm0LA?width=660&height=371&cropmode=none)
+![](/images/tottori6m0.jpg)
 
 又再行返水木茂大道  
 
@@ -24,19 +24,19 @@ tags : [travel-日本-鳥取]
 
 well，呢隻係蟹唔係妖怪  
 
-![](https://0whkqg.ch.files.1drv.com/y4mddrbQ0-e2eyE4OPF1u9TkpUgLth7VH3XqZlJ2RBkAgPtnnlXzBjRh06RXEIGysmmAYzLADvLW8GYY7TGUEhywqQBnX_FxpDt3zeSx9kzIiCNmNc6HZc1N1ly-tWpxrnJIH9IvPyXdkobaz4ENTKjqRbTiorUD0gBroeN5ZnC2aJeH0hUgnf-pArEVwjaZq_5WWqNBZeyXpobF6eJdSEJ5A?width=660&height=371&cropmode=none)
+![](/images/tottori6m1.jpg)
 
-**ゲゲゲの妖怪楽園**  
+[ゲゲゲの妖怪楽園](https://hidie.net/tottori6m/)  
 
-![](https://0whlqg.ch.files.1drv.com/y4mw6dxnxKN8fCFJpFRzcBqPNunCfx2bUx_ckMZBGapg2praeIFYI9fkh5r1yh-5rQOuDtQtJ6_aS2LaPPsLiOUmssvt-Tk8XCHMWjWRYFXaNWcfPWaNPQZSWchSQvRb7OW97wY463Mau7Hu65XNbG6rZbK_-OluHJr1kQDEbyYE-5HL5h3E0toeN6zcZA13lyss-yO4cpNCbyDjI9xWtWcZw?width=660&height=371&cropmode=none)
+![](/images/tottori6m.jpg)
 
 兜個圈咁啦  
 
-![](https://0whjqg.ch.files.1drv.com/y4mPc1OfL5I1KyhLfRvA7DLdtgc8-JIRsZiOLSx04WLeZF7muqxiFfGThBAQWvIdB3-j7GydFb8OyyFyC90AwhpJy-hqCWJ2QZ998ssVlb69gE9eaglud62H7LlOWDs2M09GaQkuwAfqXC5BfdJ4emDLCdlEhawMXY-2-dU_BdrLpy8exFzKr9hV__IyomXdXOvMg0NgSJchO-hVW7t5G3TCA?width=660&height=371&cropmode=none)
+![](/images/tottori6m2.jpg)
 
 有嘢玩有嘢食有嘢買嘅地方  
 
-![](https://2ghiqg.ch.files.1drv.com/y4mgxsgEelYc_S7ddxsm33oQ6Xoff11JUlpA7U0jLy66XxTwDUIpx_JIhP46qTOsemn70OnYjCaYhNflcK0BjxcvJh8w3qDBXxU8tLcW48-0HpsgbGIT8rFxr6Jf052GbPlrrOJcLBA53Rs-qr57CmRsNSW0L2rFTEJjAigr2715XqOWqKaML3GiVCxtYqmJ3Ct7F02K7mWmVWfadF2c_HttQ?width=660&height=371&cropmode=none)
+![](/images/tottori6m3.jpg)
 
 不過就closed係咁意睇吓就走喇  
 

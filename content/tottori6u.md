@@ -12,6 +12,9 @@ tags : [travel-日本-鳥取]
 
 不過有啲好緊要嘅嘢未做喎都係出一出去  
 點知境港駅附近係冇！便！利！店！  
+
+![](/images/tottori6u3.jpg)
+
 要兜五六分鐘嘅住宅區先會有  
 
 ![](/images/tottori6u.jpg)

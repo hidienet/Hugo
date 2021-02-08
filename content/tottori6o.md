@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day6：'
+title: '[ドキドキ鳥取] Day6：妖怪ナイトストリート'
 date: 2021-02-09T08:30:00.000+08:00
 draft: false
 images: ["/images/tottori6o.jpg"]

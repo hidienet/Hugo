@@ -216,9 +216,9 @@ well，呢隻係蟹唔係妖怪
 
 浸完溫泉買[啤酒](https://hidie.net/tottori6s/)，呵呵呵  
 
-![](https://3agywq.ch.files.1drv.com/y4m2hLJJagt_5elqkcNXE-dmGuFEt7SYZeV4tq2hYZVJsQNoP79oRjLUXxVhe8Q37MYBUM9Slx_FW7nB0W2MpLbONko8dQijP8yHaR_7UA5A122DSroVgOPKZYjUVT1JJ1Vy06gFBWvz2y7_PVQ-LudXJa1PYNrztZAPkIoeBEo1tPEnCaW9zhakwDm6EIk8JFBryIcSg2s95QN-WsYndWn0w?width=660&height=371&cropmode=none)
+![](/images/tottori6t.jpg)
 
-再食返個酒店送嘅醬油拉麵**夜鳴きそば**  
+再食返個酒店送嘅醬油拉麵[夜鳴きそば](https://hidie.net/tottori6t/)  
 
 ![](https://3ag1wq.ch.files.1drv.com/y4m26cJzdGYYM9tPcr-4TSNdr9peGEsm_UUt4d16bqFb2xWbxgEoaiuRgfxV9mWNmGOXE7owL8InmF4brtADXfmOcJj73BltrmkrcT4Fs_X_v3A_UB43FwFbqV4ESmkmCRmcFbtHlRJe5AGG6B_th-gHTrbijmLmRYpU82YHCQQ5tWmisEX9hfub-bgtoTbM_adNbbORIl8NnZa9cuAWhSjUg?width=660&height=371&cropmode=none)
 

@@ -52,26 +52,26 @@ well，呢隻係蟹唔係妖怪
 
 大渠蓋，當然係鬼太郎  
 
-![](https://2wer5q.ch.files.1drv.com/y4mGOSoh2qNVUKx7256qsHDHD2_dk2xo1YneW_wgdux0ciIvGHMXZVoen7Sjq4Cioy6MHSXfwi57VjweZRDQiSqE1XvoHluReVc2Q5bidUx7j-3kof1jp4eXSkkjSC0OZklAY-63G-6vncYSvAvkrJBdPbN41qEYkrr8poaHgsftuxW8OhXtQVcOt5sgKBPbzACsUYaGviGfswjp9cthhHY3Q?width=371&height=660&cropmode=none)
+![](/images/tottori6n1.jpg)
 
-晚餐@ **海鮮ふぐ料理 殿**  
+晚餐@ [海鮮ふぐ料理 殿](https://hidie.net/tottori6n/)  
 嚟得境港當然係飲**上撰千代むすび 純米吟釀 強力50**  
 
-![](https://2wet5q.ch.files.1drv.com/y4mDx-qumeVVCoUrdUWnAfK2gHhKmXkqc-QZu9NwPMdT5YEyXEI_Q56ZxoEVXxf-iURefuO1A9j_GHmxDjdH3kOn5CFL5d_BrnuyHntn1Qm17ieAO2OZot5yYVFSIqiK3caWdhrYFgJDokuRjw6-zI9oNByVzCqCSaosVSLPKs4VvIXHHdTysRbS0dX_xi7W7afEr_G71_Jk8BV8P-vh--2zw?width=660&height=371&cropmode=none)
+![](/images/tottori6n.jpg)
 
 呢間嘢係食海鮮同河豚ふぐ  
 但係蟹季唔食蟹真係唔得呢  
 咁新鮮，梗係要隊**松葉蟹刺身**啦！  
 
-![](https://2wey5q.ch.files.1drv.com/y4maJ8U83o-jwMgp652SdknmyHgDZx65IOGw6rDa7fj5NywKNXFy-vCvV7wJtSX_FUz4llUdTVpeL1biNVl7dwABDEQ-JquGBuooPlCPK4dbIL6AQh3ertbksGGuPOahjzvztVYiwhGZyI6Yg4nIAHZ02BmceJX6jpM0DzD_l2x-4rq-9SpgP1ynj-ZKmqjIe3qmlbLD26QHf6qCuLbUQ3L-w?width=660&height=371&cropmode=none)
+![](/images/tottori6n2.jpg)
 
 再加個原隻**松葉蟹鍋**  
 
-![](https://3aew5q.ch.files.1drv.com/y4muVPJJpgcMJBNn8hSAG2bpBQVd9urrh_PkuEsufY3olUl6WiQ6B3Wf1X64AZ8683M2gQxIGDFGV_O0rg8eH8_0WY6XZ9Vq8FBVo3aXYxFZkQTJP2O7fT3wueEAsW1IHVIyfMq7Zka5Z-ijgbVhAY3OoZS0phEHXpF29z8JOUNPGkwCoJ-p23_e8lntzssvKfquL_-zoxMqNNGK70hV18lKQ?width=660&height=371&cropmode=none)
+![](/images/tottori6n3.jpg)
 
 哎吔個碗仔唔夠大㖭...  
 
-![](https://3aey5q.ch.files.1drv.com/y4mC-1dy62kdD46SyuQ6wK5GYYLSGg3AkfwU6CUtoWPfXxCzgc4rXAs9uQgbV_Vjde8ZXnUca0ErMY4UBWmbUpF8jVNtBG6irpraHjuNnxzoYWPiENht1IQFv8co1BRv7jvdIzB_-4f-mor9p-YPspitGg9zVEdEYMF7ty-MdU6XwYvdhNLFGdRnEnkAPwCcp3UUinSQkB4TJYKYCWe7fnJzA?width=660&height=371&cropmode=none)
+![](/images/tottori6n4.jpg)
 
 拆肉浸蟹醋慢慢食  
 

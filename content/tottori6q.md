@@ -21,10 +21,16 @@ tags : [travel-日本-鳥取, flavor - 飲！]
 
 最最最緊要，呢度係有日本酒sake bar嘅（立飲）  
 
-![](/images/tottori6q3.jpg)
+![](/images/tottori6q13.jpg)
 
 首先，我係衝住門前寫著呢杯**R1BY 初しぼり**嘅**無過濾原酒**而嚟  
-啱啱出嘅新酒，清香味美好適合飲嘅第一杯  
+
+![](/images/tottori6q14.jpg)
+
+啱啱出嘅新酒，清香味美好適合飲嘅第一杯 
+
+![](/images/tottori6q3.jpg)
+
 小食揀咗**クリームチーズの醤油漬け**同**いかのしょうゆ漬**  
 兩樣都係我本身鍾意食嘅嘢，無得輸！  
 
@@ -35,6 +41,9 @@ tags : [travel-日本-鳥取, flavor - 飲！]
 ![](/images/tottori6q5.jpg)
 
 第二杯試燗嘅**完熟純米**  
+
+![](/images/tottori6q15.jpg)
+
 3年熟成，琥珀色澤香氣飄逸  
 熱飲更完全將香味再迫出，正！  
 

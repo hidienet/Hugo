@@ -6,7 +6,7 @@ images: ["/images/tottori7a.jpg"]
 tags : [travel-日本-鳥取, flavor - 飲！]
 ---
 
-朝早，梗係上樓浸溫泉啦～  
+朝早，梗係上樓[浸溫泉](https://hidie.net/tottori6r/)啦～  
 
 ![](/images/tottori7a1.jpg)
 

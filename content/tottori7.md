@@ -8,14 +8,14 @@ tags : [travel-日本-鳥取]
 
 朝早，梗係上樓浸溫泉啦～  
 
-![](https://mtexiq.ch.files.1drv.com/y4mAxK3wRn_emhbeFCUAdPeH2dNtozty95KvqrxAr8P-YUGLCveQQAHMlXpNBs_DSo0YZqDJwetDErwkaJtqPJ79gzKYTlIqblaXKpoZhlYGW8TJQwBjmDZjQTkmOeWSnycupdXkJxxVnvUuBVcIB26GgPV-eIplSt8SjkSttbKolTpgqEzbSsXCeiaCpQnDM5cLllAdbn64AS5Fqkt-q94vQ?width=660&height=371&cropmode=none)
+![](/images/tottori7a1.jpg)
 
 休息區個景唔錯唔錯  
 天氣都唔錯唔錯  
 
-![](https://m9eoiq.ch.files.1drv.com/y4m1_8eBOVSwVNmt0-_tieuufO3KGVTKWwv_kf3GindY30pMvw2jsu3fRELr9_y75xfepSZPhKYKf0R-eFIfxZ7_NTN3AQ2lW9WsAKyjCssIuMw3K8bkW-Y1Dy7w8R0uNpO1raETQyePtMj_M5SRImxDoLkMQJbKRzATvhQRtuAG_h0K5IFVGFfulhWY8cISomqEWsr5jH4pNBMlyzTP0uDCQ?width=660&height=371&cropmode=none)
+![](/images/tottori7a.jpg)
 
-**明治プロビオヨーグルトR-1 ドリンクタイプEX**  
+[明治プロビオヨーグルトR-1 ドリンクタイプEX](https://hidie.net/tottori7a/)  
 浸完舒舒服服飲返支probio yogurt  
 令和元年飲R-1，幾貼題  
 

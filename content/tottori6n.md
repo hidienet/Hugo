@@ -35,7 +35,7 @@ tags : [travel-日本-鳥取, flavor - 行膳積腹, flavor - 飲！]
 
 ![](/images/tottori6n9.jpg)
 
-慢慢擺唔晒一鑊熟啦～
+慢慢擺唔駛一鑊熟啦～
 
 ![](/images/tottori6n3.jpg)
 

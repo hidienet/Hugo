@@ -1,6 +1,6 @@
 ---
 title: '[ドキドキ鳥取] Day7：明治プロビオヨーグルトR-1 ドリンクタイプEX'
-date: 2021-02-12T12:30:00.000+08:00
+date: 2021-02-13T12:30:00.000+08:00
 draft: false
 images: ["/images/tottori7a.jpg"]
 tags : [travel-日本-鳥取, flavor - 飲！]

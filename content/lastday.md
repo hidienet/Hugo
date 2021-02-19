@@ -35,7 +35,7 @@ tags : [lifestyle - 生活與生存]
 一定係同最最最愛嘅同事食  
 有真係好好好愛錫全宇宙最索[嗰個](https://hidie.net/queenofsiumai/)    
 傻傻咁而見到佢就會有快樂嘅自帶購物頻道[嗰位](https://hidie.net/babyganics/)  
-同比女人更清楚養和生仔有薑水嗰隻熊貓  
+同比女人更清楚養和生仔有薑水嗰隻[熊貓](https://hidie.net/pandacard/)  
 啊啊啊啊啊！最親愛嘅[秘書](https://hidie.net/turnipcake/)冇得嚟食 TT  
 我哋要再見呀～～～  
 

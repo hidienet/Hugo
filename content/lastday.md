@@ -23,13 +23,13 @@ tags : [lifestyle - 生活與生存]
 最後都係每樣親手包  
 咭仔逐張寫希望大家收到我嘅心意啦～      
 
-![](/images/lastday2.jpg)
+![](/images/lastday3.jpg)
 
 擒日嘅team lunch  
 多謝一直令我任性嘅上司  
 「阿姐，好人一生平安啊～」  
 
-![](/images/lastday3.jpg)
+![](/images/lastday2.jpg)
 
 最後一個lunch  
 一定係同最最最愛嘅同事食  

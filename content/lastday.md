@@ -39,7 +39,7 @@ tags : [lifestyle - 生活與生存]
 啊啊啊啊啊！最親愛嘅[秘書](https://hidie.net/turnipcake/)冇得嚟食 TT  
 我哋要再見呀～～～  
 
-![](/images/modi.jpg)
+![](/images/nodi.jpg)
 
 然後再有明明好忙都突然有同經理嘅coffee break  
 原來好好傾㗎佢！  

@@ -6,6 +6,10 @@
     <description>Recent content in Categories on Ḧidie.net</description>
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
-    <copyright>Ḧidie.net - All rights reserved</copyright><atom:link href="https://hidie.net/categories/index.xml" rel="self" type="application/rss+xml" />
+    <copyright>Ḧidie.net - All rights reserved</copyright>
+    
+	<atom:link href="https://hidie.net/categories/index.xml" rel="self" type="application/rss+xml" />
+    
+    
   </channel>
 </rss>

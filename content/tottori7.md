@@ -19,20 +19,20 @@ tags : [travel-日本-鳥取]
 浸完舒舒服服飲返支probio yogurt  
 令和元年飲R-1，幾貼題  
 
-![](https://mteoiq.ch.files.1drv.com/y4moH9kqRVNTw4KwYh3sdL427qblYSx6CW1JoBzoyzAQSBkoNTxEr4hYoGv5LPs7oqHC4rzxSWCwpT_NW6kgEnknPygXXJL4XiwYwKT7KIu1mv7WEM6nR0kMkzjJJLLaOo0gbuN6YU4gIu6XXZCTgn-v8Yh14SHEe5AWrtCP9ybsHonr5p0ocCDwotQDmibqu18lNPshNfKwFbfB0EfqxlzWg?width=660&height=371&cropmode=none)
+![](/images/tottori7b.jpg)
 
-**水木しげる先生執筆中の像**  
+[水木しげる先生執筆中の像](https://hidie.net/tottori7b/)  
 鬼太郎角色們圍住畫緊畫嘅水木先生  
 
-![](https://odewiq.ch.files.1drv.com/y4m1MHBFfSmRi-SNfH8pRc3L7FUqQ4fX3B_VpVUjZ6UQJC83j5wx4pbbVvTx3kIFXnmGXEAMToy2U_48QzLwMX9iSdl84C9WpBCBHSS02DBA1mvzga83mArg-eyaD6feYEztKaVI8P1z1ZjYCJ31PXNUMiRmctoSP0X6OreNMTstpUqYcZZzTcBysy_B6P9YYUYSAOURE9a8eoLT59KtL4RSA?width=660&height=371&cropmode=none)
+![](/images/tottori7b5.jpg)
 
 **鬼太郎ポスト** 鬼太郎郵筒  
 呢個唔係妖怪信箱，係召喚唔到鬼太郎㗎  
 
-![](https://odexiq.ch.files.1drv.com/y4m04FNkNGH5ta82kLvJ4jGoe-YMv1AmYJjP-CFf_ngiotcuxZAhv15todhlaBv4wo8xou6beJ1unvWaRFxqvHsDsKdk-oV0AbK7jcI-n_pmiE9ZM-HmK4BACFMUDAAn6FzQPc5vY9226j2Y3S96jowVsSJFDIwKKcr2kap2VnqB3u94N_D4h3MmvqOdG8OK-rgqYx3tujgjH26WcWi8S9Bew?width=660&height=371&cropmode=none)
+![](/images/tottori7b6.jpg)
 
 係前幾日見到嘅**はまるーぷバス**  
-上次嘅係山田先生樣嘅[メインコース](https://www.hidie.net/2020/01/day2.html)  
+上次嘅係山田先生樣嘅[メインコース](https://hidie.net/tottori2j/)  
 而呢個鬼太郎樣嘅係生活コース  
 
 ![](https://odetiq.ch.files.1drv.com/y4mZ-NfG6k2KYiZcQ7ntx4n4KsRxyBTl0EUMUzWZ5khfSqNACgGU_LTT6MQNqaFshUeQ0KiSi6Pbsludjeu9pK5XJiVYMtYV8mLvc96MJ9_kbxdXtOlhp8IZ5H2rQzfpgquoq_1HSSIc9jkA0nltnLL8zOrO6NvUxhE7bxuMZq0cuaW2g2P2NLudSg9xyf18QfaNDtG55edosPliRrFrl7HBw?width=660&height=371&cropmode=none)

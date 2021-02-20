@@ -8,7 +8,7 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 
 由米子駅／「ねずみ男」駅再出發
 
-![](/images/tottori6h.jpg)
+![](/images/tottori6h0.jpg)
 
 **境港駅／「鬼太郎」駅**  
 到喇到喇～

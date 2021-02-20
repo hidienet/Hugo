@@ -35,13 +35,13 @@ tags : [travel-日本-鳥取]
 上次嘅係山田先生樣嘅[メインコース](https://hidie.net/tottori2j/)  
 而呢個鬼太郎樣嘅係生活コース  
 
-![](https://odetiq.ch.files.1drv.com/y4mZ-NfG6k2KYiZcQ7ntx4n4KsRxyBTl0EUMUzWZ5khfSqNACgGU_LTT6MQNqaFshUeQ0KiSi6Pbsludjeu9pK5XJiVYMtYV8mLvc96MJ9_kbxdXtOlhp8IZ5H2rQzfpgquoq_1HSSIc9jkA0nltnLL8zOrO6NvUxhE7bxuMZq0cuaW2g2P2NLudSg9xyf18QfaNDtG55edosPliRrFrl7HBw?width=660&height=371&cropmode=none)
+![](/images/tottori7c.jpg)
 
 **鬼太郎の音楽会碑**  
 
-![](https://odepiq.ch.files.1drv.com/y4m-W0XHGLc9kIYw99zxWY1jGJvChzPttLIexkSN_XLHk-5pLdja-68E8BLMwJovZFLfnvhtjiqtcS_VcVZtkOnix49cnmGltgq_q-2xEuXcWAvGmGosuzy5LPFRMtBGToPyTEvmE5dmM4WZe5u3hw_Rnt1ibKTJnOwMCvoYKCJbwdN1pbvD5joN6SDOHu2sOu5TTq6rVe4SotGkS7Q5Jo4FQ?width=660&height=371&cropmode=none)
+![](/images/tottori7c2.jpg)
 
-妖怪村落  
+**妖怪村落**  
 
 ![](https://odeoiq.ch.files.1drv.com/y4mXWmzumMHFXzWYrVQiAiUum9neAT5eV98jnRctDFmLmcMOwyLNHfMPWlJoNHM5C6MafPUAGMZCwJKnxba2hTCNF3AnHCzw_DHPljLM1Z5TS_jeXyVOkrsIJDGvF1EweVF7oCfqsUbBmo6xkfl_o052zteRuvJ4Tqnu09Lzk1uJN5ByJOGqRRyo2LamyHgSCBLL5YoT_ExaYlTkq2gRPsmpA?width=660&height=371&cropmode=none)
 

@@ -37,7 +37,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori7c.jpg)
 
-**鬼太郎の音楽会碑**  
+[鬼太郎の音楽会碑](https://hidie.net/tottori7/)  
 
 ![](/images/tottori7c2.jpg)
 

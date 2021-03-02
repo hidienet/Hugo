@@ -44,4 +44,4 @@ tags : [flavor - 飲！, flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 
 **Americano**  
 另一杯都係揀fruity豆嘅black coffee  
-無計啦食上面嘅嘢  
+無計啦食上面嘅嘢都係飲返啲消滯啲嘅好...  

@@ -1,6 +1,6 @@
 ---
 title: '[ドキドキ鳥取] Day7：鬼太郎 @境港駅前一百米'
-date: 2021-03-3T12:30:00.000+08:00
+date: 2021-03-03T12:30:00.000+08:00
 draft: false
 images: ["/images/tottori7d.jpg"]
 tags : [travel-日本-鳥取]

@@ -148,19 +148,19 @@ tags : [travel-日本-鳥取]
 越近就越唔覺得直筆甩加上無任何好器材  
 雖然今日天氣爆好but都係放棄  
 
-![](https://2ggkyw.ch.files.1drv.com/y4m4m2Vn8uwu6hyXRLW3tjc7XtKcznVXmCmxm_vi6ocKu3MKaEZR0GXnS6gwKjfbMWN64yU1fBejh5Q9pXc3zOcMjXMz0NYdWaANcE4u3I6WVcVnQlwlRtmJmGO28GJHHYl0mJbzDqvXca85roC0er4YMS7TxNJvvDn5B32ueq-adJl8egR7VRx714SIFst4Ra9Zm-9aNFDU7dgy0Nq8Fgi3A?width=660&height=371&cropmode=none)
+![](/images/tottori7f2.jpg)
 
 咁慳返啲時間就再兜吓境港同又又又行多轉水木茂大道啦  
 
-![](https://2qgeyw.ch.files.1drv.com/y4mA3pNuNwVc1q3DkH1xyxu7gnlv7A-CpU59Dy4VZbzDJjvmsYsLbRBp3HDW6b6bYBGBHEa1GwBPI3_h6j4uQ463KR_gcpW1O83BfDyxTbY3oXKoQ2SrfA4kiJim4B1ZtbVLb0S3T6oqRvbkBum6g6r3QdgtsBLvJ8CtU-Kz7imFLajdCLC_2LyCpk4iBb7_WZbKR2U3e8bXwiRihSqQvNaQw?width=660&height=371&cropmode=none)
+![](/images/tottori7f.jpg)
 
-(又) **河童の泉**  
+(又) [河童の泉](https://hidie.net/tottori7f/)  
 
-![](https://2qgfyw.ch.files.1drv.com/y4mfJTsu6XaYooE41CPZdkloOPVe3Y0UZcs0GRioofyuSNNrbVO2M1KAty_TdVfpWgiZ79e5f3UsvRPr2QnWfQCVVIqFwzylxOB70jwUhF7pujlTTg83hsm5JVpdVd3UD-BaVVRVVpn1uC-7mG11gcXEe1FMcD8qH_I_kgtRh232Ck2-deVbVyMq4NXafY2quCPciJ21l2qrr07QgDfO0HtQQ?width=660&height=371&cropmode=none)
+![](/images/tottori7f3.jpg)
 
-**[尿尿小童 (Manneken Pis)](https://www.hidie.net/2019/05/day-1ams-brussel.html)** 嘅鬼太郎版本  
+**[尿尿小童 (Manneken Pis)](https://hidie.net/belgium1/)** 嘅鬼太郎版本  
 
-![](https://2aggyw.ch.files.1drv.com/y4mf_WYstoGDsUVVtiNuj4leSdiIn2pKLIboDrKPqhjhBGmpLkD8y9ZBZVAiulGDenS4fd6U_7c3scFmNPBPMZKD-9xFRuoymmNBdqQQEF-fnUZn8iouGbHFkee-0BweJYG6QXmxkoSnl07amAuDXhu2E8brxj4oq5ObYEWZ7GOTHcBM1KU7IgbCuDKwe5qs00o7FXjalrDrNc_h00s6gMsdQ?width=660&height=371&cropmode=none)
+![](/images/tottori7f10.jpg)
 
 水木先生同鬼太郎父子 銅像  
 

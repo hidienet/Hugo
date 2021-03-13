@@ -1,5 +1,5 @@
 ---
-title: '[飯] SUPERDON (スーパー丼) - 特上北海道海鮮丼'
+title: '[丼] SUPERDON (スーパー丼) - 特上北海道海鮮丼'
 date: 2019-02-12T19:11:00.002+08:00
 draft: false
 aliases: [ "/2019/02/superdon.html" ]

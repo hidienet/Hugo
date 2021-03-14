@@ -1,6 +1,6 @@
 ---
 title: '[粉] 不忘 - 石磨腸粉、手工水餃'
-date: 2020-12-03T09:30:00.000+08:00
+date: 2021-03-15T04:30:00.000+08:00
 draft: false
 images: ["/images/batmong.jpg"]
 tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]

@@ -164,9 +164,9 @@ tags : [travel-日本-鳥取]
 
 水木先生同鬼太郎父子 銅像  
 
-![](https://1wgjyw.ch.files.1drv.com/y4mMjhQ6O2I8SPgWe07lsUavwLC1_OKiG71tTAAf7P6TG5lAeyG57kChifHC1j3Z3g6hO6CtNbToaE9vwBT-FfAZ7rHNeoUULQLRjoZoXJl1_qoEpOJs9adnajQLTfrYdW-x8DCv4XK36rFz-4d9YQtqjZ8uPqFSMTjL9m-QzpFMUy1l4vU5NBMU_smLp8WntbMD4-T9hZP6BAWqV18Szo1qA?width=660&height=371&cropmode=none)
+![](/images/tottori7g1.jpg)
 
-brunch **イカの漬け丼** & **かに･イクラの贅沢丼**@**元気亭**  
+brunch **イカの漬け丼** & **かに･イクラの贅沢丼**@ [元気亭。](https://hidie.net/tottori7g/)  
 超超超極級好食！！！！！  
 
 ![](https://1wgeyw.ch.files.1drv.com/y4mWsRBnFCIGxxjxWAt-Iv-Dq8s5O1-DurJ0rQAqhOWjubBLbsfHzxZoUlbWeTC0sCUwJW9IPWVF5rITTeUo1TLEDzaA09E7J-0Xwno-dMBzKrHpYtyT1ReS0q-PoK_24cS7bmlw4fjh21q8jikDAgCfpBWtG5bCZrwuv6dJiCqOJ110DtRxDI_WgyXZRwQuGVmqxVK2RNRLPm30fILj4kgzA?width=660&height=371&cropmode=none)

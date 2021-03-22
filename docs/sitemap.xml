@@ -3,22 +3,37 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
+    <loc>https://hidie.net/skippy/</loc>
+    <lastmod>2021-03-23T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/collections-mini/</loc>
+    <lastmod>2021-03-23T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</loc>
+    <lastmod>2021-03-23T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/</loc>
+    <lastmod>2021-03-23T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/</loc>
+    <lastmod>2021-03-23T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/yauwheat/</loc>
     <lastmod>2021-03-22T18:00:00+08:00</lastmod>
   </url>
   
   <url>
     <loc>https://hidie.net/tags/flavor-%E9%A3%B2/</loc>
-    <lastmod>2021-03-22T18:00:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/</loc>
-    <lastmod>2021-03-22T18:00:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/</loc>
     <lastmod>2021-03-22T18:00:00+08:00</lastmod>
   </url>
   
@@ -119,11 +134,6 @@
   
   <url>
     <loc>https://hidie.net/fuzizoue/</loc>
-    <lastmod>2021-03-08T01:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</loc>
     <lastmod>2021-03-08T01:30:00+08:00</lastmod>
   </url>
   
@@ -6609,11 +6619,6 @@
   
   <url>
     <loc>https://hidie.net/iichiko/</loc>
-    <lastmod>2017-10-20T20:50:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/collections-mini/</loc>
     <lastmod>2017-10-20T20:50:00+08:00</lastmod>
   </url>
   

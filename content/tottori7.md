@@ -169,19 +169,19 @@ tags : [travel-日本-鳥取]
 brunch **イカの漬け丼** & **かに･イクラの贅沢丼**@ [元気亭。](https://hidie.net/tottori7g/)  
 超超超極級好食！！！！！  
 
-![](https://1wgeyw.ch.files.1drv.com/y4mWsRBnFCIGxxjxWAt-Iv-Dq8s5O1-DurJ0rQAqhOWjubBLbsfHzxZoUlbWeTC0sCUwJW9IPWVF5rITTeUo1TLEDzaA09E7J-0Xwno-dMBzKrHpYtyT1ReS0q-PoK_24cS7bmlw4fjh21q8jikDAgCfpBWtG5bCZrwuv6dJiCqOJ110DtRxDI_WgyXZRwQuGVmqxVK2RNRLPm30fILj4kgzA?width=660&height=371&cropmode=none)
+![](/images/tottori7h1.jpg)
 
 folded (?)嘅**鬼太郎妖怪倉庫**  
 
-![](https://3ggnyw.ch.files.1drv.com/y4mTR0WvT5Rz74NQeHe2dBOkyUXrm8gc0ibonA3mNpeDaGsmXAmZpXzbtkKTLy0dFKLWLIT0-xf0cmZAchsU3lvUi4uD1Jhzb_V3IoWf6tP4nKUl7xOqTcEyGWdUV9DE3G4_ecmu1uGO0Q9HV5_si9kJM-Vimqxw3czLBvEflNjmNyeWgSO7pAy9In2yIrTHOwbyVyy73xG2lWwjScCmZ_qrQ?width=660&height=371&cropmode=none)
+![](/images/tottori7h5.jpg)
 
 **千代むすび酒造（株） 大正橋売店**  
 擒晚去嘅係本店，行過街口又有一間  
 有爸爸拎住支酒好得意呀  
 
-![](https://3qgiyw.ch.files.1drv.com/y4mRxS0SCW4Wu3NP2fBfQ_wCgq7FCMbDUjNhf46M_FbaA1bOAYXRCuT_E8B-240APPowrVxB5ezZX45XMYx5H9mIaUvMV0P2ynY_qLaM3fi3CjfSVcQDgagYRnOdiQqMafAQDgX5XulMJh68cy21KiA5kJaB_shOfUCdCfqUsiC-TUthS4mP26HdvD0Mc6V84HmQlXJAx_GCuoyU3wSepePkA?width=660&height=371&cropmode=none)
+![](/images/tottori7h10.jpg)
 
-今日嘅水木しげる記念館坐鎮嘅係**砂かけ婆**  
+今日嘅[水木しげる記念館](https://hidie.net/tottori7h/)坐鎮嘅係**砂かけ婆**  
 佢知我唔係日本人，就一直冇郁過  
 就連我坐咗佢隔離慢慢玩同影相都冇郁過  
 然後，有三個嘻嘻哈哈嘅日本妹子見到咁樣  
@@ -189,7 +189,7 @@ folded (?)嘅**鬼太郎妖怪倉庫**
 我行開之後佢哋走過去影相  
 婆婆突然間嚇Q佢哋  
 佢哋三個嘅尖叫聲嗌到拆穿天際哈哈哈  
-笑到我差啲往生喇哈哈哈哈哈  
+笑到我差啲往生喇哈哈哈哈哈 
 
 ![](https://3agnyw.ch.files.1drv.com/y4mqf9qTzSDlFf6u27iYLgYQkRZAa-WvioAsbEF3ULnLuTiLthjSy6ARcSiZb9_GYjt_x8me5Z-fKXQy5DaAMUBLL9ebXlfLFnWru42EVUvtBTk3x3znTjv-cRnx8UqQuL5UxkqReFLA34CwVvVT8eE7QsOAV1ODwGi7deqyY4a8to5-TPLXDMxSQru6USi1kagesKXs4y4KL0zQn4LQ50Krg?width=660&height=371&cropmode=none)
 

@@ -12,11 +12,11 @@ tags : [travel-日本-鳥取]
 
 又再行返水木茂大道  
 
-![](https://2ahlqg.ch.files.1drv.com/y4mJK0LytOpui3a_qyc8vGXvaV0KNIrNRqSttNTGshTOc2askbFTiOH4d_Ep1PtUuDnoskV_U47p_fmV5t5gVs9u8J_NmLxlWH12oK9WId5KWsYTl0N2-EKmIGAkDx9gUine9a5UVajIqd4jjZjfRHxzi-ZE8i0p3M71byttRSvveUOuIPP1uZT7tACWVKw_AwRtnX3MEBaVjw8tdbwHCOd6Q?width=660&height=371&cropmode=none)
+![](/images/tottori6b1.jpg)
 
 鬼太郎父子 水渠蓋  
 
-![](https://2qhlqg.ch.files.1drv.com/y4md4mtaDd7p_EQKhqO00pL-b4jcMPRHBsVal0gnOt8B6EECAGCvFuJgZ75ZiIkpySPapYgBRJU9MTULw7JNoriQ9A4mYbxRg8VYzmgSiEnKkE3V37hf7DKaqMl85uTYin29nmgkhOcFMlOcGoV9S5NsXA1vRmQZji_CUN2DQQr0_5By0gMSLdCA339jjf7BFc1MvQQ_WFjVo7hmWOPZ_eA-g?width=660&height=371&cropmode=none)
+![](/images/tottori6b2.jpg)
 
 貓女 水渠蓋  
 
@@ -48,7 +48,7 @@ well，呢隻係蟹唔係妖怪
 
 鬼太郎咖喱包  
 
-![](https://1ahoqg.ch.files.1drv.com/y4m02n6XGR1P0S4LjKLAV5ZrfdXt9SzXSoChzYfrQpsBAdyz8P8HL16JZTo97K4cRvbcZ87SjZu2BqB2cWhvEIhwLrPxbrtgaHLlfciKAJbZwb9_6VYiNig61GcadinuX6MKbFEM_6-OcV1BQ3itBclLXkdWhRglFk2fPubMuTWgiW9Dj-0F_PTblDVyWQbrlVOQJBFJ9nlYfz876RVSgMZ-g?width=660&height=371&cropmode=none)
+![](/images/tottori6b3.jpg)
 
 大渠蓋，當然係鬼太郎  
 

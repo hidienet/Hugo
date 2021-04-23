@@ -7,7 +7,11 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Thu, 18 Dec 2014 07:30:00 +0800</lastBuildDate><atom:link href="https://hidie.net/tags/handmade-%E6%84%9B%E8%86%9A%E5%A0%85/index.xml" rel="self" type="application/rss+xml" />
+    <lastBuildDate>Thu, 18 Dec 2014 07:30:00 +0800</lastBuildDate>
+    
+	<atom:link href="https://hidie.net/tags/handmade-%E6%84%9B%E8%86%9A%E5%A0%85/index.xml" rel="self" type="application/rss+xml" />
+    
+    
     <item>
       <title>[skincare] 綠茶潔面水</title>
       <link>https://hidie.net/greenteawater/</link>

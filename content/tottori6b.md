@@ -156,7 +156,7 @@ well，呢隻係蟹唔係妖怪
   
 ![](/images/tottori6q.jpg)
 
-**千代むすび酒造 岡空本店**  
+[千代むすび酒造 岡空本店](https://hidie.net/tottori6q/)  
 頭先食飯飲落幾好味，入去八吓先  
 
 ![](/images/tottori6q2.jpg)

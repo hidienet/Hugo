@@ -88,6 +88,10 @@ tags : [travel-日本-鳥取]
 
 傘化け 銅像，好可愛（心）  
 
+![](/images/tottori6j20.jpg)
+
+鬼太郎咖喱包  
+
 ![](/images/tottori6j19.jpg)
 
 由鬼太郎駅到水木しげる記念館  

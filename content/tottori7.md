@@ -191,29 +191,29 @@ folded (?)嘅**鬼太郎妖怪倉庫**
 佢哋三個嘅尖叫聲嗌到拆穿天際哈哈哈  
 笑到我差啲往生喇哈哈哈哈哈 
 
-![](https://3agnyw.ch.files.1drv.com/y4mqf9qTzSDlFf6u27iYLgYQkRZAa-WvioAsbEF3ULnLuTiLthjSy6ARcSiZb9_GYjt_x8me5Z-fKXQy5DaAMUBLL9ebXlfLFnWru42EVUvtBTk3x3znTjv-cRnx8UqQuL5UxkqReFLA34CwVvVT8eE7QsOAV1ODwGi7deqyY4a8to5-TPLXDMxSQru6USi1kagesKXs4y4KL0zQn4LQ50Krg?width=660&height=371&cropmode=none)
+![](/images/tottori7i1.jpg)
 
 去返**ゲゲゲの妖怪楽園**  
 
-![](https://1ahnqg.ch.files.1drv.com/y4m0xYYkAaNEV7qL3UvtIz0jNI_jffb8jZ3Nbfwrzikh62HzroH8PNnHHq73po9j93_GiXImWmh6WkDAT5iL4J4CKUNXUqZuc3A7-h63OhKqOOMxJzub3_OcB-fgR2XxrVvfzxdS7IaYcFFdCIzNeAhCxh5zB284xNL1lxkSQgqrRh3UHMRLOudW9FCzvKMIJfjQi6THl0b3X1vy4s9Fg-hXQ?width=660&height=371&cropmode=none)
+![](/images/tottori7i2.jpg)
 
-佢裡面有間**妖怪茶屋**  
+佢裡面有間[妖怪茶屋](https://hidie.net/tottori7i/)  
 
-![](https://3aglyw.ch.files.1drv.com/y4mrsYIQ4JurRp_ftYC4H3PxHzW19qaLv7KFF0zoj2kOHOIs7Zu-hS44RlVwTmjAuCFfMuX1UF1ol-GLkhcyFAppepw3wLMv8lOWN0-9uvF8s7qk89_W7iNHJOqq5bwLLdusee-rEiS3VhIWXXC4M-A0Eyqa5LP0NunF3CJDJeXYBb95KlxssbtqRZBUYm8umlqbHoaatjOePQENNAgE5Geqw?width=660&height=371&cropmode=none)
+![](/images/tottori7i.jpg)
 
 要咗杯味道OK啦梗係為咗賣相一流嘅凍朱古力同熱咖啡  
 有得揀上面嘅撒朱古力粉角色  
 兩父子GET！  
 
-![](https://3qgfyw.ch.files.1drv.com/y4mCxy-9tuIhIo_97E35vKTor91zwU1lbd8unBDfReEOGT7tbLSkStHeTHRjZrzaFeZ_rUEA7BUtvMSj2gF5KW0dV1TVJ_mJl4gBzIXf5GW9bOJ_vNqVTFMVCuGqrwvcPKKlG0UIqjpBsM4dJ2myt5E5d7DRSMsJWeOQxLotY3cHNpEKKQ5Bg1JW7BL8M7UB4or9HKnKjeBS7FxaSNGhCPe-Q?width=660&height=371&cropmode=none)
+![](/images/tottori7i3.jpg)
 
 嗌呢啲嘢飲仲有漫畫節錄杯墊可以帶走呵呵  
 
-![](https://3aghyw.ch.files.1drv.com/y4mo6FwRZ6lc7uNvQgEwwzu6OWb5UwgMd529eTL0QpO-yXKNu05p9pNhJ_Xxpq6FaJNcJFoNRcJM2ZjidmTHmNufqux8yrSIZnxg5SrUljnzLZWYOow_OXsSXunZxAhIGuqChYo3mWda69nIPTO0kpw9Kh8AYWPKGWTcPSIPEYnfPKEoM8E2Esd-VhF6qlvkQxgUdSiVJBvXo-6MZktRcx_UQ?width=660&height=371&cropmode=none)
+![](/images/tottori7i4.jpg)
 
 爸爸响呢度買嘢  
 
-![](https://3agiyw.ch.files.1drv.com/y4mSqD_pklpBks_aSQbe9shy1rAQ1XHVOCm81ixG-8hFFXgnx5Kl_bJ2oD8Qjq7mO16DufNqLX69Nd0BcOlNOiWESAtvuFzkJHjSfyH4r0x4OALJoctPzJsU-YlxlzgI2aUMFifKTYug4K0ndZ_I-NJmW6Uk2JJvw3zieOYOv5pLYGisUKkD3Yw1wTNKFJXjcIUZU5CY9FFz_KneAaEuhxhXw?width=660&height=371&cropmode=none)
+![](/images/tottori7i5.jpg)
 
 我就出去妖怪饅頭度買，好食㗎！  
 

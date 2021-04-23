@@ -44,7 +44,7 @@ well，呢隻係蟹唔係妖怪
 
 化け草履 銅像  
 
-![](https://0whpqg.ch.files.1drv.com/y4m5f4qoC85yfqv4OGPt0EB7cowuwqzljz5-hNx1O8vaqw6tYfFeTBhljcQkFxwHlBokl1CgeJZGK8aNp1muL4jFJFcbnnhq1De2a4ROz_5oa5fzeGWX8C1mKdq5_1lYPSGqgOkcdPiRN0PRnGsfdfWgBeuqOJ6fbS2S4Zge51zy6GZr8oYWfSzEe_EDF-i4HP3zh8UuMe64OC4A9D84kfglQ?width=660&height=371&cropmode=none)
+![](/images/tottori6j20.jpg)
 
 鬼太郎咖喱包  
 

@@ -84,6 +84,10 @@ tags : [travel-日本-鳥取]
 
 妖怪ATM（誤）  
 
+![](/images/tottori6j21.jpg)
+
+
+
 ![](/images/tottori6j18.jpg)
 
 傘化け 銅像，好可愛（心）  

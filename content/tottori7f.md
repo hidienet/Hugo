@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day7：河童の泉'
+title: '[ドキドキ鳥取] Day7：河童の泉 | 妖怪広場'
 date: 2021-03-14T01:30:00.000+08:00
 draft: false
 images: ["/images/tottori7f.jpg"]
@@ -33,7 +33,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori7f4.jpg)
 
-有個亭仔
+**妖怪広場**
 
 ![](/images/tottori7f5.jpg)
 

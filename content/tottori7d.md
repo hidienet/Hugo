@@ -56,7 +56,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori7d11.jpg)
 
-進化成大妖怪嘅鬼太郎  
+進化成**大海獣**嘅過程  
 
 ![](/images/tottori7d12.jpg)
 

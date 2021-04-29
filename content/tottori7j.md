@@ -24,18 +24,6 @@ tags : [travel-日本-鳥取]
 呢度嘅正式郵局  
 寄出嘅郵chop會有鬼太郎樣呀！  
 
-![](/images/tottori7j4.jpg)
-
-**ゲゲゲの鬼太郎の塔**  
-
-![](/images/tottori7j5.jpg)
-
-爸爸，爸爸响上面啊啊啊！  
-
-![](/images/tottori7j6.jpg)
-
-鬼太郎响下面  
-
 ![](/images/tottori7j7.jpg)
 
 同鬼太郎無關，不過個鯊魚垃圾桶實在太可愛～

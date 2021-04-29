@@ -33,7 +33,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori7f4.jpg)
 
-**妖怪広場**
+有個亭仔
 
 ![](/images/tottori7f5.jpg)
 
@@ -41,7 +41,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori7f7.jpg)
 
-啲彩色嘅牆有啲剪影喎
+**妖怪広場**度有啲彩色嘅牆有啲剪影
 
 ![](/images/tottori7f8.jpg)
 

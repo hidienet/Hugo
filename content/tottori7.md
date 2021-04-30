@@ -230,12 +230,12 @@ folded (?)嘅**鬼太郎妖怪倉庫**
 
 ![](/images/tottori7j3.jpg)
 
-呢度嘅正式郵局  
+呢度嘅正式[郵局](https://hidie.net/tottori7j/)  
 寄出嘅郵chop會有鬼太郎樣呀！  
 
 ![](/images/tottori7j4.jpg)
 
-[ゲゲゲの鬼太郎の塔](https://hidie.net/tottori7j/)  
+[ゲゲゲの鬼太郎の塔](https://hidie.net/tottori7k/)  
 爸爸，爸爸响上面啊啊啊！  
 
 ![](https://0wehvw.ch.files.1drv.com/y4myAaqWgUHA_qRGjjiYi49RvF1Jh2RIbTfloaVbCuWWOOP1eInOvT2Z7Lx18eg-TfhhW5xLviRexTOZgyy1YFEQBlJrPi1u1gQjs6u8Vn0iZCKoSldfl--IT5yYTOlGD_s5K9AHmJhCiS_RqZ23nPtnhXFxTnvYz4MKyNTRRCZR6ePXJONqxh_tCbIp8mAHfydao2THq1cbKkGurtbR_dT4Q?width=660&height=371&cropmode=none)

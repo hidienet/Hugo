@@ -96,7 +96,7 @@ tags : [travel-日本-鳥取]
 ![](/images/tottori7k8.jpg)
 
 **サラリーマン山田(さらりーまんやまだ)**  
-夜晚更影得出佢個驚驚青青讓嘅上班族山田先生  
+夜晚更影得出佢個驚驚青青嘅上班族山田先生  
 （[車外](https://hidie.net/tottori2h/)同[車廂](https://hidie.net/tottori2j/)一樣咁可愛）
 
 ![](/images/tottori7j4.jpg)

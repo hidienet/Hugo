@@ -86,7 +86,7 @@ tags : [travel-日本-鳥取]
 
 ![](/images/tottori6j21.jpg)
 
-
+自動販賣機都有角色print
 
 ![](/images/tottori6j18.jpg)
 

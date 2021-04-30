@@ -20,7 +20,7 @@ tags : [travel-日本-鳥取]
 
 貓女 水渠蓋  
 
-![](https://3ghlqg.ch.files.1drv.com/y4mjAFE7WpxrEjPztBtzN6R247dBBGJ8zRTiZAfbMpZlvup8R9YsOJXxGq5_0XiezWC2XYti918VqymGkSYHmgQeB37V4iJ_WoOuJw_3ZVnhKZJLIwrfLPrNXJtQ85CkvLsvVSXk9xyI5PL8qlYDJ6QgNJ9fzaXMaxLMAMUgU52IJX2G8f7ylylp07PfFb8RG2M1S9njT0L4zTUq8-Y0sNbZg?width=660&height=371&cropmode=none)
+![](/images/tottori6b5.jpg)
 
 well，呢隻係蟹唔係妖怪  
 
@@ -40,7 +40,7 @@ well，呢隻係蟹唔係妖怪
 
 不過就closed係咁意睇吓就走喇  
 
-![](https://0whrqg.ch.files.1drv.com/y4miZ0yuNZIPVPS_4ZNx6Y20ipgJKlE6QtA9cZk7IyUxhB1gEj1bxGY65_9zA4OocsMWujWJBCc_fBowgTr7BHuNEH7qfUpA1cepZ_Y2DOayljMD-PtGDG43ygobDS3jIjBVmdWhGaF9i2Kn-SIFjjOJO523n_7g33snxeDpGb3hNXhf9in7JFSmgz4cny-HmmXVE6Jv4UxsETkBqwKjIPEOA?width=660&height=371&cropmode=none)
+![](/images/tottori6b4.jpg)
 
 化け草履 銅像  
 

@@ -238,10 +238,10 @@ folded (?)嘅**鬼太郎妖怪倉庫**
 [ゲゲゲの鬼太郎の塔](https://hidie.net/tottori7k/)  
 爸爸，爸爸响上面啊啊啊！  
 
-![](https://0wehvw.ch.files.1drv.com/y4myAaqWgUHA_qRGjjiYi49RvF1Jh2RIbTfloaVbCuWWOOP1eInOvT2Z7Lx18eg-TfhhW5xLviRexTOZgyy1YFEQBlJrPi1u1gQjs6u8Vn0iZCKoSldfl--IT5yYTOlGD_s5K9AHmJhCiS_RqZ23nPtnhXFxTnvYz4MKyNTRRCZR6ePXJONqxh_tCbIp8mAHfydao2THq1cbKkGurtbR_dT4Q?width=660&height=371&cropmode=none)
+![](/images/tottori7l9.jpg)
 
 响酒店拎埋行李（一早check out咗放低响酒店）  
-離開境港搭JR返**米子駅**  
+離開境港搭JR返**米子駅** @[目玉おやじ列車](https://hidie.net/tottori6l/)  
 
 ![](https://2gegvw.ch.files.1drv.com/y4mqTHj6DoaguVAO5Yl0Xq_oBjknxBF3lfv-vqYjTl0cy14_Ij8x-J3q7I99DWc2N-fyGcZv1MKPH8rpULG8H0ums3v8rFtDhGpOjx-7EteeQPJkQppolEEyPVNDXQ7zf3NBj9QzqLOTS56KMqkKE1svKRVUeG4mHDAo5U9-oYY_az1MlM2Mol0UGfnYNDe4PoDx5h5Oy-v061yVl1GReTASA?width=660&height=371&cropmode=none)
 

@@ -40,7 +40,7 @@ tags : [travel-日本-鳥取, satisfaction - 搭條鐵]
 
 **大篠津町駅	|「砂かけばばあ」駅**
 
-![](/images/tottori76m.jpg)
+![](/images/tottori7m6.jpg)
 
 **和田浜駅 |「つちころび」駅**
 

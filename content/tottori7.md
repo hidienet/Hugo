@@ -243,14 +243,14 @@ folded (?)嘅**鬼太郎妖怪倉庫**
 响酒店拎埋行李（一早check out咗放低响酒店）  
 離開境港搭JR返[米子駅](https://hidie.net/tottori6m/) by[目玉おやじ列車](https://hidie.net/tottori6l/)  
 
-![](https://2gegvw.ch.files.1drv.com/y4mqTHj6DoaguVAO5Yl0Xq_oBjknxBF3lfv-vqYjTl0cy14_Ij8x-J3q7I99DWc2N-fyGcZv1MKPH8rpULG8H0ums3v8rFtDhGpOjx-7EteeQPJkQppolEEyPVNDXQ7zf3NBj9QzqLOTS56KMqkKE1svKRVUeG4mHDAo5U9-oYY_az1MlM2Mol0UGfnYNDe4PoDx5h5Oy-v061yVl1GReTASA?width=660&height=371&cropmode=none)
+![](/images/tottori7n.jpg)
 
 返到米子駅唔係即刻出閘  
-因為响個站度停泊咗一直預唔啱時間搭嘅**ピンクのコナン列車**（！！！）  
+因為响個站度停泊咗一直預唔啱時間搭嘅[ピンクのコナン列車](https://hidie.net/tottori6n/)（！！！）  
 
-![](https://2gemvw.ch.files.1drv.com/y4mThXJ8WouweG8mTTEp6qBN67TxRRdlYh7MT_bZ_S4nohjJEGbD5ZJNk8QAci-YYa7PRmtAez77_i5knimytvk1gwltmPCwo6FUM_AYd82Oh2O0rMtCBW9UTddbIVP8QZ4hgM3HOQAMNcjSTl7hYtsf-HFGtvQfyfOkjRA3bT8lSF8eFl4GmtILdtKBRWGuRZzip8cLKVBwuO_PcKGl_V9fg?width=660&height=371&cropmode=none)
+![](/images/tottori7n4.jpg)
 
-因為我一路袋住コナン列車嘅時刻表  
+一路袋住コナン列車嘅時刻表  
 就發現搭返嚟米子有段時間呢架車係未開嘅  
 點知一出0番のりば (0號月台) 遠遠就見到粉紅色嘅佢lucky！  
 

@@ -276,83 +276,83 @@ YES！嚟到[皆生温泉](https://hidie.net/tottori7o/)喇～
 
 皆生溫泉係個可以望到日本海嘅溫泉啊  
 
-![](https://2aeevw.ch.files.1drv.com/y4mKdc4_aZeTMmq9A9t16lHfEwtN_pvh1FHdjgKT4tX0AZikOJ-rC1MfAI9zu_uBaRiR-YJsmTewxwhqp9jAycByyCLBDtSFMVZWGIfI2BM_u86IMt5Pn0ePUk5FpZJt8FwgQ0R6Pt7KiNrSRcy59iiL8EEIr2MQIH7HkjXPZjBvRR74jp07d7NopSjgK9KAoYn8PzXzmCdQtRqTkPgjEHU8w?width=660&height=371&cropmode=none)
+![](/images/tottori7p2.jpg)
 
-**皆生温泉 かいけ彩朝楽**  
+[皆生温泉 かいけ彩朝楽](https://hidie.net/tottori7p/)  
 係今晚下榻嘅溫泉旅館  
 點解揀呢間應該睇到呢對木屐都略知一二喇可  
 
-![](https://1welvw.ch.files.1drv.com/y4m2CoO4oxDRpE26R0l1fhJZD2BofNQAyjK8kEwzI_p483GWhSht5RTWohIQM8kN2W_-jJjQ9MHKNVUFpXugW7Zl-PxhwbhxzBYGa_b_I7IeZhSpebYM8SKJT2R_th0dJY9ddemptNyt57obmMZiFszgC0DCSVAgG4FazjsRC-ZlCfliPGGAvCJfPJweHhhAXm_ebPGQPSBRUpukvJXti7Zog?width=371&height=660&cropmode=none)
+![](/images/tottori7p3.jpg)
 
 驚你睇唔明，俾多隻**一反木棉**以資識別  
 
-![](https://1wemvw.ch.files.1drv.com/y4mxgXKjjeY124HMf8cNW-y3B5t9an9AK918dOfCt6GqZp-R7MVyiOUvC-jluI0eI2esQ7VWaRzcbbKBsaVmJrJp38unNG9W_MtJXalh6bHmLSV2PS_GCraWWDZ1XFBjSKS4JpMVeaoVsGGak7l2TtkM4FooQnEJ8x4QgvVADD_6RI0DwlHxjyPhTUtmgwR2y7fKKzBjloHh_LJDXARf4JSfg?width=660&height=371&cropmode=none)
+![](/images/tottori7p4.jpg)
 
 酒店嘅無料足湯，有得望住個海嚟浸㗎！  
 
-![](https://1wekvw.ch.files.1drv.com/y4m2ve21Aye7x-JKp74y9-5xoVLoOkRuyUINFnZwYZqSZLKajY-20dcaEXMbDkzRjLpz4EVKK1n07-kgylFehJJW6zVgyrT1jj73XVkALCMg8X0TgN2ZgkNIEMOfi9j67weBwfIELmCoYsMBL9VpQeHgYj7KP5SlC6joB36PQtj01kBulnomTUa0xA4_4DiGCsC1Nnc5cs-CpT47B7-wROVaA?width=660&height=371&cropmode=none)
+![](/images/tottori7p5.jpg)
 
 check in咗，收匙  
 係鬼太郎間條木牌呢  
 
-![](https://1wehvw.ch.files.1drv.com/y4mZ4vw9akr0G3fLvKJ9Uj9vCRXoQL-RZpRzU1atrvRNeqrFAVCud7r2sbKJ1_uz25qLIxWPhgBrQb7xYGCrbXxnQ_Mbdk_beMCzYN7y8ULLP8OaDcW-LXlTm0DvkMF_ZTDCjKWSOTvamzDihKEZbVsNCJp1VQXuVRtjr6Ypxbb6BQewzED4ukhCukmo1IosYILtQIqgDZf98RTlWteWd2-3A?width=660&height=371&cropmode=none)
+![](/images/tottori7p6.jpg)
 
 自己浴衣自己揀，揀完就上房喇  
 
-![](https://3gehvw.ch.files.1drv.com/y4mwoeL8sgN8v2G2o3QSdISVxDRfcGn1rVWxc125Zk_j2G05-lIDW39G2Pr4YRncPiWqu2wr-G-1Ujd2wZGj8T_HieYRCzN37U82SH-MY4UvsntBqCWXH8uqHNx8JfHiP1Cw_unpvSPJYZext4Vfd4Y1CkmaMoCGcujvj6F93ZPsOPnsWsTV3hSq1dvVexPJdl-w1TwKvTuvZEV4jghLlFw3w?width=660&height=371&cropmode=none)
+![](/images/tottori7p.jpg)
 
 **ゲゲゲの鬼太郎ルーム お化けの学校編**  
 wakakakakkakkaaaaa，皆生溫泉唯一有鬼太郎主題房間嘅溫泉旅館  
 旅館有4間鬼太郎房兩間和式兩間西式  
 4間房唔同主題，我揀咗 (1)和式同 (2)學校主題yeah  
 
-![](https://1wedvw.ch.files.1drv.com/y4mtO6cq_yF3q-Dx1XSfbrc2KjrWYrksJu03XP8C8gqmIkFEgAbGPgxInfmwujH7r7KE8mQFnpNP5FAWFglPAtpNSk-CO6jTOGOOlCSTBs5FODzJQ93zdnAjcsPsnPXkb7AZtkNlZRsTWhnpqb3eTB2lUG_UaSR2hvICCxuCH0__ou4tLCAW4N01tzTykI8w0OcI-h0swvS38f2qKCNbIokdg?width=660&height=371&cropmode=none)
+![](/images/tottori7p8.jpg)
 
 個黑板係堅嘢可以用粉筆寫字畫畫  
 鬼太郎say hallo，教台係電視櫃  
 
-![](https://1wefvw.ch.files.1drv.com/y4mmvmAiNJref1otYCtm7bagzGnZVnGaeQtea41Gmo7HBiiTHBAAvoL0EQOjKDwIRWOGMoVZag-1sj0FmOU0sw6MbqfNv5cBb1QyE3mpxAgV4JYKgemryGtnpmN86LQuP83Cas2unI8dclg7EluNHl4ydcmqh5thzXzcdPN0S2upDsQFMqGiZazRwm-45kvHRZ12jSibZYfZFAPp45wZAaC0w?width=660&height=371&cropmode=none)
+![](/images/tottori7p11.jpg)
 
 其中一幅牆，大大個ぬりかべ牆壁怪落戶於此  
 
-![](https://1wegvw.ch.files.1drv.com/y4mn57ogQ7oaIPJnKzUnIMf5l3WBUERVxIp7_T1iFZaZ06f3Vo2j9vmKQFu87Q2ZXbciMyB8TpEyZwjHXN78cfw91clJfHHMmpBTpvVmU7DAOKi6VlcIz4ZW3xfGiHPAHWXiGsypeLBodREqIuxmPVlJQs_vgvmumo5dO0Ng7xXHoxVrvKOEGcLuCWVTZTvlFIhxAcaJzS5jeBhDhOljkK2-g?width=660&height=371&cropmode=none)
+![](/images/tottori7p12.jpg)
 
 隻木屐鞋好大張... 嘅枱！  
 
-![](https://3gemvw.ch.files.1drv.com/y4mgeUctmrMUvN6_n3bsZdHJvHKeQf7hTX1_5KygfgS1dDyEAJiqSCAC5cWL_bRI-40hLpwqBR5JMatpHNfPFOnYePLC3ndCvfaf02W4Tisq4i7Ve4z0sZa99XM849f5FFqieraMhGi_jDU2LrlTnk5c7ibsxjD_BRVk-FBwTcRQB50WUkNr6QpOqeZmf9faWm3zEw5-iL3J59BlQvjRKLi8A?width=660&height=371&cropmode=none)
+![](/images/tottori7p15.jpg)
 
 今朝响境港見銅版畫  
 同一幅畫，呢度係櫃門  
 
-![](https://3aefvw.ch.files.1drv.com/y4mM_zy-89ESGvx4ZSIxQTsAjwBoz_0TcWs8FTl6XvjqrRSNadsjsMrSt5nCGR1R1ZPQ5lRxHkMceNyBTgaHRkRvs7AiuKbSu3TgO3XfdyipegPJZvNOZBz6IxSPPdPI2dmjrJB99A17K05gyMSvNUxYxVga0JCAVsUhW_sZ1ucXwlmhhMJ5QzUcC1bXLPyJBuA6-LZw1VGFwHi23e7bk1yUA?width=660&height=371&cropmode=none)
+![](/images/tottori7p18.jpg)
 
 房裡面仲有個庭院  
 
-![](https://3qemvw.ch.files.1drv.com/y4mMQt9aYOGLQuSHGNw7lqAf-ka31ulUnjM6SfhKSW3Ugyub9B2iXfePawcYJzs9VQ-_KzFlHPr5-PqJZdBAJ7HJcNGv8QDHvHegTu8kylzRtjKYHsKJbwdnxL3jLvxvXYKXiKKj-0eNrOqrhBNR3yUUlwew0FFx1HpsBEv0pHzN2bNzmI-F8aujyk_szpyxWjQgOjswfsXrzZ1Kc_g6r2u0A?width=660&height=371&cropmode=none)
+![](/images/tottori7p19.jpg)
 
 盞妖怪燈仲可以三段調較光暗  
 
-![](https://3gekvw.ch.files.1drv.com/y4me4rV4ZAZDvvQK6_HbniON95izcVMr0rzcoabR3sxY5BRWnyYkScJrv9nBenShe9_IpC3X_cs5ZXNNXbgjEO8QDn7-MrKsyVV33D_eHt1fCzCMzV0bUljFHrwRHva8QQIE0--esO0Kbmk-DjbGkIw2IL-G_nEyjsj7CsUIeDjLn3YiTICaFXskuwlatbfCHuK4Wgs_0uixwGkWjbpu4d6RA?width=371&height=660&cropmode=none)
+![](/images/tottori7p20.jpg)
 
 ねずみ男就响「教室」房門口  
 
-![](https://3geevw.ch.files.1drv.com/y4mNPDiTSzfW_GQEYymutK4FCFK4ohK7ExGxlL6RNsgSGI4euKoquTg0L-YCC_uVnqLQRfmgXAMn-DfURkW0sCkxsc8w7XdbBNTv2dl9aKWq8fYxXFKygaykrcGeCiYUcB7ZYqEPtWldk9ravu1xg9anoxnii6p871PlfsAja2Fwg9TLxzkvLUyMVEyeARWFm66yj6xHWc-VSlzk5eN55UDzw?width=660&height=371&cropmode=none)
+![](/images/tottori7p21.jpg)
 
-洗手間上爸爸嘅妖生哲理  
+洗手間內，爸爸嘅妖生哲理  
 
-![](https://2welvw.ch.files.1drv.com/y4mX5IJf0C7htyXz4tIudsr2NufJJ8FrDg3iTIWYGrD-VzRSN85ZHuAmXPAbS3TpTEsSbr-B-OT8j5nYW3o9hdlJikWWxYanfH3a9iK9x_aBcKcalWn_PGGkr_ma8xWMh1Q7f-n28KLPKwvHO9JMFkxlSpu87Cpm_B0cabKIc4Qj9JfHh0f7PS3YPL_hMHJe2ZBY-qzMJJOLMbMdwjYHAwkgg?width=660&height=371&cropmode=none)
+![](/images/tottori7p22.jpg)
 
 溫泉浴場，晏啲先落嚟浸  
 
-![](https://2weivw.ch.files.1drv.com/y4mgLsNWnsBgdvf13jqJ2i7lGX2LvU-r457zpdnflXf1k5zEO2WBSV6Jrt3LA-CPTO6jR4xKwUDgB3DN4rMsTFuvtZFySsKA8kgll1NmFMYrfcnui8YxWxpBoOLsfewmZw9BR4agJ248A3nI2AoSZ8xEisX_lLoZdOdrjNtEfjKBac5xaIeBUXOll1Nw0UndgmgVpFhPdEueehl2A_nBv1zLA?width=660&height=371&cropmode=none)
+![](/images/tottori7p24.jpg)
 
 間旅館好正㗎，まんがコーナー有勁多漫畫任睇（要識睇日文啦）  
 
-![](https://2wefvw.ch.files.1drv.com/y4mb2zUBuhAs1Gfx39PFkWG1QR-SRX9HeLfZ6sPuJGfRTVKHQ94_CO8muCF2ZwxnlLNdYxOmeRiFjWscTSSFp3ttOUPa9qdXIq4itOkYp7Q1DtfGXzx_Y6kgIox20G519bqWsvvXVUTfcDNaKIblDqeN5lXpcwZtfysskJhbwrf0Jt42vMRfRk_m7pUZ1Rc0JntYZbhx4vj-WxViRrs0S3VXA?width=660&height=371&cropmode=none)
+![](/images/tottori7p25.jpg)
 
 ゲームコーナー game corner  
 
-![](https://2weevw.ch.files.1drv.com/y4maiBXs5VqzAmI6ZJQrQ6K25tfu55_gZdejvmhV9U0RkQaYwKMRwg0-S7XWkVsCDZsA6B0cqsgAw7ior1SR4dhZEAU7NhyfzcaI6B0upiLVTmpeW_9Tp_HJgOOJcyhCjF_gfW7NaNBazqymg0GqjH9E20TAtIiwKVDq8tSECQUycHFkFFXyxEFHQ4TWezjWJos91asovmPyo4S6lSMzLuRzQ?width=660&height=371&cropmode=none)
+![](/images/tottori7p26.jpg)
 
 お土産コーナー 賣手信嘅  
 仲有無料K房呀打枱波等等  

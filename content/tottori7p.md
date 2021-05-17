@@ -100,6 +100,10 @@ wakakakakkakkaaaaa，皆生溫泉唯！一！有鬼太郎主題房間嘅溫泉�
 
 ねずみ男就响「教室」房門口  
 
+![](/images/tottori7p27.jpg)
+
+ゲゲゲ
+
 ![](/images/tottori7p21.jpg)
 
 洗手間內，爸爸嘅妖生哲理  

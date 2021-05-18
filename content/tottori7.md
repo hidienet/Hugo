@@ -358,17 +358,17 @@ wakakakakkakkaaaaa，皆生溫泉唯一有鬼太郎主題房間嘅溫泉旅館
 仲有無料K房呀打枱波等等  
 唔出旅館都有排玩  
 
-![](https://1ag1wq.ch.files.1drv.com/y4mK1b971XpHSK15oCR_ymB_WoBR-PTBTlkKvwaYUq5RVvwQt6ebZhdAXwcN_aYfMvPqmYQs7ZoIbNU8o3L3HifhiuFC7N0VW-zyB-IC1ipwIMo2WE5MC63nWoFtJvBENyYRTmAOMaCEiG6ezHDjdzXZrlvSmZ_9nb_Po4FEhrBMeRIsASlS1QAiT6K1wqfDbUCzyg2brD1_0cP0s9MzvG_0A?width=660&height=371&cropmode=none)
+![](/images/tottori7q1.jpg)
 
 不過區區一間旅館係困唔住我嘅  
 
-![](https://1agywq.ch.files.1drv.com/y4mpCeNcc9YcdS9gHuUSSfA_Uq0ZrfCnuYNWzq8V-m31X08HC7rKZ3Pvi3quFf9UxNCYbZYF94sGxKZJe6rgfHs9Mg5johyG-PVL4HFgYLMruIUS76wcsUegu_8tKwMpbMmIq49rlcBCw7s4MFNa-i-jvRGSsEfU-EJXD1nL6rGxSYnfhlDnF_N16lK2ptOwFL3uNaSAPfTFZtftSN3xLWWsg?width=660&height=371&cropmode=none)
+![](/images/tottori7q2.jpg)
 
 又去搭巴士，夜晚個屏風開咗燈再靚啲  
 
-![](https://0wgywq.ch.files.1drv.com/y4mFW_Z8BcsvbU8QmsI6K8Zwq-At7cX8zmhbzUb0wrPr_M37qrBXBBa67CBM2SwYjGA8QAF5MYt4TtpMaDgJ1wDawi-Waps6Mr75fFtvdjrrykiDuV-7HVDQEgsRmfhG5I3z9Ca7Vw9bfsb0Tb6dcPXCHkkJTXEHobuR4xFvwQFsf_g5z_ZXu09-RHk7sOum8qIK8IAkS6xU6y6kft5CWwiKw?width=660&height=371&cropmode=none)
+![](/images/tottori7q3.jpg)
 
-巴士站裡面有鬼太郎鉛筆刮刮樂  
+[巴士站](https://hidie.net/tottori7q/)裡面有鬼太郎鉛筆刮刮畫  
 有埋紙同筆，等車都唔怕悶  
 
 ![](https://0wgxwq.ch.files.1drv.com/y4mN5w9HitGBgpN6JS_o1jac5jnUFOboFxfMKJgCPFChZ-CLaNRqZn8cwvs3ICjmuXAlPhyoxQ9LMaknuFHFpCaNHfWZOErPSkT3HR90d2Y37mQrWHbG-_d5ApMBTx7hsX4uUu4n_AgFBW_Q4jc966uXPrK-wHp2y8U9l7BENxpUu4P95NDez7ZOb3D8Ibxi6S1Wk0CIva4nrCGZnzoq5kFEA?width=660&height=371&cropmode=none)

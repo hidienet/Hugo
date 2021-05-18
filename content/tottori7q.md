@@ -1,5 +1,5 @@
 ---
-title: '[ドキドキ鳥取] Day7：「皆生温泉観光センター」バス停留所
+title: '[ドキドキ鳥取] Day7：「皆生温泉観光センター」バス停留所'
 date: 2021-05-18T14:30:00.000+08:00
 draft: false
 images: ["/images/tottori7q.jpg"]

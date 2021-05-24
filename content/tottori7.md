@@ -387,7 +387,7 @@ wakakakakkakkaaaaa，皆生溫泉唯一有鬼太郎主題房間嘅溫泉旅館
 然而真係又大又好行  
 好啦聽日再嚟過囉（反正聽日唔好天）  
 
-![](/images/tottori7r12.jpg)
+![](/images/tottori7r11.jpg)
 
 先搭返巴士返旅館  
 

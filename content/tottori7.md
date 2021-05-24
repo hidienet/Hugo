@@ -371,23 +371,23 @@ wakakakakkakkaaaaa，皆生溫泉唯一有鬼太郎主題房間嘅溫泉旅館
 [巴士站](https://hidie.net/tottori7q/)裡面有鬼太郎鉛筆刮刮畫  
 有埋紙同筆，等車都唔怕悶  
 
-![](https://0wgxwq.ch.files.1drv.com/y4mN5w9HitGBgpN6JS_o1jac5jnUFOboFxfMKJgCPFChZ-CLaNRqZn8cwvs3ICjmuXAlPhyoxQ9LMaknuFHFpCaNHfWZOErPSkT3HR90d2Y37mQrWHbG-_d5ApMBTx7hsX4uUu4n_AgFBW_Q4jc966uXPrK-wHp2y8U9l7BENxpUu4P95NDez7ZOb3D8Ibxi6S1Wk0CIva4nrCGZnzoq5kFEA?width=660&height=371&cropmode=none)
+![](/images/tottori7r1.jpg)
 
 啊！架車就係去依昂嘅哈哈  
 
-![](https://0wgswq.ch.files.1drv.com/y4mRmjbPlmmZNwifL1kUGK41ffeUxxIfuAkQmNYIuMyfdXAgM-FqIe0ni1Sh99pc_HGiCpbK-t4zomY_qv3VzQTuJBo18BTjpGFIePfNMdAOuwSm9Ek_4XIfgQMFA3mx_sfMwLUj9HvNFSYG0UPXI7ymFKBslAEfoyObu1Qz29sUDLWxKfNCtG9aifUuzBwffYABC7Zf-5bV_wFO-IXrkyj7Q?width=660&height=371&cropmode=none)
+![](/images/tottori7r4.jpg)
 
-イオンモール日吉津 (AEON Mall 日吉津)  
+[イオンモール日吉津](https://hidie.net/tottori7r/) (AEON Mall 日吉津)  
 用大概一個鐘頭快速逛吓  
 好行就聽日返嚟再行過  
 因為成個旅程其實冇真係行過街嘛...  
 
-![](https://2ggywq.ch.files.1drv.com/y4mSNfABWkQeLN_JcUEbZHLJoo_9jN0xvLj2Ehv7CXU4E-eOx0NwI9uqJaGs4tUZWy_aHG9Am-j5TggqFg8xhXhBNiAdJGvh6oNwgUVdOKvZhccD0xoqelDLSs3Ek6lghWX9WKwwTyRbKD_O6WCsprpAS364rZ-4xQ-fdOTbuXYBcxOEPkZ4RUqezKtgTFMPnwqYBzet9Hs8KrRJFzrY-Tnxw?width=660&height=371&cropmode=none)
+![](/images/tottori7r.jpg)
 
 然而真係又大又好行  
 好啦聽日再嚟過囉（反正聽日唔好天）  
 
-![](https://2ggvwq.ch.files.1drv.com/y4mfR9pOMmbD9qhzVl04doGJaUAP9lQxJCnfHbQcWx4LAAIdqDs7KBV5rLjzs9PDahPRuI4RqG4x1R8rK5EOyZm9A4H_9uPaTBroDEVxS9YS9MFtXtMyA-qgo8ytItzUQGvip795_XzUxXP6-9O4G1jvAvHcLzAfRBL39V88VnFHqYPMLDgDZ9M8cTH6sJouTkFJRmbP9b-PNU7_RV2UrhhMA?width=660&height=371&cropmode=none)
+![](/images/tottori7r12.jpg)
 
 先搭返巴士返旅館  
 

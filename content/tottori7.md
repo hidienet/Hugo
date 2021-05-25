@@ -391,37 +391,37 @@ wakakakakkakkaaaaa，皆生溫泉唯一有鬼太郎主題房間嘅溫泉旅館
 
 先搭返巴士返旅館  
 
-![](https://2qgvwq.ch.files.1drv.com/y4mT3lg9OPiifjNtvLNrm4SH6Bf1YWXHTogyHkp0FtAPkgiOQPqAM2d2FGdc1JVGMNcMMe6cVepY0jwYXHdUm1H2Yfr8aD00p9WtdVjsIoouTgBK2opZPkCT6mswBcDmrLwrX76-vVM-Q_oN5EPMQROZeYZ7nK312V1KgGaBNneJNVNnuQ234UxQCMbSRa8-gxA3gHteKU1PFGzXWtkSZqvUQ?width=660&height=371&cropmode=none)
+![](/images/tottori7s1.jpg)
 
 行得嗰少少街就返歸因為要食晚飯呀！  
 
-![](https://2qgswq.ch.files.1drv.com/y4mATG6aNWQd2Umzu48XQ6Ic9ah4OvAUDw7KZxzF7jCk_7qzD-pANdk2eUh-N8Yn9doGQFmuiuRJPvVM8pRw6f94mJgibxydSJpyEyEKegAP7lpSCK80OvuWtVKONrgaaT2A57JDJ-FZgGLRiLSGfkpGD7KKgmhkDmkHfS9bjvd7e_AFCZsIgNeXCmMxV0Oh73frtnDLZ1XAGKf5fsYJcsMDQ?width=660&height=371&cropmode=none)
+![](/images/tottori7s2.jpg)
 
 自助餐 + 鍋物 都不特止  
 
-![](https://2qgwwq.ch.files.1drv.com/y4mpIf-mlkjiUddiz_l3L_m8rFaKV2KrUZaWpN-6Qz5FKCKLAVCxeOILr8G0bjRMKNoiO0UR_B0sO1pUp4MRdP0AIGprkY4UsL5qeKUbg8NcHwembwnDSd00TZKy5OQYvNfmc-PrguXHqtRXOOK_Ktrn8xW_MyWuCAHQg7jEHXmUa9T5qg0vV3w5VbTQMv02rF-SevfK4VxhX0l29JKCzl0Mg?width=660&height=371&cropmode=none)
+![](/images/tottori7s5.jpg)
 
 嗱，咩都拎少少就好喇  
 
-![](https://2qgzwq.ch.files.1drv.com/y4mbXqPLgaOXARMIUb2gq5Bk45G4lqJEgQn7nBMQAXJ5pvT9TazEhwBEnC77fQ2VtkFtr9SlelM59YEFLLp5aekwr5aM_dtMVJp3kizfHnFDVmNHWlaQclMF1lZILU3_QZwmCQKWCkhi3YV4aq4AfR1a3P6Tpytba7H8kakvxTYH2PsrB_LXRmSenABT6Fyt2PT7QBYU_MgvZproqGK-2QzZA?width=660&height=371&cropmode=none)
+![](/images/tottori7s6.jpg)
 
 因為係訂鬼太郎房  
-自動upgrade咗**本ズワイガニ食べ放題**  
+自動upgrade咗[本ズワイガニ食べ放題](https://hidie.net/tottori7s/)  
 即係凍！蟹！腳！任！食！！！  
 勁勁勁長㗎啲腳，鮮味到暈...  
 早知係乜Q嘢食都唔拎就咁食蟹腳啦啦啦  
 （返香港有狂隊薑水啦）  
 
-![](https://2ag0wq.ch.files.1drv.com/y4m-7m9rXY9CXYD5MCwri5y9v3kgEHdUNZOx_y8TYJM9sq9r370VY5aw_hrE9dRKJM7fGO6GOMHGIVODmjl-rV2bP-vpXV4XfM9R2REHcbvdqAm_zcDprip8whhfwSnSU0JMZuvN83cRZqXinIBMikNBOvMUVplzXhhX1ff5F5KiaH3INkaWwul-9Pg6e--hkkiVCAh0MRzo6_Xvk7T2_QNKA?width=660&height=371&cropmode=none)
+![](/images/tottori7s8.jpg)
 
 個鍋有得揀しゃぶしゃぶ或者すき焼き  
 自己拎湯底㗎啫  
 
-![](https://2agzwq.ch.files.1drv.com/y4mgU9OpZ_Mj4YG7igyCukuN8gYal6fE6r2EqxSLmQ7IvhDLYDQGOkTZ1uk5W_2jxyqCNgKnHsH2fzS4uLGIKiV8OEumfQwzU6jATVzFQ023PlnVsXWRLMuq4cjL0t8DD_X2aEfc6F3OGe_pugsPgnb6hlmGMkBrQViLKxLUFSWNhVzMDvPd9vH7mDNyqrd2_-LEuy34buYX7JfQ_k7YaLLpQ?width=660&height=371&cropmode=none)
+![](/images/tottori7s9.jpg)
 
 啲蟹係好食但係啲牛都好好味呢～  
 
-![](https://2aguwq.ch.files.1drv.com/y4mVkyD3RJcI6Gi1oh1PFWMImQ0Pf_4Uhz90BDKdI3ua7GLOVF2qq1BUytNkP5YzzYJUTJlVMsJNgBllCzeMpZ9XHT80PmeN3Xe-rQ5pycdk7gxUEwbrAWLIaIuiSWoNUJb-kCFC2kZMpSSWls6IEFirb6VCLMuXNZWKScefzj243Kzl4FsAos9r-l36rYkyJ7aIx8mBOL-7TI2mW6ZBV3bEw?width=660&height=371&cropmode=none)
+![](/images/tottori7s11.jpg)
 
 又係鬼太郎房嘅福利  
 食完嘢再送呢碟鬼太郎角色嘅甜品（心）  

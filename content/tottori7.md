@@ -426,20 +426,20 @@ wakakakakkakkaaaaa，皆生溫泉唯一有鬼太郎主題房間嘅溫泉旅館
 又係鬼太郎房嘅福利  
 食完嘢再送呢碟鬼太郎角色嘅甜品（心）  
 
-![](https://1wg0wq.ch.files.1drv.com/y4mlKBxaIxtdvwavpgIU_Yn93LlJj_T0Xr2gIU0uYIs9YnBfZRAMiVTC7G_8eX9zgrLq6TiXUa9kOgoBV07PuxfpkpvuAeGunD1gsrRVCDcCazEuNjtufaPyRgcQAu4400QkLEOmVPkpI5QFccPGbM4rRpfEPRZQHTcomvgYuGNrCKAQ8y8q5h_nhPyCORgvdO59cY9SZ7y9L4vJuldMdboNQ?width=660&height=371&cropmode=none)
+![](/images/tottori7t1.jpg)
 
 食到好好好飽未浸得溫泉住就出吓街啦  
 都係去便利店啫哈哈  
 
-![](https://1wguwq.ch.files.1drv.com/y4mJedeaCm4crvY3Rj37z33JvZhAPCoHPt7vpq6y91IotO1tO1FMhSTu8HgOHZWsKRaDwfa4OdmvKFbsDheNKJMu5jX1HV2jVnM8UOutyxzeOunMMY-_xUSEZ2vqipyGJTMOq1A2QDyn2NhLHMZZ9r0byionCXIVwlGONCtd4Ff8eh4D9KLQ4lNAov0BaY7wtLyVPGIFESMXghZOhkaATTbnw?width=660&height=371&cropmode=none)
+![](/images/tottori7t2.jpg)
 
-同之前住嘅[三朝温泉後楽](https://www.hidie.net/2020/01/day32.html)嘅分別係要自己鋪床  
+同之前住嘅[三朝温泉後楽](https://hidie.net/tottori3zk/)嘅分別係要自己鋪床  
 又因為要自己鋪床就要打開櫃門  
 櫃裡面有妖怪㗎，唔係自己打開就會唔知道㗎喇～  
 
-![](https://3gg0wq.ch.files.1drv.com/y4mdWwJGpuL9Bpx4x22uH2nGdt1LQGhF9rYzky3eqqCl12yOb9PpmVL_mGdpSy1WIxUAV0PtZBaC10WerxFgxkyBYCP1LrCXgK7Lz5phIRPBbP7GRupkFnz02HtGe9qvCTBw6ZdnYOnW87YOUlaGuwN_imqaAlGaRaZPos-eNc1ZuUBOn4kq3xkSz11QoAzjNBsJ8vXeGcIgEspXydfqTUv3w?width=660&height=371&cropmode=none)
+![](/images/tottori7t3.jpg)
 
-**GODIVA×Uchi Café　ショコラアイスクリーム　ロールケーキ**  
+[GODIVA×Uchi Café ショコラアイスクリーム ロールケーキ](https://hidie.net/tottori7t/)  
 有人响我唔知浸溫泉定瞓咗覺嘅時候食咗佢（嗚嗚）  
 
 ![](https://2wekvw.ch.files.1drv.com/y4mIXHF28Y-uyqx27uJtPrkXzFSMUdlOvEr1hZgyi53H3JzPTv8p0ewmOrxVxGAvjHhRclvmOGRCgNqPvJ_gdZGnwoVmYB24qIt_xdKitwI28a4whGefuBwwb3DbWnEgD7kxIvqwJ0I5GVTXwumKNj0B6YqPIl5vdVZvnusSTrBWia6mqUi6LvK3vobpkUD5GvrE5HPoANzPUzRLUFUrTIxRQ?width=660&height=371&cropmode=none)

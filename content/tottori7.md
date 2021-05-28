@@ -442,14 +442,14 @@ wakakakakkakkaaaaa，皆生溫泉唯一有鬼太郎主題房間嘅溫泉旅館
 [GODIVA×Uchi Café ショコラアイスクリーム ロールケーキ](https://hidie.net/tottori7t/)  
 有人响我唔知浸溫泉定瞓咗覺嘅時候食咗佢（嗚嗚）  
 
-![](https://2wekvw.ch.files.1drv.com/y4mIXHF28Y-uyqx27uJtPrkXzFSMUdlOvEr1hZgyi53H3JzPTv8p0ewmOrxVxGAvjHhRclvmOGRCgNqPvJ_gdZGnwoVmYB24qIt_xdKitwI28a4whGefuBwwb3DbWnEgD7kxIvqwJ0I5GVTXwumKNj0B6YqPIl5vdVZvnusSTrBWia6mqUi6LvK3vobpkUD5GvrE5HPoANzPUzRLUFUrTIxRQ?width=660&height=371&cropmode=none)
+![](/images/tottori7u1.jpg)
 
 啊！夜晚當然走落樓浸溫泉  
 浸完又响度思考人生之食雪糕好定飲牛奶好  
 
-![](https://m9emiq.ch.files.1drv.com/y4m0-PsJuFLvklfPC-W7XRQojWIrY04bmkSKjjvrheInOdckZIQIjRjOZk9JHqW012BWdfXdvdlbahj9YpK-WtA8F4uwCacjmj--twIQK2Swg7OpKmnEO8jOSU3ZwNhF1QVgCDYC-NO6qVP5OVxB_8xLflKbpxxGQnfbo8uqsYPGhPlMlH4xCoGBr8a58aXGWbbAk8AcWQ5IFb4p6yYEGR3dQ?width=371&height=660&cropmode=none)
+![](/images/tottori7u.jpg)
 
-**大山乳業 特選白バラ牛乳**  
+[大山乳業 特選白バラ牛乳](https://hidie.net/tottori7/)  
 係啦！都係揀牛奶  
 因為頭先晚餐已經食過雪糕  
 加上在地樽裝牛奶真係非常好飲  

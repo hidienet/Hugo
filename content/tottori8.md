@@ -8,24 +8,24 @@ tags : [travel-日本-鳥取]
 
 好喇 last day喇，落樓浸個溫泉先  
 
-![](https://nneriq.ch.files.1drv.com/y4m_ZdCgCeB9pguTpLoM3DDIp5-Ar2AjQNFR-Ts4fc_ihGq6LHtnf-kesxnFAK6zuCzVLThCwB8VzsB7IOE71oLjnN8QO68FYkQZaQ5Bxbk3kT_G20OQEFJVKDlXQlzQQQ6QYfel6_8yxZGZzciIr6HpNzqLd1ajlSc3KuLz1xSTTGVEwvDg0El-U7TelBT5udjGOWlrkg-0XEoRUoODycVQQ?width=660&height=371&cropmode=none)
+![](/images/tottori8a1.jpg)
 
 8日旅程浸咗4個成11次溫泉都咪話唔爽（大心）  
 
-![](https://m9etiq.ch.files.1drv.com/y4mLTJBPxoolZTOmGkCmQLsfheJ7EJf0NzsQULIhs_4nOxjvUPom6rSyUEbQHvKZjdcSmR_Js3XHi2tQDJFTmJUU25BfziFCCR_6v-vM-h8U30CoLd-gciLB5-pkilsAfY79xdDl6gSyTPFq_R1ONSFeExqOGxw5NFMJOzzo5NnEqTeqTZ3gM8qnDP2QQXzk1_4jZ1Wah6eZJ7KVeBYJw3FBg?width=371&height=660&cropmode=none)
+![](/images/tottori8a4.jpg)
 
-然後就去一泊二食嘅自助早餐  
+然後就去一泊二食嘅[自助早餐](https://hidie.net/tottori8a/)  
 又係超多嘢揀樣樣都想試...  
 
-![](https://m9exiq.ch.files.1drv.com/y4mZbXTPcbtR4VFHudvqL_j8m4xqTV9AA7YRkRx7AWxXxIEtHCcmxEuwl4sXZ2t_FUESaolxbKK5xiI7lFtxk8y6_ZsDfXJSXWmQlGbt9zLMBaFoGoa9NB_oGYAoiq7WK6d8FMdvyBt3S_cAL6Zeq0mJLqALzBqdWLFItX1s_qgMYXICGFcOJ4PEZBBAnCXAOtB8CrkXxEJe3Ygy9dbXGhpLQ?width=660&height=371&cropmode=none)
+![](/images/tottori8a5.jpg)
 
 溫泉蛋呵呵呵  
 
-![](https://m9esiq.ch.files.1drv.com/y4mYpgNvzxi9TgAH72a3oyBMMD55o7hwkD_IsIYfO-g7O05TVHG6qY_JPTGAkpgRZdwfiADcWAoAxT9H6SAgessJPMjhJGGC4nbAD5dxwJXSQ4Xw5AoegYOBlbJQl3W0rV2JEEI3vsyLtgiaBBIZXKWW3nzQAFBqqy7pMXQ21mYiPN0xMet58iE0ZQmle9Q_ptFysSkSMqiXvw35GzH__spwA?width=660&height=371&cropmode=none)
+![](/images/tottori8a7.jpg)
 
 揀咗窗邊位置不過今日天色mamaday  
 
-![](https://nnewiq.ch.files.1drv.com/y4mxFAcTJ0brYeCX0NIYIfsexRX7xEq1rw1AC0KOaNau64gN3Vd8bExo9Bia8MSEnA8i-0f94cyE2oevOIgiQHrI3yULxZLvhg8NC0npqLCHPcenHLXw3x9VX7KZbUUZfwPXUXIWmEratCZZriqvKB5-OVm_Bq0bspi1wIeJcWngqNIShSo0HkU5cm42A1fRAAHPdAGAk3tyKl1k-NKpTxZBw?width=660&height=371&cropmode=none)
+![](/images/tottori8a8.jpg)
 
 執好行李就check out喇  
 呢間嘢係自助畀錢形式都幾方便  

@@ -71,15 +71,15 @@ but而家唔係搭呢架啦～
 百円店DAISO（ダイソー）換日本製Peter Rabbit餐具  
 今日儲唔夠唔緊要，下兩個禮拜再去日本再儲過  
 
-![](https://lteoiq.ch.files.1drv.com/y4mlv2WabsIdRETQ--GvTzRVstE3KTLJvrhNt1AkqRTU4lqO1EZRdgO_eF9uSE2zGy1JmVT9PdmtqQkaDdAReWSNWjSBYKGJNNhQdEZ6Rb_cmlPwp9m3msgERrrSVF8YLfFIT5yXeWlusnPS-7SuAL3fOnvSJTeSKNRtFpVUiD9ECZPo-aHoTKpsbOYuA43ezV1v2lZmlmb7k3cEIrWgJYLGw?width=660&height=371&cropmode=none)
+![](/images/tottori8c.jpg)
 
 呢間mall啲餐廳唔係好吸引  
-就去咗food court食**牛丼（並盛）ランチセット** @**すき家**  
-話時話我係第一次食呢間嘢嘅牛丼（[之前食過](https://www.hidie.net/2017/06/happy-days-day-10.html) but is NOT牛丼）  
+就去咗food court食**牛丼（並盛）ランチセット** @[すき家](https://hidie.net/tottori8c/)  
+話時話我係第一次食呢間嘢嘅牛丼（[之前食過](https://hidie.net/kojkmi10a/) but is NOT牛丼）  
 香港就話排長龍呢度梗係唔駛，仲要係whole set 500円好鬼抵  
 所以再嗌多杯甘酒開心吓～  
 
-![](https://ltemiq.ch.files.1drv.com/y4m1sxGopAPnJPo7ULFWNh_cRR42CeNYH_fSgrAc351Jzk0jigUiSulNr8KOJzNkQfUCU05PUB4Kqv2t9nOCPfUMUy3UwS4F1o1er2UzZ6cUl_R8BlvyfypSGZaCD7GM_WrazGW7nQc2g8bVdNc4QsFa6-xRHiRjhdarOE5e-7ucncEuEXLq2ZWaFJqJMzOBevSJxaMZx6CwIFbYxCF_Y633A?width=660&height=371&cropmode=none)
+![](/images/tottori8c2.jpg)
 
 行完街食完晏就搭巴士去**米子駅**  
 

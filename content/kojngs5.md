@@ -115,7 +115,7 @@ Plarail咁大就話唔儲啫
 
 ![](https://ndffcg.ch.files.1drv.com/y4mlCpnwzLu8Pou-3lXyDAEq0Rom6h3ChzofQBIjBicR7n2XEanq7_gjsnVx7mpLE9qn-0u868utwMr9c6nqm7Z2HsyTEjxcSH1ySAgHBfwdlUsq5g36AVrNAmSrtmvr2SEAyPENAnbh6cB-KzgEusdJdck-DpA3w052CpI3o9PlcWlqt8NYnMNY_ZxTQ1i3t3bcGRl2LUEESRjYoXeRkBlqg?width=371&height=660&cropmode=none)
 
-買呀買，連之前响[鳥取](https://www.hidie.net/2020/02/day8.html)儲嘅DAISO（ダイソー）換日本製Peter Rabbit餐具印花都儲夠  
+買呀買，連之前响[鳥取](https://hidie.net/tottori8/)儲嘅DAISO（ダイソー）換日本製Peter Rabbit餐具印花都儲夠  
 可以用優惠價買餐具  
 
 ![](https://ndfccg.ch.files.1drv.com/y4mZDV0TyqyoI2phYTJfFXaS5OxZpDhmRNKzUCWd0zU_7HXmIevUPChmUjpTBfAmpNgu6YO39wV-Un8ZUZJ0gbcZSyTOuLpML74ghAHXP7vZHIfW0PMvPqJH_ZAeFrsM3s53Vl1evkBxEXdBvNy9kylI5PpPxM_qnnx1i82-6kXRO6YNV6Fy_ZLaYC57G5K8rJxiXos_Mh3YkvUrjGAioBtlw?width=660&height=371&cropmode=none)

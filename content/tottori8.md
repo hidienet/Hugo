@@ -30,43 +30,43 @@ tags : [travel-日本-鳥取]
 執好行李就check out喇  
 呢間嘢係自助畀錢形式都幾方便  
 
-![](https://ndeoiq.ch.files.1drv.com/y4mZaJAFHVjirbcFw_8ihE48xAsUxsDM3dguwZLId5nE8EVnfVsoqvbHs763RSZHlKVLUKQBXZ6Xx-zOQxATKbMq_DTGs9EzHaNk1e64bzKJeoAVR8zLDs-DK4kLQCjjfaXHhmlAQrECNflmlp9BpVm7-hy7qRVmLJ2V6eu4Bob4W3x2XWc9CKwmsrdFMcPxKhn8EhfnIYw-2Me817SNVmIIQ?width=660&height=371&cropmode=none)
+![](/images/tottori8b1.jpg)
 
 拖埋行李去到皆生温泉 米子市観光センター巴士站  
 見到呢架一日一班來回皆山溫泉同境港駅嘅巴士  
 but而家唔係搭呢架啦～  
 
-![](https://ndemiq.ch.files.1drv.com/y4mOI9iedoxqIGX_Mrq0uY1JV-FbKkoIRS8TsTEhmPVRGs_mGqXiqWVXxfnU_PmUDwdTjVUC-L4hgnBmSQlnitA0FqKV24igZO7XIyz1XB-cmcGFBMjOEcSWLQlj8q6rSwIDQcQDc5QKh_45lBzu5IKpMTheQAow0YyXgVEUPCrU3r8WDml7ndyzC_1DuGcfx-l79MLBxDddxXty6rS0ETg-Q?width=660&height=371&cropmode=none)
+![](/images/tottori8b2.jpg)
 
-嘻嘻因為要去依昂 イオンモール日吉津 (AEON Mall 日吉津) 啊！  
+嘻嘻因為要去依昂 [イオンモール日吉津 (AEON Mall 日吉津)](https://hidie.net/tottori8b/) 啊！  
 有得免費寄存行李㗎～  
 
-![](https://ndepiq.ch.files.1drv.com/y4mi3nv_VCoE2DoOi1gCuYuEO5rrS7rH0Ku6u_SJpeEWX6ALmz9-sDMsWkr-aLHJt-9F6lCFen_Lv2Ahl8kVMy_BOhAqCz8euIksxHvL_SRCT2qbkhLdH8MoK0nSbRGy3YmaikcSxXvZ67k0F_wooEzuXPpc9lqGSve1XQdGBb36bGMycXFAHVvbqXb6Bnu6fm1VkvF9f1oZ5Dgg3IYfPqtcA?width=660&height=371&cropmode=none)
+![](/images/tottori8b3.jpg)
 
 又可以兩手揈揈行街街  
 
-![](https://ndeqiq.ch.files.1drv.com/y4m3Pc_A5J3Ddsp_ONCVM5LOUCIPX4QLau8N71GTFOYG7yZSCeUlLctoADl1ov_lj3qAGxtxVcKFHyoBXImzkK1omgF5J1wZUK5Z4Am1KHBZ9au0o_PDhH5axAh93_MLbzE7NZ4yuqYcSntNQ4-cE57iEGwPQsjKVlRZxORng3eEk0HQRsxQBuGcrR6Ox342XciPYDjQjM_wPSpkGu1Y7uNhA?width=371&height=660&cropmode=none)
+![](/images/tottori8b4.jpg)
 
 喔！シャア・アズナブル啊！  
 
-![](https://ndetiq.ch.files.1drv.com/y4mmmuZAKWwSERtvTmb-Wnt4pD8hbSdnsa7sKHmR4cF75XGlByozGq0anZj6m8YqSg8cx3bv3t_74Di5E7zncxIhsrBAOiP6dlxXBIRIzBE_43BkREkIiSHkiKinlXDVjnR1RbPge1Dkrz9OYlLG2ws5sQHKoLK4aFqrw3IDAhTsEfjbXjtrcEGeFHVDA1x6MPF1WTHhKHhigXT3xlaXnZaPA?width=660&height=371&cropmode=none)
+![](/images/tottori8b.jpg)
 
 啊啊啊啊啊！  
 
-![](https://ndesiq.ch.files.1drv.com/y4mqlxVI5tjEtle51Um9gAhtgHmyQRZu_l-tL2No1fvp7eUo5efCH7863sWKwgX8NVAF8jQ3rUyvkydn_ZgRgMMalOMVgWGF15U3j1QhCmf7sLFq0lVjSBUY7HdBlr41q7uoAmMhrRBPkDZ22dvY25FsjWgRnoa9cD34tFD1C7bLE4SZ3U_louSU_9bPXbE6bzTrQ_fFVn7g4Rg25ygDgh7fg?width=371&height=660&cropmode=none)
+![](/images/tottori8b5.jpg)
 
 哇～駕駛椅（誤！）啊  
 會唔會解決疲勞三倍速呢？  
 
-![](https://ndeniq.ch.files.1drv.com/y4mUk6f_jm5hQbQobcVQ_dhCquWjLl5fuvWO1FreuONjR5Ow7swWfvLombNl6usSilaXBgSC9ha90S89UtqxVomdrtwXJMYqeQGtKxY11S36xS8J9IoanwWegePHIMA2gItuHFsfIYqoKYT6AVhW4D0jSXBfhv7jdCLTPuhY0gfZr5RiOb7RDyZzNSwsq6dpIvwAizNFtKNu-7YG-2Hd6NkcA?width=660&height=371&cropmode=none)
+![](/images/tottori8b6.jpg)
 
 型到震呢（冇錢買加上電壓唔啱而且點搵返屋企仲有屋企有邊有地方擺blablabla...）  
 
-![](https://nderiq.ch.files.1drv.com/y4mj8zhLphLAU33n_C6kHo2RGT5JiMHXvB4fr6BUwUtGNNHMNbKBlp1bgZURVewtzayS6PXcSL4XcPvY0FMoKY958KBkMJHHVkldUyIT4Oh7Hp-S4wxQQro545ibE1vJUh9sztLrT5Le-msxEnT3ffO1zbEYRlF5m4waO7k8skM4bNan8qmAj0jhuwLKcL52flLa37u2gRvSwq8_jj1eEWR-g?width=660&height=371&cropmode=none)
+![](/images/tottori8b7.jpg)
 
 扭蛋機牆呀呀呀  
 
-![](https://ndexiq.ch.files.1drv.com/y4m1xEhpDDnqQRjerKw5-HG312AaZE1-1wVkPWTsV4nVFkihiUkWe00arjbPOkFLYJnzjrCFLwFqou0CofOHyiPriLj_qGu1HYuWys1VHHUMtzr1kKuYs93lPS7I9e6JY4ucmIRp2ecUL7Ki9GRYw3gQbPxUaDwyPM4MfDPHFAsx02phHpX3l5C4kpYmCgnDDnXalMelFxPL3G8IbuoUrjz0A?width=660&height=371&cropmode=none)
+![](/images/tottori8b8.jpg)
 
 百円店DAISO（ダイソー）換日本製Peter Rabbit餐具  
 今日儲唔夠唔緊要，下兩個禮拜再去日本再儲過  

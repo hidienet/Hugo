@@ -83,13 +83,13 @@ but而家唔係搭呢架啦～
 
 行完街食完晏就搭巴士去**米子駅**  
 
-![](https://ltesiq.ch.files.1drv.com/y4mx5D1CvzN9Dqf_QkzTDi84suqsTlGYbCmKYDOxtZmNXkcwazlswV5YWHB8bSBfZhrZFXC9PZgy1rwEhLAd_nhJTdo9lcnUl2FCGzzXrzLMIoSXvAnDxzL71lC5TacMp0VjlbgD5U_3vsK6p35e9U0T8BWFxzfZBHWw_IQEuCQQ-fzuaHn44_DckRleaIcf6K9onORTijq58JJZ6fLFcGpzg?width=371&height=660&cropmode=none)
+![](/images/tottori8d.jpg)
 
-**永谷園 1本でしじみ70個分のちから おみそ汁**  
+[永谷園 1本でしじみ70個分のちから おみそ汁](https://hidie.net/tottori8d/)  
 非！常！濃！郁！嘅蜆味！！！  
 响站內嘅自動販売機買  
 
-![](https://l9esiq.ch.files.1drv.com/y4mwYEqirZe3vhKsayypJ_DnqZCK1bbuag5NzXlHdw4r1nsTyITgmlX5y5j6kk8Ovfq_OnisdnEp6y4IwNSP68wRx7rj_n2OkVU32IZcoYN80wYo41-H1WXuu_Z_np2RAQcoP3Y3uK_tc4Lc5SbbYqoto-D6akm768cOtE_J8dFdaxRBqsdRQJbyVva22teDuJsItbP0foCBTR00LvKSFinFg?width=660&height=371&cropmode=none)
+![](/images/tottori8d1.jpg)
 
 米子駅嘅風頭成日俾鬼太郎搶咗  
 其實仲有呢啲位都好IGable嘅  

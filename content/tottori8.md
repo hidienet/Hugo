@@ -94,20 +94,20 @@ but而家唔係搭呢架啦～
 米子駅嘅風頭成日俾鬼太郎搶咗  
 其實仲有呢啲位都好IGable嘅  
 
-![](https://l9epiq.ch.files.1drv.com/y4m6-JeSNiBBhWrAxkWX_w72iK140ppjczNFDgpSmLo8I9UgRdurAzXSFwPbAfkafE5gu901Cmekq5KJNfiRyjoWIWLzK0ab9m4CDTeZoVD67eHrYCI_mrG2BqdEJfinlS4hIqih2dpr2CtyN8VROjoixUpW5B2scF5MX_KXVkfP2Vk_HdojMxYpNANuhwbfq25-A0TB8gAhkfRW6d6peAu_g?width=660&height=371&cropmode=none)
+![](/images/tottori8e.jpg)
 
-今次係**こなき爺列車**啊！  
+今次係[こなき爺列車](https://hidie.net/tottori8e/)啊！  
 （六款列車搭到五款，爭砂かけ婆嗰架遇唔到）  
 
-![](https://l9eniq.ch.files.1drv.com/y4m5bPj55llVqLDOU5Q6jAQnE3kN_6nIfMjDVvAZN1KpBdZkug7X5xHgNINcZNVIHaUbRZSoJxByAzsi4Wvrusby4nkJw-B9r7LJPaCeSqJjNuxHTv1puLx1z-pjSpxD0HeeShUnYeRrJqgIV9b3KKNLGCBR5WP7lPB2SsJ-owMrHieCMGrQn6uJGH50znK7yD9i_nkq9TOv8C2N1T7exqE4g?width=660&height=371&cropmode=none)
+![](/images/tottori8e1.jpg)
 
 滿滿角色嘅車身  
 
-![](https://lteriq.ch.files.1drv.com/y4mrdmWF362NkkkgNCqr6Lu7QQyZWYuIfo-uAuvSTsxd9dIkLA1TxzuZ3K03sv_RqsQroJ-DZMGF5x0fROl9JvYXlelehr2MqSPJw9CS-Acx8Ffc9KrL2T05xKkjQmDeHiExf2ch4rCWvEydsUsddNExh4JQNeW2YtTiRuZOyqKfvDt1galkWlUnXc-2thvIdtfc6rXLq18GOo_-9QsSw3ndA?width=660&height=371&cropmode=none)
+![](/images/tottori8e3.jpg)
 
 角色sss 凳  
 
-![](https://lteqiq.ch.files.1drv.com/y4mIugPMTYe5qrU0BBJfkb7FfuHgPD5x4OQQ0r1xAZyz4L_93okW4LBG674uApvcpZEeQkB3F_GKpJGUnnYci7x2ZCRSj0rcO4tWLcYVxNNBgIF8BH2LXg2gA3t2Uzjq9y8W2WZ12W2jt8akpoW_ISg4pPXalCJ0HWLe3-o7JYrhb4stGRUtjEhBBqiHDj-qakJw2E03xGIafYKX7J_vFsJAw?width=660&height=371&cropmode=none)
+![](/images/tottori8e6.jpg)
 
 好歡樂嘅天花  
 

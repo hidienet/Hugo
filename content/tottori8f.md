@@ -6,8 +6,7 @@ images: ["/images/tottori8f.jpg"]
 tags : [travel-日本-鳥取]
 ---
 
-  
-
+搭完程JR    
 
 ![](/images/tottori8f1.jpg)
 
@@ -58,7 +57,7 @@ bye喇爸爸 T-T
 
 ![](/images/tottori8f11.jpg)
 
-要去se
+要去過關喇...
   
   
 {{<tottori>}}  

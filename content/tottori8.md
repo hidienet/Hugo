@@ -142,13 +142,13 @@ but而家唔係搭呢架啦～
 **ゲゲゲの鬼太郎スポット**  
 同[柯南機場](https://hidie.net/tottori5d/)一樣大把影相位啦  
 
-![](https://n9hcqq.ch.files.1drv.com/y4myMVzaonHMGqCMHS6N6Z-bSnZZA-tNh93RH5i-FmvVFsR0CWb7dWjUjpKOQ0Ym8beTvwVT93eqb18MEvEeD2E6WZVf_V2bAdJdOfovrB_JNbmOxPsO18JHQ3fyJ2pSx9x--GO94xY83UF4MzD0hzpoMl03aBi4PO-nSrgCBZr9PJP79zbpNO8ihNuXjSjVEUqKk6PLeJIF9Nh3uYovnjdTg?width=371&height=660&cropmode=none)
+![](/images/tottori8g1.jpg)
 
-**Asahi 濃いめのカルピス 青森県産ふじりんご**  
+[Asahi 濃いめのカルピス 青森県産ふじりんご](https://hidie.net/tottori8g/)  
 臨上機前响自動販売機再放低啲散銀  
 好好味嘅calpis x 清甜蘋果呢～  
 
-![](https://onheqq.ch.files.1drv.com/y4mwCcf-NaR-mx8F0OzpJd1Hatl7beR2zn3qZ87p1NVYYk_fIu0NZF1MF-NHmfJ6UX8ot4VNFgEyGrTAzIVyJ6FF6A6wM2A0M4LKNoCsN8fOQQcgaa7_wAHeuHr4r9P0sdpvYEeO61l1hn108-I4EMiaupyszpuks4B3UxhyJDpOt2wu_qxTH-_lh3p9nkYUhhBB4QdoM0jW3LDdWi-SLYJHw?width=660&height=371&cropmode=none)
+![](/images/tottori8g2.jpg)
 
 好似小學去旅行「野餐」樣嘅飛機餐，哈哈  
   

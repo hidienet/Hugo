@@ -146,7 +146,7 @@ tags : [travel-日本-北海道, lifestyle - 逃離852]
   
   
 #### Day8：[札幌 → 新千歳空港](https://hidie.net/hokkaido8/)
-[Good Morning JRsssssssssss](https://hidie.net/hokkaido8a)  
+[Good Morning JRsssssssssss](https://hidie.net/hokkaido8a/)  
 [納豆飯定食set 2nd round](https://hidie.net/hokkaido8b/)  
 [札幌駅](https://hidie.net/hokkaido8c/)  
 [札幌 → 新千歳空港](https://hidie.net/hokkaido8d/)  

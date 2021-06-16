@@ -46,6 +46,10 @@ tags : [travel-日本-鳥取]
 鳥取藩乗放題手形bus pass減100円 = 600円  
 所以，呢個周遊pass一定要買！  
 
+![](/images/tottori6l27.jpg)
+
+紀念品係非賣品嘅A5 file  
+
 ![](/images/tottori6l7.jpg)
 
 有分可攝影同不可攝影區域  

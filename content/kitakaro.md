@@ -1,5 +1,5 @@
 ---
-title: '北菓楼 北海道開拓おかき　野付北海シマエビ'
+title: '北菓楼 - 北海道開拓おかき 野付北海シマエビ'
 date: 2020-11-09T16:30:00.000+08:00
 draft: false
 images: ["/images/kitakaro.jpg"]

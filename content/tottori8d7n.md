@@ -200,7 +200,8 @@ tags : [travel-日本-鳥取, lifestyle - 逃離852]
   
 #### 無理由唔買嘢...
 [元帥酒造 - くらよし蔵酒](https://hidie.net/gensui/)  
-[宝製菓 - 松葉かに処 焼かにせんべい](https://hidie.net/takarakanisen/)
+[宝製菓 - 松葉かに処 焼かにせんべい](https://hidie.net/takarakanisen/)  
+[中浦本舗 - しじみバター醤油せんべい](https://hidie.net/nakaura/)  
 
 
 

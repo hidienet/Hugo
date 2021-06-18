@@ -1,6 +1,6 @@
 ---
 title: '中浦本舗 - しじみバター醤油せんべい'
-date: 2021-06-16T14:30:00.000+08:00
+date: 2021-06-17T14:30:00.000+08:00
 draft: false
 images: ["/images/nakaura.jpg"]
 tags : [flavor - 小食部]

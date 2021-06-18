@@ -91,8 +91,9 @@ tags : [travel-日本-奈良大阪, lifestyle - 逃離852]
 [ポケモンストア | Pokémon Store](https://hidie.net/osaka4e/)   
 [Goryo - 梅ととろろご飯](https://hidie.net/osaka4f/)   
   
-  
-  
+#### 掛住食唔太記得買    
+[辻利 宇治抹茶の生八ッ橋](https://hidie.net/tsujiriyatsuhashi/)  
+
 
 ![](/images/naraosaka8d8n.jpg)  
 

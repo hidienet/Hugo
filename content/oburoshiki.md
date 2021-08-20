@@ -1,6 +1,6 @@
 ---
 title: '山陰の味大風呂敷 | 宝製菓'
-date: 2021-06-19T14:30:00.000+08:00
+date: 2021-06-22T14:30:00.000+08:00
 draft: false
 images: ["/images/oburoshiki.jpg"]
 tags : [flavor - 螞蟻族]

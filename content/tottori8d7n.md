@@ -203,6 +203,7 @@ tags : [travel-日本-鳥取, lifestyle - 逃離852]
 [宝製菓 - 松葉かに処 焼かにせんべい](https://hidie.net/takarakanisen/)  
 [中浦本舗 - しじみバター醤油せんべい](https://hidie.net/nakaura/)  
 [calbee - じゃがりこ 贅沢カニだし味](https://hidie.net/jagabeekani/)  
+[山陰の味大風呂敷 | 宝製菓](https://hidie.net/oburoshiki/)  
 
 
 

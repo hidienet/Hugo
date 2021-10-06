@@ -1,4 +1,5 @@
 #!/bin/bash
+date
 cd /home/pi/Hugo
 SHELL=/bin/bash
 git config --global user.name "hidienet"

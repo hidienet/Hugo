@@ -1,6 +1,6 @@
 #!/bin/bash
 date
-cd /home/pi/Hugo
+cd /home/pi/Hugo/Hugo
 SHELL=/bin/bash
 git config --global user.name "hidienet"
 git config --global user.email "i.am@hidie.net"

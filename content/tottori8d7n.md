@@ -206,6 +206,8 @@ tags : [travel-日本-鳥取, lifestyle - 逃離852]
 [宝製菓 - 山陰の味大風呂敷](https://hidie.net/oburoshiki/)  
 [中浦食品 - どじょう掬いまんじゅう](https://hidie.net/dojosukuimanju/)  
 [コナン衣装型／ラムネ](https://hidie.net/conanramune/)  
+[コスパ - 目玉おやじ フルカラーパスケース](https://hidie.net/medamapass/)  
+[妖怪がまぐち - ティッシュケース 唐草](https://hidie.net/medamacase/)  
 
 
 

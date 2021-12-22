@@ -3,7 +3,7 @@ title: 'コスパ - 目玉おやじ フルカラーパスケース'
 date: 2021-06-30T14:30:00.000+08:00
 draft: false
 images: ["/images/medamapass.jpg"]
-tags : [/glamorous - 裝身, lifestyle - zakka]
+tags : [glamorous - 裝身, lifestyle - zakka]
 ---
 
 响[円形劇場](https://hidie.net/tottori4h/)考慮咗一輪先買佢  

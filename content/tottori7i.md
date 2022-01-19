@@ -33,7 +33,7 @@ tags : [travel-日本-鳥取, flavor - 飲！]
 
 ![](/images/tottori7i5.jpg)
 
-我就出去妖怪饅頭度買，好食㗎！  
+我就出去[妖怪饅頭](https://hidie.net/youkai/)度買，好食㗎！  
 
 
 

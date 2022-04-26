@@ -10,7 +10,7 @@ tags : [lifestyle - 生活與生存]
 
 ![](/images/firstmonth.jpg)
 
-揍住隻B，坐月一啲都唔爽嘅（超～）  
+湊住隻B，坐月一啲都唔爽嘅（超～）  
 不過頭嗰兩個幾禮拜無得揍  
 又即係代表佢响醫院staycation緊喎  
 （唔健康嘅話咪仲死）  

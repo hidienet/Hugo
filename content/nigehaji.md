@@ -1,5 +1,5 @@
 ---
-title: 'TBS：《逃げるは恥だが役に立つ ガンバレ人類！新春スペシャル！！》'
+title: 'TBS：逃げるは恥だが役に立つ ガンバレ人類！新春スペシャル！！'
 date: 2021-01-04T22:12:00.002+08:00
 draft: false
 images: ["/images/nigehaji.jpg"]

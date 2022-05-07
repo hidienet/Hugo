@@ -90,7 +90,7 @@ tags : [travel-日本-鳥取, flavor - 飲！]
 
 ![](/images/tottori6q12.jpg)
 
-酒 & 鬼太郎，啱哂我河車啦總之就  
+[酒 & 鬼太郎](https://hidie.net/chiyomusubi/)，啱哂我河車啦總之就  
 
 
 

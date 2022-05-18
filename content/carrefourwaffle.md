@@ -20,7 +20,7 @@ tags : [flavor - 小食部]
 只係平時講開比利時waffle就會係厚身嘅  
 超市呢隻係餅乾款  
 用超市貨去hea同事？非也！  
-睇中佢係拎零食獎Superior Taste Award  
+睇中佢係拎零食獎ITQI Superior Taste Award  
 仲係最勁嘅三粒星先入手  
 （C/P值高係買嘢嘅宗旨）  
   

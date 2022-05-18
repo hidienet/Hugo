@@ -3,22 +3,32 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
+    <loc>https://hidie.net/deltayaourt/</loc>
+    <lastmod>2022-05-18T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</loc>
+    <lastmod>2022-05-18T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/</loc>
+    <lastmod>2022-05-18T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/</loc>
+    <lastmod>2022-05-18T00:10:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/skippyice/</loc>
     <lastmod>2022-05-08T00:10:00+08:00</lastmod>
   </url>
   
   <url>
     <loc>https://hidie.net/tags/collections-%E8%9E%9E%E8%9F%BB%E6%97%8F/</loc>
-    <lastmod>2022-05-08T00:10:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/</loc>
-    <lastmod>2022-05-08T00:10:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/</loc>
     <lastmod>2022-05-08T00:10:00+08:00</lastmod>
   </url>
   
@@ -369,11 +379,6 @@
   
   <url>
     <loc>https://hidie.net/tags/collections-mini/</loc>
-    <lastmod>2021-03-23T00:10:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</loc>
     <lastmod>2021-03-23T00:10:00+08:00</lastmod>
   </url>
   

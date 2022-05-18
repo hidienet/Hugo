@@ -1,9 +1,9 @@
 ---
-title: '金針山枇杷'
+title: '[生活原味] 金針山枇杷'
 date: 2015-05-02T16:00:00.000+08:00
 draft: false
 aliases: [ "/2015/05/blog-post.html" ]
-tags : [flavor - 小食部]
+tags : [flavor - 揀飲宅食]
 ---
 
 粒粒飽滿，清爽味甜的枇杷～

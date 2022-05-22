@@ -23,16 +23,16 @@ Lisboa - Rossio → **Sintra**
 係一間絕對值得推薦嘅café（拍手）  
 ... 咖啡就機撳嘅唔需要太高要求  
 
-[![](https://c1.staticflickr.com/5/4318/35933846182_ef69f8bceb_z.jpg)](https://c1.staticflickr.com/5/4318/35933846182_ef69f8bceb_z.jpg)
+![](/images/portugal11a3.jpg)
 
 搭一日無限搭嗰種  
 要睇清楚係邊隻路線  
 去嘅地方唔同當然收費都係唔同  
 （有種講緊廢話嘅感覺）  
 
-[![](https://c1.staticflickr.com/5/4329/35262673954_796d1c7de0_z.jpg)](https://c1.staticflickr.com/5/4329/35262673954_796d1c7de0_z.jpg)
+![](/images/portugal11b.jpg)
 
-第一個checkpoint係**Palácio Nacional de Sintra**  
+第一個checkpoint係[Palácio Nacional de Sintra](https://hidie.net/portugal11b/)  
 呢座皇宮嘅皇室使用期係15世紀初到19世紀後期  
 仲係葡萄牙保存得最完好嘅中世紀皇家宮殿  
 

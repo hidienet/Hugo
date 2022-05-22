@@ -34,7 +34,7 @@ tags : [travel-葡萄牙]
 **Sala dos Cisnes** (The Swan Room)  
 成個皇宮最大嘅function room  
 可以係receptions, 宴會廳或者係celebrations  
-於D. João I國王統治時期興建  
+於D. João I國王統治時期興建 (reign, 1385-1433)  
 當時係叫做**Sala Grande**（大房間）嘅  
 
 ![](/images/portugal11b5.jpg)
@@ -67,7 +67,7 @@ tags : [travel-葡萄牙]
 雀仔們高舉D. João I 國王嘅旗幟  
 而啲爪係抓著玫瑰
 可能指Casa de Lancaster家族  
-D. Filipa王后嘅家族，即係佢老婆  
+D. Filipa王后嘅家族，即係D. João I個老婆  
 
 
 

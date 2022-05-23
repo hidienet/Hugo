@@ -109,7 +109,7 @@ Dome型天花板，滿滿17-18世紀畫嘅海景同船
 
 ![](/images/portugal11b17.jpg)
 
-而啲密集嘅紋章模型  
+全部嘅紋章模型  
 係來自Livro do Armeiro-Mor (1509)  
 作者João do Cró (或者叫João du Cros)  
 同埋Livro da Nobreza e Perfeição das Armas (1521-1541)  
@@ -130,14 +130,23 @@ Dome型天花板，滿滿17-18世紀畫嘅海景同船
 仔嘅紋章樣式係brasões em escudo  
 而女嘅就係brasões em losango bipartido  
   
-
+再外一圈係八隻有條紋鹿角嘅大白鹿  
+  
+然後就有72個最有影響力嘅家庭王國紋章  
 
 ![](/images/portugal11b19.jpg)
+
+紋章嘅最外層係銘文，寫住：  
+"pois com esforços leais serviços foram ganhadas com estas e outras tais devem de ser conservadas"  
+唔標準大概翻譯為「佢哋贏得了通過努力同忠誠嘅服務，所以必須要保留」  
+  
+![](/images/portugal11b20.jpg)
 
 啲18世紀瓷磚牆身  
 係描繪咗田園風光同狩獵場景
 
-![](/images/portugal11b20.jpg)
+![](/images/portugal11b21.jpg)
+
 
 
 

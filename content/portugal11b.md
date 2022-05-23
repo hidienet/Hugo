@@ -87,6 +87,21 @@ D. Filipa王后嘅家族，即係D. João I個老婆
 
 **Sala Júlio César** (Julius Caesar Room)  
 
+![](/images/portugal11b13.jpg)
+
+成間房都係貢品  
+
+![](/images/portugal11b14.jpg)
+
+**Sala das Galés** (The Galley Room)  
+Dome型天花板，滿滿17-18世紀畫嘅海景同船  
+都係掛滿當時主要海軍嘅鄂圖曼、荷蘭同葡萄牙旗幟  
+
+![](/images/portugal11b15.jpg)
+
+
+
+
 
 
 

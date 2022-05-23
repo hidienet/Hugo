@@ -81,7 +81,8 @@ D. Filipa王后嘅家族，即係D. João I個老婆
 
 **Globo Celeste**  
 呢間裡面皇宮嘅重要藝術品之一  
-1575年製造，出自德國Augsburg機械工匠Christoph Schissler (1531-1608)之手   
+1575年製造，出自德國Augsburg機械工匠  
+Christoph Schissler (1531-1608)之手   
 
 ![](/images/portugal11b12.jpg)
 
@@ -104,8 +105,10 @@ Dome型天花板，滿滿17-18世紀畫嘅海景同船
 ![](/images/portugal11b16.jpg)
 
 **Sala dos Brasões** (Blazons Hall)  
-岳高頭就見到天花上面係16世紀前25年嘅重要紋章記錄  
-至今仍然係葡萄牙公民同世界各地葡萄牙人後裔繼續搵緊嘅參考點  
+岳高頭就見到天花上面係  
+16世紀前25年嘅重要紋章記錄  
+至今仍然係葡萄牙公民以至世界各地葡萄牙人後裔  
+繼續搵緊嘅參考點  
 
 ![](/images/portugal11b17.jpg)
 
@@ -138,7 +141,8 @@ Dome型天花板，滿滿17-18世紀畫嘅海景同船
 
 紋章嘅最外層係銘文，寫住：  
 "pois com esforços leais serviços foram ganhadas com estas e outras tais devem de ser conservadas"  
-唔標準大概翻譯為「佢哋贏得了通過努力同忠誠嘅服務，所以必須要保留」  
+唔標準大概翻譯為  
+「佢哋贏得了通過努力同忠誠嘅服務，所以必須要保留」  
   
 ![](/images/portugal11b20.jpg)
 

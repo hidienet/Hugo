@@ -69,6 +69,27 @@ tags : [travel-葡萄牙]
 可能指Casa de Lancaster家族  
 D. Filipa王后嘅家族，即係D. João I個老婆  
 
+![](/images/portugal11b10.jpg)
+
+**Quarto D. Sebastião** (King Sebastião's Room)  
+葡萄牙第十六任國王間房  
+間房比想像中嘅King's room細好多  
+將咁sharp醒嘅紅色床都唔係king size嘅（哈）  
+牆面磚係corda-seca繩紋圖案  
+
+![](/images/portugal11b11.jpg)
+
+**Globo Celeste**  
+呢間裡面皇宮嘅重要藝術品之一  
+1575年製造，出自德國Augsburg機械工匠Christoph Schissler (1531-1608)之手   
+
+![](/images/portugal11b12.jpg)
+
+**Sala Júlio César** (Julius Caesar Room)  
+
+
+
+
 
 
 {{<portugal>}}  

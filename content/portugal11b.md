@@ -152,16 +152,63 @@ Dome型天花板，滿滿17-18世紀畫嘅海景同船
 ![](/images/portugal11b21.jpg)
 
 **Câmara de D. Afonso VI**  
+房裡面有宮殿中最古老嘅陶瓷地板之一（約 1430-1440年）  
+  
 响17世紀，呢個空間有唔同用途  
 本身宮殿响古代係權威嘅象徵 
 成為過國王 D. Afonso VI 嘅監獄  
 皆因王權被撤回
 佢畀佢啲兄弟帶走，之後响度呢個人跡罕至  
 加上有300名士兵把守嘅地方住咗九年  
-  
-而房裡面有宮殿中最古老嘅陶瓷地板之一（約 1430-1440年）  
 
 ![](/images/portugal11b22.jpg)
+
+**Sala Chinesa ou do Pagode** (The Chinese Room/ Pagoda Room)  
+繼續係D. Afonso VI國王嘅監房  
+擺咗呢個18世紀晚期-19世紀初期中國清朝嘅貢品：寶塔  
+
+![](/images/portugal11b23.jpg)
+
+**Capela Palatina** (Palatine Chapel)  
+始建於十四世紀初教堂  
+天花板係由幾何元素徑向 x 星形格仔木雕刻組成  
+而呢件十五世紀嘅Mudéjar製品  
+係葡萄牙最古老之一  
+
+![](/images/portugal11b24.jpg)
+
+**aresta**：下面祭壇綠白色磚  
+
+![](/images/portugal11b25.jpg)
+
+well，當然唔可以忽略到牆身  
+嘴裡叼住橄欖枝嘅白鴿  
+由D. Dinis國王响15世紀創立  
+壁畫中所代表嘅聖靈為主題  
+
+![](/images/portugal11b26.jpg)
+
+**Sala Árabe** (The Arab Room)  
+可能係D. João I國王嘅睡房  
+Manuelino建築風格  
+牆身係alicatados幾何磚  
+中間更有個充滿異國風情嘅穆斯林style雕塑噴水池  
+
+![](/images/portugal11b27.jpg)
+
+**Quarto dos Hóspedes** (The Guests' Room)  
+
+![](/images/portugal11b28.jpg)
+
+**Cozinha** (Kitchen)  
+兩碌33米大煙囪嘅所在地  
+專for狩獵宴會而設  
+  
+並放咗宮中最後一位葡萄牙皇室居民  
+D. Maria Pia王后嘅皇家紋章  
+
+![](/images/portugal11b29.jpg)
+
 
 
 

@@ -3,7 +3,7 @@ title: '[ice pop] Skippy Peanut Butter Ice 日韓版'
 date: 2022-05-08T00:10:00.000+08:00
 draft: false
 images: ["/images/skippyice.jpg"]
-tags : [collections - 螞蟻族]
+tags : [flavor - 螞蟻族]
 ---
 
 花生都唔到我食嘅日子  

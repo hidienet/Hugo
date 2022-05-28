@@ -3,7 +3,7 @@ title: '[icecream] OREO® Sandwich & Bars'
 date: 2022-05-19T00:10:00.000+08:00
 draft: false
 images: ["/images/oreoice.jpg"]
-tags : [collections - 螞蟻族]
+tags : [flavor - 螞蟻族]
 ---
 
 苦味又唔香朱古力味嘅超硬餅乾  

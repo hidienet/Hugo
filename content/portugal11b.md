@@ -209,7 +209,18 @@ D. Maria Pia王后嘅皇家紋章
 
 ![](/images/portugal11b29.jpg)
 
+**Sala Manuelina** (Manueline Room)  
+終於參觀最後一間房  
+大大盞水晶燈大大張枱大大個陶瓷花樽  
+  
+![](/images/portugal11b30.jpg)
 
+望出去小鎮個景唔錯唔錯  
 
+![](/images/portugal11b31.jpg)
+
+嚟嗰陣有雲陰陰天咁  
+走個陣煙消雲散  
+顯得個皇宮更白淨光到掁眼呢～  
 
 {{<portugal>}}  

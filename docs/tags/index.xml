@@ -7,10 +7,28 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 31 May 2022 14:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Fri, 17 Jun 2022 18:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>amusement - animation</title>
+      <link>https://hidie.net/tags/amusement-animation/</link>
+      <pubDate>Fri, 17 Jun 2022 18:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/amusement-animation/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>lifestyle - zakka</title>
+      <link>https://hidie.net/tags/lifestyle-zakka/</link>
+      <pubDate>Wed, 01 Jun 2022 14:22:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/lifestyle-zakka/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - say cheese</title>
@@ -81,15 +99,6 @@
       <pubDate>Tue, 27 Jul 2021 21:00:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E9%A3%B2/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>lifestyle - zakka</title>
-      <link>https://hidie.net/tags/lifestyle-zakka/</link>
-      <pubDate>Sat, 03 Jul 2021 14:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/lifestyle-zakka/</guid>
       <description></description>
     </item>
     
@@ -279,15 +288,6 @@
       <pubDate>Wed, 02 Dec 2020 16:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/travel-%E6%97%A5%E6%9C%AC-%E4%BA%AC%E9%83%BD%E9%AB%98%E9%87%8E%E5%B1%B1/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>amusement - animation</title>
-      <link>https://hidie.net/tags/amusement-animation/</link>
-      <pubDate>Fri, 27 Nov 2020 18:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/amusement-animation/</guid>
       <description></description>
     </item>
     

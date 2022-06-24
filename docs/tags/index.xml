@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 21 Jun 2022 08:00:00 +0800</lastBuildDate>
+    <lastBuildDate>Fri, 24 Jun 2022 00:10:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>flavor - 螞蟻族</title>
+      <link>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</link>
+      <pubDate>Fri, 24 Jun 2022 00:10:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 飲！</title>
@@ -54,15 +63,6 @@
       <pubDate>Mon, 23 May 2022 11:09:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/handmade-%E9%96%8B%E4%BC%99/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - 螞蟻族</title>
-      <link>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</link>
-      <pubDate>Thu, 19 May 2022 00:10:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</guid>
       <description></description>
     </item>
     

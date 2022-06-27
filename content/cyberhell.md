@@ -11,5 +11,5 @@ tags : [amusement - films]
 {{<youtube bdI8mkAL_-Q>}}
 
 **사이버 지옥: n번방을 무너뜨려라》**  
-（Cyber Hell: Exposing an Internet Horror | 網絡煉獄：揭發 N 號房）
+（Cyber Hell: Exposing an Internet Horror | 網絡煉獄：揭發 N 號房）  
   

@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Fri, 24 Jun 2022 00:10:00 +0800</lastBuildDate>
+    <lastBuildDate>Mon, 27 Jun 2022 18:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>amusement - animation</title>
+      <link>https://hidie.net/tags/amusement-animation/</link>
+      <pubDate>Mon, 27 Jun 2022 18:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/amusement-animation/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 螞蟻族</title>
@@ -31,15 +40,6 @@
     </item>
     
     <item>
-      <title>amusement - animation</title>
-      <link>https://hidie.net/tags/amusement-animation/</link>
-      <pubDate>Fri, 17 Jun 2022 18:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/amusement-animation/</guid>
-      <description></description>
-    </item>
-    
-    <item>
       <title>lifestyle - zakka</title>
       <link>https://hidie.net/tags/lifestyle-zakka/</link>
       <pubDate>Wed, 01 Jun 2022 14:22:00 +0800</pubDate>
@@ -54,6 +54,15 @@
       <pubDate>Tue, 31 May 2022 14:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>amusement - films</title>
+      <link>https://hidie.net/tags/amusement-films/</link>
+      <pubDate>Fri, 27 May 2022 18:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/amusement-films/</guid>
       <description></description>
     </item>
     
@@ -81,15 +90,6 @@
       <pubDate>Tue, 26 Apr 2022 18:09:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>amusement - films</title>
-      <link>https://hidie.net/tags/amusement-films/</link>
-      <pubDate>Mon, 28 Feb 2022 18:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/amusement-films/</guid>
       <description></description>
     </item>
     

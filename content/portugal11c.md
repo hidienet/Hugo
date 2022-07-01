@@ -34,13 +34,33 @@ gogogo～
 
 **Travesseiro da Casa Piriquita**  
 嚟得呢度當然係要食Sintra名點之一嘅Travesseiro  
-酥皮加雞蛋x杏仁奶油餡嘅組合  
+酥皮加雞蛋 x 杏仁奶油餡嘅組合  
 無花巧純粹嘅香甜美味  
 
 ![](/images/portugal11c7.jpg)
 
-
+除咗酥皮嘢都有其他嘢食嘅  
+軟綿綿pancake皮，裡面都係甜嘅  
 
 ![](/images/portugal11c8.jpg)
+
+然而間鋪啲酥皮味太香濃  
+（雖然啲嘢食係凍嘅）  
+又係pastel
+
 ![](/images/portugal11c.jpg)
+
+**Pastel de Sintra**（大）、**Queijadas**（細）  
+响Sintra食Sintra蛋糕就最地道  
+亦係呢度嘅經典雞蛋 x 杏仁奶組合  
+Travesseiro係酥皮卷而呢個係酥皮撻咁解  
+
+Queijadas da Casa Piriquita嘛  
+就係除咗Travesseiro外嚟Piriquita一定要食嘅嘢  
+佢係鬆脆餅皮包住芝士、糖、雞蛋、麵粉同肉桂  
+好食嘅不過已經甜品疲勞喇  
+
 ![](/images/portugal11c9.jpg)
+
+食咁多甜嘢，配咖啡啦梗係...  
+but好遺憾呢杯真係好難飲（哈哈哈）  

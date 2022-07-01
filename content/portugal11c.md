@@ -46,7 +46,7 @@ gogogo～
 
 然而間鋪啲酥皮味太香濃  
 （雖然啲嘢食係凍嘅）  
-又係pastel
+又係pastelaria喇～～～  
 
 ![](/images/portugal11c.jpg)
 

@@ -36,11 +36,11 @@ Lisboa - Rossio → **Sintra**
 呢座皇宮嘅皇室使用期係15世紀初到19世紀後期  
 仲係葡萄牙保存得最完好嘅中世紀皇家宮殿  
 
-[![](https://c1.staticflickr.com/5/4298/35294960823_b1cd2805d2_z.jpg)](https://c1.staticflickr.com/5/4298/35294960823_b1cd2805d2_z.jpg)
+![](/images/portugal11c9.jpg)
 
 跳上車前就行一行皇宮對面個鎮仔  
 再去响1862年開業嘅Piriquita  
-不過總店未開所以去咗**Piriquita II**  
+不過總店未開所以去咗[Piriquita II](https://hidie.net/portugal11c/)  
 食Sintra名點Queijadas同Travesseiro  
 配咖啡啦梗係，食咁多甜嘢...  
 （好遺憾呢杯真係好難飲）  

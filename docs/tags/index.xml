@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Mon, 27 Jun 2022 18:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Thu, 07 Jul 2022 08:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>flavor - 小食部</title>
+      <link>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</link>
+      <pubDate>Thu, 07 Jul 2022 08:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>amusement - animation</title>
@@ -108,15 +117,6 @@
       <pubDate>Wed, 30 Jun 2021 14:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/glamorous-%E8%A3%9D%E8%BA%AB/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - 小食部</title>
-      <link>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</link>
-      <pubDate>Fri, 18 Jun 2021 14:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</guid>
       <description></description>
     </item>
     

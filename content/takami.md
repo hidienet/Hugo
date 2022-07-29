@@ -11,7 +11,7 @@ tags : [glamorous - 保養おたく]
 
 ![](/images/takami.jpg)
 
-**タカミスキンピール | TAKAM skinpeel**  
+**タカミスキンピール | TAKAMI skinpeel**  
 不過啱啱去醫生度Co2咗啲疣  
 （公司個醫療保全claim咪剷咗先囉）  
 竟然冇幾耐嗰啲位又起粒粒  

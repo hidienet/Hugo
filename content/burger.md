@@ -1,5 +1,5 @@
 ---
-title: '[] burger time - MOS、freshness、burger king、Triple O''S'
+title: '[burger] burger time - MOS、freshness、burger king、Triple O''S'
 date: 2015-02-13T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/burger-time-mosfreshnessburger.html" ]

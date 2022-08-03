@@ -3,7 +3,7 @@ title: '[tea] 丸·茶手作 皇家紅茶拿鐵'
 date: 2022-08-03T08:00:00.000+08:00
 draft: false
 images: ["/images/bubbleteawork.jpg"]
-tags : [flavor - 飲！]
+tags : [flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
 
 平日唔係太飲手搖飲品  

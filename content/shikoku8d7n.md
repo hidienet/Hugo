@@ -134,6 +134,7 @@ tags : [travel-日本-四國, lifestyle - 逃離852]
 \[食\] [南国製菓の塩けんぴ](https://hidie.net/shiokenpi/)  
 \[飲\] [POM ポンジュース](https://hidie.net/pommikan/)  
 \[飲\] [土佐の黒文字茶](https://hidie.net/kuromoji/)  
+\[飲\] [しんじょう君の麦茶](https://hidie.net/mugicha/)  
 
 
   

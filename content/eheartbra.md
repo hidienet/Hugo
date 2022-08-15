@@ -9,7 +9,7 @@ tags : [glamorous - 裝身]
 如果說之前的[wacoal](https://hidie.net/wacoal/)尺碼令我重獲自信  
 那麼這隻爸爸應該是令我重生吧（嘿）  
 
-[![](/images/eheartbra.jpg)
+![](/images/eheartbra.jpg)
 
 （擠眉弄眼的劉伊心真的不是我杯茶）  
 像sport bra的樣子跟材質  

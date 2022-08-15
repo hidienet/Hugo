@@ -7,7 +7,7 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 09 Aug 2022 08:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Mon, 15 Aug 2022 08:00:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
@@ -15,7 +15,7 @@
     <item>
       <title>flavor - 飲！</title>
       <link>https://hidie.net/tags/flavor-%E9%A3%B2/</link>
-      <pubDate>Tue, 09 Aug 2022 08:30:00 +0800</pubDate>
+      <pubDate>Mon, 15 Aug 2022 08:00:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E9%A3%B2/</guid>
       <description></description>
@@ -139,20 +139,20 @@
     </item>
     
     <item>
+      <title>amusement - TV</title>
+      <link>https://hidie.net/tags/amusement-tv/</link>
+      <pubDate>Fri, 29 Apr 2022 22:12:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/amusement-tv/</guid>
+      <description></description>
+    </item>
+    
+    <item>
       <title>lifestyle - 生活與生存</title>
       <link>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</link>
       <pubDate>Tue, 26 Apr 2022 18:09:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>amusement - TV</title>
-      <link>https://hidie.net/tags/amusement-tv/</link>
-      <pubDate>Sat, 27 Nov 2021 22:12:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/amusement-tv/</guid>
       <description></description>
     </item>
     

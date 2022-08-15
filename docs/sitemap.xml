@@ -3,22 +3,27 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
-    <loc>https://hidie.net/mugicha/</loc>
-    <lastmod>2022-08-09T08:30:00+08:00</lastmod>
+    <loc>https://hidie.net/soymart/</loc>
+    <lastmod>2022-08-15T08:00:00+08:00</lastmod>
   </url>
   
   <url>
     <loc>https://hidie.net/tags/flavor-%E9%A3%B2/</loc>
-    <lastmod>2022-08-09T08:30:00+08:00</lastmod>
+    <lastmod>2022-08-15T08:00:00+08:00</lastmod>
   </url>
   
   <url>
     <loc>https://hidie.net/</loc>
-    <lastmod>2022-08-09T08:30:00+08:00</lastmod>
+    <lastmod>2022-08-15T08:00:00+08:00</lastmod>
   </url>
   
   <url>
     <loc>https://hidie.net/tags/</loc>
+    <lastmod>2022-08-15T08:00:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/mugicha/</loc>
     <lastmod>2022-08-09T08:30:00+08:00</lastmod>
   </url>
   
@@ -148,6 +153,11 @@
   </url>
   
   <url>
+    <loc>https://hidie.net/picola/</loc>
+    <lastmod>2022-05-24T14:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/beefpepperrice/</loc>
     <lastmod>2022-05-23T11:09:00+08:00</lastmod>
   </url>
@@ -183,6 +193,16 @@
   </url>
   
   <url>
+    <loc>https://hidie.net/tags/amusement-tv/</loc>
+    <lastmod>2022-04-29T22:12:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/ninshin/</loc>
+    <lastmod>2022-04-29T22:12:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</loc>
     <lastmod>2022-04-26T18:09:00+08:00</lastmod>
   </url>
@@ -210,11 +230,6 @@
   <url>
     <loc>https://hidie.net/dunlookup/</loc>
     <lastmod>2022-01-07T18:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/amusement-tv/</loc>
-    <lastmod>2021-11-27T22:12:00+08:00</lastmod>
   </url>
   
   <url>

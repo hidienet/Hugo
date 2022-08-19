@@ -88,7 +88,7 @@ tags : [travel-日本-北海道, flavor - 行膳積腹, flavor - 飲！]
 **あらごしみかん酒**  
 即係好好飲嘅[梅乃宿柚子酒](https://hidie.net/umenoyadoyuzu/)嘅蜜柑版  
 非！常！好！飲！  
-忍唔住之後响BicCamera見到有蜜柑酒呢樣嘢托咗支返屋企  
+忍唔住之後响BicCamera見到有蜜柑酒呢樣嘢[托咗支](https://hidie.net/asahara/)返屋企  
 
 ![](/images/hokkaido4j15.jpg)
 

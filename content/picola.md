@@ -1,6 +1,6 @@
 ---
 title: 'YBC ピコラ picola チーズタルト味'
-date: 2022-05-24T14:30:00.000+08:00
+date: 2022-08-16T14:30:00.000+08:00
 draft: false
 images: ["/images/picola.jpg"]
 tags : [flavor - say cheese]

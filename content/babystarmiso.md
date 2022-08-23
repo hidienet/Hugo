@@ -1,6 +1,6 @@
 ---
 title: 'おやつカンパニー ベビースター 濃厚チーズのチーズ味噌ラーメン'
-date: 2022-08-16T14:30:00.000+08:00
+date: 2022-08-23T11:30:00.000+08:00
 draft: false
 images: ["/images/babystarmiso.jpg"]
 tags : [flavor - say cheese]
@@ -26,4 +26,6 @@ tags : [flavor - say cheese]
   
 \-----------------------------------------------  
   
-延伸閱讀：[孔子代言 台南市文化局「至聖點心麵」](https://hidie.net/confucius/)
+延伸閱讀：  
+[ベビースターラーメン丸 ミニ （チーズ）](https://hidie.net/babystarmini/)  
+[孔子代言 台南市文化局「至聖點心麵」](https://hidie.net/confucius/)  

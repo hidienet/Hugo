@@ -63,3 +63,6 @@ hopisucs wheat橘子香氣微酸帶花同莓香
 ![](/images/zi6.jpg)
 
 所以呢，今晚呢個蛋糕杯啤酒嘅組合又幾好喎  
+唔係濃郁甜嘅homw made dessert配香甜新鮮啤酒  
+當然環境氣氛好仲有最最最緊要嘅好朋友  
+成個package... 咪就係perfect囉～   

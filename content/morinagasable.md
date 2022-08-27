@@ -1,5 +1,5 @@
 ---
-title: '森永 チーズサブレ'
+title: '森永製菓 チーズサブレ | Morinaga Cheese Sablè'
 date: 2015-04-07T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/04/blog-post_7.html" ]

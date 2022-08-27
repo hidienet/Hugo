@@ -7,7 +7,7 @@ tags : [flavor - 行膳積腹, flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
 
 要同十幾年冇見嘅人重遇  
-幾揀一之下揀咗**轉角‧見**  
+幾揀一之下揀咗[轉角‧見](https://hidie.net/kitchencorner/)  
 點知去到嘅時候兩條友都無睇門牌入咗嚟呢間 XD  
 （仲要係好耐之後先發現）  
 

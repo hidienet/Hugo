@@ -13,7 +13,7 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 間舖個名幾好聽望啲相又唔伏  
 加上任何情況下都係會相信佢嘅選擇啊！  
 
-![](/images/shoken.jpg)
+![](/images/shoken9.jpg)
 
 **初見四式刺身丼配味噌湯**  
 － 三文魚、油甘魚、帶子、甜蝦、玉子、蟹柳  

@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Fri, 26 Aug 2022 08:00:00 +0800</lastBuildDate>
+    <lastBuildDate>Sat, 27 Aug 2022 04:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>glamorous - 裝身</title>
+      <link>https://hidie.net/tags/glamorous-%E8%A3%9D%E8%BA%AB/</link>
+      <pubDate>Sat, 27 Aug 2022 04:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/glamorous-%E8%A3%9D%E8%BA%AB/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 螞蟻族</title>
@@ -171,15 +180,6 @@
       <pubDate>Tue, 26 Apr 2022 18:09:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>glamorous - 裝身</title>
-      <link>https://hidie.net/tags/glamorous-%E8%A3%9D%E8%BA%AB/</link>
-      <pubDate>Wed, 30 Jun 2021 14:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/glamorous-%E8%A3%9D%E8%BA%AB/</guid>
       <description></description>
     </item>
     

@@ -3,7 +3,7 @@ title: '[包] 轉角 ‧ 見 Kitchen Corner'
 date: 2022-08-29T09:00:00.000+08:00
 draft: false
 images: ["/images/kitchencorner.jpg"]
-tags : [flavor - 行膳積腹, flavor - 飲！, satisfaction - 黃店懲罰日]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 話說舂錯咗入[留白](https://hidie.net/blankcafe/)  

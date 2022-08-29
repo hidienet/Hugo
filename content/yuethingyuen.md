@@ -1,5 +1,5 @@
 ---
-title: '[麵] 越興園越南菜館 - 薄切牛肉撈檬'
+title: '[越] 越興園越南菜館 - 薄切牛肉撈檬'
 date: 2020-07-16T19:30:00.000+08:00
 draft: false
 images: ["/images/yuethingyuen.jpg"]

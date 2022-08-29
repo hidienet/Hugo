@@ -27,7 +27,7 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 
 ![](/images/hokusyokudo2.jpg)
 
-因此，呢多碟！
+因此，嚟多碟！
 
 ![](/images/hokusyokudo3.jpg)
 

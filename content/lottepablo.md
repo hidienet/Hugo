@@ -27,4 +27,6 @@ okay嘅okay嘅，是一次就夠，哈...
   
 \-----------------------------------------------  
   
-延伸閱讀：[おやつカンパニー × パブロ - Cream in Snack](https://hidie.net/pablocreaminsnack/)  
+延伸閱讀：  
+[おやつカンパニー × パブロ - Cream in Snack](https://hidie.net/pablocreaminsnack/)  
+[LOTTE - 치즈 초코파이 (cheese choco pie)](https://hidie.net/lottecheesechocopie/)

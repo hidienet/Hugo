@@ -51,4 +51,4 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ![](/images/heungwost55e.jpg)
 
 話說碗麵嘅蔥花係有切過咁成條上  
-真係好家庭式，我阿媽
+真係好家庭式，我阿媽切嘢都係咁上下 XDDD  

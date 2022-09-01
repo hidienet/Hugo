@@ -1,5 +1,5 @@
 ---
-title: '[羊羊羊] 大漠'
+title: '[羴] 大漠'
 date: 2015-02-19T21:30:00.000+08:00
 draft: false
 aliases: [ "/2015/02/blog-post_19.html" ]

@@ -202,7 +202,7 @@ tags : [travel-日本-鳥取, lifestyle - 逃離852]
 [元帥酒造 - くらよし蔵酒](https://hidie.net/gensui/)  
 [宝製菓 - 松葉かに処 焼かにせんべい](https://hidie.net/takarakanisen/)  
 [中浦本舗 - しじみバター醤油せんべい](https://hidie.net/nakaura/)  
-[calbee - じゃがりこ 贅沢カニだし味](https://hidie.net/jagabeekani/)  
+[calbee - じゃがりこ 贅沢カニだし味](https://hidie.net/jagarikokani/)  
 [宝製菓 - 山陰の味大風呂敷](https://hidie.net/oburoshiki/)  
 [中浦食品 - どじょう掬いまんじゅう](https://hidie.net/dojosukuimanju/)  
 [コナン衣装型／ラムネ](https://hidie.net/conanramune/)  

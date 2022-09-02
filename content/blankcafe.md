@@ -1,5 +1,5 @@
 ---
-title: '[高馡] 留白 Blankcafe'
+title: '[高馡] 留白 Blank Cafe'
 date: 2022-08-28T08:00:00.000+08:00
 draft: false
 images: ["/images/blankcafe.jpg"]

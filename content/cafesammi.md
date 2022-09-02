@@ -42,7 +42,7 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 
 ![](/images/cafesammi4.jpg)
 
-就算揀**牛奶** (full fat milk) 都唔使另外加錢  
+就算揀**牛奶** (full cream milk) 都唔使另外加錢  
 果然cafe同茶記係有明顯嘅分別  
 
 ![](/images/cafesammi5.jpg)

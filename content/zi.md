@@ -1,5 +1,5 @@
 ---
-title: '[cheers!] 梔子 Zi'
+title: '[cheers!] Heroes Beer Co. - CRERUSLY & HANGRY DOUNT @梔子 Zi'
 date: 2022-08-26T08:00:00.000+08:00
 draft: false
 images: ["/images/zi.jpg"]
@@ -42,7 +42,7 @@ crunchy x light 嘅nut 組合完全無得輸，正！！！
 
 ![](/images/zi.jpg)
 
-**heroes beer co craft beer on tap**  
+**Heroes Beer Co. Craft Beer on Tap**  
 港人飲港啤，好正常吖！  
 
 ![](/images/zi4.jpg)

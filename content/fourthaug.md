@@ -1,5 +1,5 @@
 ---
-title: '[粉] 肆年八月米線專門店'
+title: '[麵] 肆年八月米線專門店'
 date: 2022-09-21T10:00:00.000+08:00
 draft: false
 images: ["/images/fourthaug.jpg"]

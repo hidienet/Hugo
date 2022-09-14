@@ -1,6 +1,6 @@
 ---
 title: 'FritoLay リッチギザ 濃厚チーズ味'
-date: 2022-09-13T14:30:00.000+08:00
+date: 2022-09-20T14:30:00.000+08:00
 draft: false
 images: ["/images/richgiza.jpg"]
 tags : [flavor - say cheese]

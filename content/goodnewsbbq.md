@@ -8,15 +8,16 @@ tags : [flavor - 行膳積腹]
 
 平日好鍾意食日本(/式) 居酒屋啲串燒  
 亦會响食東南亞嘢嘅餐廳食沙嗲串燒  
-而中式串燒都只係食過回族羊肉串（@[香港](https://hidie.net/taimok/)、@[西安](https://hidie.net/xian1d/)）
+而中式串燒都只係食過回族羊肉串（@[香港](https://hidie.net/taimok/)、@[西安](https://hidie.net/xian1d/)）  
 所以港產川式嘅其實我係冇食過  
-佢見我都鍾意食串燒，就話帶我去一間會覺得好食嘅  
+佢見我都鍾意食串燒  
+就話帶我去一間會覺得好食嘅  
 GOGOGO！  
 
 ![](/images/goodnewsbbq1.jpg)
 
 大肚又禁酒again  
-喂呀食熱氣嘢冇得飲酒呀！！！
+喂呀食熱氣嘢冇得飲酒呀！！！  
 簡直要用李香琴mode嗌句：「世界末日㗎喇～」  
 
 ![](/images/goodnewsbbq2.jpg)

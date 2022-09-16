@@ -108,11 +108,24 @@ made in Japan又要唔貴好難唔買佢
 
 ![](/images/whitelife12.jpg)
 
-
-
+**PONYKASEI ドアストッパー**  
+又係100円店嘅made in Japan貨仔  
+因為露台↭浴室非常扯風  
+唔用呢個door stopper對浴室門就呯拎棚冷  
+一大一細都只係呢個價，好抵呢～  
 
 ![](/images/whitelife13.jpg)
+
+**marna いろいろキャッチャー**  
+雖然好鍾意100円店不過有時見啲靚嘢都會買貴少少嘅  
+呢兩粒catcher一早就拎咗[Good Design Award](https://www.g-mark.org/award/describe/23630)  
+用嚟啜响瓷磚到勾吓橡筋啊[起泡網](https://hidie.net/mujinet/)啊嗰啲咁都幾好㗎  
+
 ![](/images/whitelife14.jpg)
+
+**DAISO スライド式水切ラック**  
+
+
 ![](/images/whitelife15.jpg)
 ![](/images/whitelife16.jpg)
 ![](/images/whitelife17.jpg)

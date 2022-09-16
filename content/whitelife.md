@@ -124,10 +124,25 @@ made in Japan又要唔貴好難唔買佢
 ![](/images/whitelife14.jpg)
 
 **DAISO スライド式水切ラック**  
-
+100円店嘅made in Japan可伸縮嘅晾碗架  
+放响鋅盤啱啱好㗎本來  
+不過佢嫌太細喎最後都買個掗掗拃拃大大舊嗰隻盤  
+（都係白色嗰種嘅...）  
 
 ![](/images/whitelife15.jpg)
+
+**DAISO ちょこっとまな板**  
+for主婦嚟開發嘅product  
+功能多多又方便所以聲稱櫻花主婦每人嘅廚房都有塊  
+100円，made in Japan啦都係  
+方便切豆腐倒開水切嘢嗰陣啲嘢唔會周圍碌  
+仲有抗菌塗層乾淨衛生  
+無偈～ 呢塊板真係廚房必備品です。  
+
 ![](/images/whitelife16.jpg)
+
+
+
 ![](/images/whitelife17.jpg)
 ![](/images/whitelife18.jpg)
 ![](/images/whitelife19.jpg)

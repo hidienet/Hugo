@@ -214,9 +214,38 @@ but唔係MIJ喇今次係北漏洞拉越南嘢啊！
 
 ![](/images/whitelife25.jpg)
 
-
+**PAMIRE 토끼 스탠드 밥주걱**  
+雖然100円店啲made in Japan嘢都有直立式飯勺  
+但係呢隻韓國造嘅有隻兔兔啊  
+而且係₩1,000店嘅，一樣㗎啫（哈）  
 
 ![](/images/whitelife26.jpg)
+
+**イノマタ おうちでアイス**  
+黑白mono超型格製冰條格  
+冇錯！100円店嘅made in Japan嘢啦梗係！！！  
+
 ![](/images/whitelife27.jpg)
+
+**PHILIPS On tap water purifier**  
+哎吔大廈成日洗水箱  
+唔需要太驚啲水太污糟  
+所以用呢種陽春嘅就已經夠用喇～  
+
 ![](/images/whitelife28.jpg)
 
+**PHILIPS Water dispenser**  
+以前就成日話「飛利浦無樣好」  
+點知都買吓買吓咁  
+咁相比係bruno啊récolte啊嗰啲cheap雞嘢  
+（係睇落平價咋；個標價係design嘢價格）  
+對飛利浦呢隻有信心啲  
+加上佢拎咗2021嘅[iF Design Award](https://ifdesign.com/en/winner-ranking/project/philips-dispenser-mini/300960)  
+講靚係佢靚啲啊！  
+部機嘛，咪出水即熱囉～  
+（有幾個唔同溫度揀嘅）  
+同一般倒水嚟講佢係出水慢好多  
+但係唔好唔記得係即熱出水啊  
+連等煲嘅時間都慳番  
+  
+  

@@ -168,11 +168,35 @@ for主婦嚟開發嘅product
 
 ![](/images/whitelife20.jpg)
 
-
+**DAISO ごますり器**  
+哈哈終於有樣係100円 x made in Japan嘅嘢唔好用喇！  
+平時見到拉麵店啲芝麻磨都唔錯  
+响100円店見到類似嘅咪買囉  
+呢個超雞肋，磨又磨唔碎仲飛到周圍係  
+揸到喊 TT  
 
 ![](/images/whitelife21.jpg)
+
+**DAISO シール容器（ハンドル付）**  
+唔係次次都買到盒裝麵豉醬  
+有時買到袋裝咪拎呢啲盒裝住囉  
+有手柄又可以疊高方便擺  
+都係100円店貨仔啦  
+but唔係MIJ喇今次係北漏洞拉越南嘢啊！  
+
 ![](/images/whitelife22.jpg)
+
+**KOKUBO 粉もの専用スライド式計量スプーン**  
+繼續係100円店搜索made in Japan貨仔  
+佢可調較四種唔同份量  
+然而相比粉狀嘅嘢要量液體嘅時間更多  
+（鹽糖粉嗰啲用調味盒裡面嗰支羹已經好夠用）  
+已經打咗入冷宮喇...  
+
 ![](/images/whitelife23.jpg)
+
+
+
 ![](/images/whitelife24.jpg)
 ![](/images/whitelife25.jpg)
 ![](/images/whitelife26.jpg)

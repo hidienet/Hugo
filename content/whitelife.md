@@ -72,6 +72,13 @@ made in Japan又要唔貴好難唔買佢
 而啲刷頭都仲係compatable  
 好用都可以一直用落去  
 
+![](/images/hakutowel.jpg)
+
+[昔ながらの 白いタオル](https://hidie.net/kojkmi2f/)  
+咩啫，咁size唔大夠薄超吸水  
+同埋用好耐好耐都冇殘冇爛  
+想
+
 ![](/images/whitelife8.jpg)
 
 **Panasonic EH-NA46 nanoe® Hair Dryer**  
@@ -225,6 +232,20 @@ but唔係MIJ喇今次係北漏洞拉越南嘢啊！
 黑白mono超型格製冰條格  
 冇錯！100円店嘅made in Japan嘢啦梗係！！！  
 
+![](/images/kaiicecreammaker.jpg)
+
+[【貝印】アイスクリームメーカー](https://hidie.net/kaiicecreammaker/)  
+KAI除咗刀片靚  
+呢樣廚房產品都好正  
+頭先嗰樣整雪條呢部機就整雪糕，爽！  
+
+![](/images/bangkok5h9.jpg)
+
+**HOMEMATE迷你電壓力鍋**  
+當年未興電子壓力煲嗰陣已經响[泰國](https://hidie.net/bangkok5h/)托返屋企  
+方便易用煮嘢又夠快  
+用咗好多年都無壞，真心正！  
+
 ![](/images/whitelife27.jpg)
 
 **PHILIPS On tap water purifier**  
@@ -248,4 +269,11 @@ but唔係MIJ喇今次係北漏洞拉越南嘢啊！
 但係唔好唔記得係即熱出水啊  
 連等煲嘅時間都慳番  
   
+![](/images/wedgwoodteacup.jpg)
   
+[Wedgwood Strawberry and Vine Teacup](https://hidie.net/wedgwoodteacup/)  
+非常靚而且耐用  
+完全無辦法捨棄嘅小奢華（呵呵）  
+
+
+

@@ -195,10 +195,27 @@ but唔係MIJ喇今次係北漏洞拉越南嘢啊！
 
 ![](/images/whitelife23.jpg)
 
-
+**DAISO クリーンヘラミニ**  
+比較少含矽膠嘅嘢係日本製  
+（不過製造地方啫，其實原料都心知係來自邊度）  
+支spatula用嚟攪拌嘅時間唔多  
+反而用嚟刮走碗碟啲醬  
+令到方便清洗嘅機會更多～  
 
 ![](/images/whitelife24.jpg)
+
+**KOKUBO ピーラー式バターナイフ**  
+唔好問我有幾鍾意100円店啲made in Japan嘢  
+削削條牛油刀好用啊！  
+係就算舊牛油啱啱响雪櫃拎出嚟都即削到  
+而且係一細一細條  
+唔需要一舊咁再慢慢等溶先搽  
+咁就唔怕啲牛油放得唔平均，正！  
+
 ![](/images/whitelife25.jpg)
+
+
+
 ![](/images/whitelife26.jpg)
 ![](/images/whitelife27.jpg)
 ![](/images/whitelife28.jpg)

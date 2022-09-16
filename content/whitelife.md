@@ -141,12 +141,35 @@ for主婦嚟開發嘅product
 
 ![](/images/whitelife16.jpg)
 
-
+**セリア 皮むきスイスイ**  
+都話好鍾意100円店㗎啦  
+今次唔係DAISO係另一間都係「大牌子」SERIA  
+批皮順滑磨蓉快捷好好用  
+好難唔愛上呢啲made in Japan平價高品質嘅貨仔  
 
 ![](/images/whitelife17.jpg)
+
+**イノマタ スクエアポット**  
+亦係made in Japan嘅100円店貨仔  
+疊高方便擺個蓋勁易撳開仲已經自配埋5ml量羹  
+呢個調味盒簡直就係完美！  
+
 ![](/images/whitelife18.jpg)
+
+**KOKUBO 小麦粉ふりふりストッカー**  
+又一被櫻花主婦洗版買嘅好物  
+（100円店made in Japan嘢again）
+
 ![](/images/whitelife19.jpg)
+
+粉類係平但滲多咗啲嘢會唔好食  
+呢個樽就啱啱好將啲粉平均薄薄咁滲上  
+勁好用啊呢個，正正正！  
+
 ![](/images/whitelife20.jpg)
+
+
+
 ![](/images/whitelife21.jpg)
 ![](/images/whitelife22.jpg)
 ![](/images/whitelife23.jpg)

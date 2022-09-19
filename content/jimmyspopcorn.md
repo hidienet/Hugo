@@ -8,7 +8,7 @@ tags : [flavor - say cheese]
 
 芝士 x [Tabasco](https://hidie.net/tabascomini/)，鹹同甜之間再另一種口味...  
 
-![](/images/jimmyspopcorn.jpg)
+![](/images/jimmyspopcorn1.jpg)
 
 **JIMMY's Popcorn TABASCO® Sweet Chili Cheese**  
 嗯... 以唔食得辣嘅我嚟講  

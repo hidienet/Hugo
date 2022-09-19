@@ -3,22 +3,32 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
+    <loc>https://hidie.net/marukyou/</loc>
+    <lastmod>2022-09-19T10:00:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</loc>
+    <lastmod>2022-09-19T10:00:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/</loc>
+    <lastmod>2022-09-19T10:00:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/</loc>
+    <lastmod>2022-09-19T10:00:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/tags/glamorous-%E8%A3%9D%E8%BA%AB/</loc>
     <lastmod>2022-09-18T09:30:00+08:00</lastmod>
   </url>
   
   <url>
-    <loc>https://hidie.net/</loc>
-    <lastmod>2022-09-18T09:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
     <loc>https://hidie.net/sliet/</loc>
-    <lastmod>2022-09-18T09:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/</loc>
     <lastmod>2022-09-18T09:30:00+08:00</lastmod>
   </url>
   
@@ -39,11 +49,6 @@
   
   <url>
     <loc>https://hidie.net/cafesammi/</loc>
-    <lastmod>2022-09-16T10:00:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</loc>
     <lastmod>2022-09-16T10:00:00+08:00</lastmod>
   </url>
   

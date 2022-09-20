@@ -1,6 +1,6 @@
 ---
 title: 'Calbee Grand Jagabee フロマージュ味'
-date: 2022-10-18T14:30:00.000+08:00
+date: 2022-09-20T14:30:00.000+08:00
 draft: false
 images: ["/images/grandjagabee.jpg"]
 tags : [flavor - say cheese]

@@ -1,6 +1,6 @@
 ---
 title: '[鰻] 秋香 - 鹽燒白鱔煲仔飯'
-date: 2022-10-15T10:00:00.000+08:00
+date: 2022-10-16T10:00:00.000+08:00
 draft: false
 images: ["/images/toautumn.jpg"]
 tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]

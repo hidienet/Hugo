@@ -1,6 +1,6 @@
 ---
 title: '[飯] 冚棒唥 Ham6baang6laang6'
-date: 2022-11-04T09:30:00.000+08:00
+date: 2022-11-08T09:30:00.000+08:00
 draft: false
 images: ["/images/ham6baang6laang6.jpg"]
 tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]

@@ -1,6 +1,6 @@
 ---
 title: '[丼] 金子半之助'
-date: 2022-10-31T10:00:00.000+08:00
+date: 2022-11-09T10:00:00.000+08:00
 draft: false
 images: ["/images/kanekohannosuke.jpg"]
 tags : [flavor - 行膳積腹]

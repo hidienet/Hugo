@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 11 Oct 2022 10:00:00 +0800</lastBuildDate>
+    <lastBuildDate>Tue, 11 Oct 2022 14:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>flavor - say cheese</title>
+      <link>https://hidie.net/tags/flavor-say-cheese/</link>
+      <pubDate>Tue, 11 Oct 2022 14:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 螞蟻族</title>
@@ -63,15 +72,6 @@
       <pubDate>Sat, 24 Sep 2022 08:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/amusement-games/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - say cheese</title>
-      <link>https://hidie.net/tags/flavor-say-cheese/</link>
-      <pubDate>Tue, 20 Sep 2022 14:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
       <description></description>
     </item>
     

@@ -49,13 +49,21 @@ Harry Potter嘛...
 ![](/images/ninenthreequarter7.jpg)
 
 **Soft-shell Crab Burger | 森林蜘蛛堡 = 軟殼蟹漢堡**  
-配薯角嘅  
+配薯角嘅（嘎吱嘎吱）  
 
 ![](/images/ninenthreequarter8.jpg)
 
-
+原隻炸軟殼蟹趴咗响度  
+配海鮮類食物最常見嘅千島醬  
+塊葉都好新鮮  
+係誠意之作咁啦！  
 
 ![](/images/ninenthreequarter9.jpg)
+
+**Baked Duck Breast with Caramel | 醉酒玻璃獸 = 焦糖汁焗原隻鴨胸**  
+甜美帶煙燻味鴨胸  
+皮脆肉juicy幾好味啊！  
+
 ![](/images/ninenthreequarter10.jpg)
 
 **Roasted Broccoli with Cheese | 噗噗蘭 = 芝士焗西蘭花**  
@@ -65,3 +73,4 @@ Harry Potter嘛...
 ![](/images/ninenthreequarter11.jpg)
 
 喔！check-in送嘅蛋糕  
+唔會好甜，都算唔錯嘅～  

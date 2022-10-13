@@ -1,6 +1,6 @@
 ---
 title: 'Pringles Nacho Cheese Tortilla Chips'
-date: 2022-11-08T14:30:00.000+08:00
+date: 2022-11-15T14:30:00.000+08:00
 draft: false
 images: ["/images/pringlestortilla.jpg"]
 tags : [flavor - say cheese]

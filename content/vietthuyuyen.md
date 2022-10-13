@@ -1,6 +1,6 @@
 ---
 title: '[越] 越翠苑 Việt Thuý Uyến'
-date: 2022-11-10T10:00:00.000+08:00
+date: 2022-11-11T09:30:00.000+08:00
 draft: false
 images: ["/images/vietthuyuyen.jpg"]
 tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]

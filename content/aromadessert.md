@@ -30,7 +30,8 @@ pancake食落空氣感十足
 本身唔太甜亦有蛋香  
 海鹽芝士custard鹹鹹甜甜帶奶香好好味  
 配埋雲尼拿雪糕一齊食好幸福好滿足  
-fluffy
+fluffy嘅pancake好似食浮雲咁  
+畀張poster引咗入來係正確嘅（哈哈）  
 
 ![](/images/aromadessert3.jpg)
 

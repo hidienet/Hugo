@@ -1,5 +1,5 @@
 ---
-title: '[飯] 日本野 Japanese Delight'
+title: '[日] 日本野 Japanese Delight'
 date: 2022-09-10T10:00:00.000+08:00
 draft: false
 images: ["/images/jpdelight.jpg"]

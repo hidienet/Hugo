@@ -1,6 +1,6 @@
 ---
 title: '[丼] 天丼てんや'
-date: 2022-11-18T09:30:00.000+08:00
+date: 2022-11-17T09:30:00.000+08:00
 draft: false
 images: ["/images/tenya.jpg"]
 tags : [flavor - 行膳積腹]

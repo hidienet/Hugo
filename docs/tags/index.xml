@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 25 Oct 2022 08:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Wed, 26 Oct 2022 09:27:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>lifestyle - 生活與生存</title>
+      <link>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</link>
+      <pubDate>Wed, 26 Oct 2022 09:27:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - say cheese</title>
@@ -72,15 +81,6 @@
       <pubDate>Sat, 08 Oct 2022 08:09:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/lifestyle-%E5%BB%9A%E6%88%BFplay/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>lifestyle - 生活與生存</title>
-      <link>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</link>
-      <pubDate>Sat, 08 Oct 2022 08:09:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
       <description></description>
     </item>
     

@@ -7,7 +7,7 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 08 Nov 2022 09:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Wed, 09 Nov 2022 10:00:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
@@ -15,9 +15,18 @@
     <item>
       <title>flavor - 行膳積腹</title>
       <link>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</link>
-      <pubDate>Tue, 08 Nov 2022 09:30:00 +0800</pubDate>
+      <pubDate>Wed, 09 Nov 2022 10:00:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>flavor - say cheese</title>
+      <link>https://hidie.net/tags/flavor-say-cheese/</link>
+      <pubDate>Tue, 08 Nov 2022 14:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
       <description></description>
     </item>
     
@@ -54,15 +63,6 @@
       <pubDate>Wed, 26 Oct 2022 09:27:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - say cheese</title>
-      <link>https://hidie.net/tags/flavor-say-cheese/</link>
-      <pubDate>Tue, 25 Oct 2022 08:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
       <description></description>
     </item>
     

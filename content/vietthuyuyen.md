@@ -59,6 +59,9 @@ tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 
 **吹波豬扒飯、芒果沙冰**  
 當啲嘢要炸嗰陣就會有啲bubble滾嚟滾去睇上嚟就似「吹波波」  
+
+![](/images/vietthuyuyen0.jpg)
+
 so吹波豬扒就即係炸豬扒咁解  
 醃得夠味炸得夠香  
 個飯本身都有味，成個配搭好正！  

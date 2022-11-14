@@ -1,5 +1,5 @@
 ---
-title: '[港] 小廚・美食 - 綠豆瑤柱咸蛋黃咸肉糭、鴛鴦燒賣'
+title: '小廚・美食 - 綠豆瑤柱咸蛋黃咸肉糭、鴛鴦燒賣'
 date: 2021-06-14T08:10:00.000+08:00
 draft: false
 images: ["/images/littlekitchen.jpg"]

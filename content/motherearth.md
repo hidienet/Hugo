@@ -14,8 +14,8 @@ tags : [flavor - 揀飲宅食]
 
 **Mother Earth - Natural Unsalted Crunchy Peanut Butter**  
 相比起美國嘢[Skippy](https://hidie.net/skippy/)  
-呢隻嚟自澳洲嘅就真真正正無添加  
-無糖無鹽100% just peanut only  
+呢隻嚟自紐西蘭嘅就真真正正無添加  
+無糖無鹽100% just peanut only（igh oleic嘅）  
 仲要係有脆粒crunchy crunchy嗰種  
 超～ 香～ 濃～ 醇香花生味  
 hola好味啊佢！！！  

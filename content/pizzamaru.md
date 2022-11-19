@@ -3,7 +3,7 @@ title: '[韓] Pizza Maru 피자마루'
 date: 2019-05-13T21:42:00.000+08:00
 draft: false
 aliases: [ "/2019/05/pizza-maru.html" ]
-tags : [flavor - 行膳積腹, flavor - 飲！]
+tags : [flavor - 行膳積腹, flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
 
 睇嚟今年都唔會去韓國  

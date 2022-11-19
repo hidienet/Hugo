@@ -1,9 +1,9 @@
 ---
-title: '[琉球料理] アントシモ（Antoshimo Café & Bakery）'
+title: '[日] アントシモ（Antoshimo Café & Bakery）'
 date: 2015-07-26T20:30:00.000+08:00
 draft: false
 aliases: [ "/2015/07/antoshimo-cafe-bakery.html" ]
-tags : [flavor - 行膳積腹]
+tags : [flavor - 行膳積腹, satisfaction - 黃店懲罰日]
 ---
 
 C/P值很高的沖縄料理！  

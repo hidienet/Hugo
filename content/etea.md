@@ -3,7 +3,7 @@ title: '[冰] E.Tea 茶星人 - 黃芝金菠蘿'
 date: 2022-11-18T14:30:00.000+08:00
 draft: false
 images: ["/images/etea.jpg"]
-tags : [flavor - 飲！, satisfaction - 黃店懲罰日]
+tags : [flavor - say cheese, flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
 
 食完[車輪餅](https://hidie.net/mswheelpie/)想飲啲嘢濕吓口  

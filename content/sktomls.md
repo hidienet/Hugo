@@ -91,7 +91,7 @@ hello[飛鵝山](https://hidie.net/kowloonpeak/)（揮手揮手）
 
 ![](/images/sktomls21.jpg)
 
-bye[塔門](https://hidie.net/tapmun/)
+bye [塔門](https://hidie.net/tapmun/)
 
 ![](/images/sktomls22.jpg)
 

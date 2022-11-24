@@ -39,7 +39,7 @@ hello[飛鵝山](https://hidie.net/kowloonpeak/)（揮手揮手）
 ![](/images/sktomls8.jpg)
 
 肚仔餓兜兜吓睇食咩好  
-然後响**Blacksmith Coffee Shop**嘆返吓  
+然後响[Blacksmith Coffee Shop](https://hidie.net/blacksmith/)嘆返吓  
 
 ![](/images/sktomls9.jpg)
 

@@ -3,6 +3,31 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
+    <loc>https://hidie.net/thematchatokyo/</loc>
+    <lastmod>2022-11-29T09:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</loc>
+    <lastmod>2022-11-29T09:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/flavor-%E9%A3%B2/</loc>
+    <lastmod>2022-11-29T09:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/</loc>
+    <lastmod>2022-11-29T09:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/</loc>
+    <lastmod>2022-11-29T09:30:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/beeger/</loc>
     <lastmod>2022-11-28T09:30:00+08:00</lastmod>
   </url>
@@ -13,22 +38,7 @@
   </url>
   
   <url>
-    <loc>https://hidie.net/tags/flavor-%E9%A3%B2/</loc>
-    <lastmod>2022-11-28T09:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/</loc>
-    <lastmod>2022-11-28T09:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
     <loc>https://hidie.net/tags/satisfaction-%E9%BB%83%E5%BA%97%E6%87%B2%E7%BD%B0%E6%97%A5/</loc>
-    <lastmod>2022-11-28T09:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/</loc>
     <lastmod>2022-11-28T09:30:00+08:00</lastmod>
   </url>
   
@@ -39,11 +49,6 @@
   
   <url>
     <loc>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</loc>
-    <lastmod>2022-11-26T09:10:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/flavor-%E8%9E%9E%E8%9F%BB%E6%97%8F/</loc>
     <lastmod>2022-11-26T09:10:00+08:00</lastmod>
   </url>
   
@@ -770,6 +775,11 @@
   <url>
     <loc>https://hidie.net/bbhand/</loc>
     <lastmod>2021-09-27T17:45:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/blacksmith/</loc>
+    <lastmod>2021-08-12T09:30:00+08:00</lastmod>
   </url>
   
   <url>

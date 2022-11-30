@@ -1,5 +1,5 @@
 ---
-title: '麻辣風雲 - 水煮牛肉客飯'
+title: '[川] 麻辣風雲 - 水煮牛肉客飯'
 date: 2022-12-12T09:30:00.000+08:00
 draft: false
 images: ["/images/spicyrestaurant.jpg"]

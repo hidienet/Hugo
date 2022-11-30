@@ -1,12 +1,12 @@
 ---
-title: 'House（ハウス）- んがりコーン コク濃チーズ味'
+title: 'House（ハウス）- とんがリコーン コク濃チーズ味'
 date: 2022-11-29T14:16:00.000+08:00
 draft: false
 images: ["/images/housetongari.jpg"]
 tags : [flavor - say cheese]
 ---
 
-又係[間唔時](House - とんがリ クリームーチーズ味)就想買嚟食嘅粟米筒（哈）  
+又係[間唔時](https://hidie.net/housecorn/)就想買嚟食嘅粟米筒（哈）  
 
 ![](/images/housetongari.jpg)
 

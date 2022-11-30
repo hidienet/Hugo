@@ -1,5 +1,5 @@
 ---
-title: 'House - とんがリ クリームーチーズ味'
+title: 'House（ハウス）- とんがリ クリームーチーズ味'
 date: 2019-05-14T15:16:00.000+08:00
 draft: false
 aliases: [ "/2019/05/house.html" ]

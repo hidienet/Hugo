@@ -3,7 +3,7 @@ title: '[tea] THE MATCHA TOKYO'
 date: 2022-11-29T09:30:00.000+08:00
 draft: false
 images: ["/images/thematchatokyo.jpg"]
-tags : [flavor - 螞蟻族, flavor - 飲！]
+tags : [flavor - 螞蟻族, flavor - 飲！, satisfaction - 黃店懲罰日]
 ---
 
 teatime咪去飲返杯tea囉～  

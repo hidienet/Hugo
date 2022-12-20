@@ -135,6 +135,7 @@ tags : [travel-日本-四國, lifestyle - 逃離852]
 \[飲\] [POM ポンジュース](https://hidie.net/pommikan/)  
 \[飲\] [土佐の黒文字茶](https://hidie.net/kuromoji/)  
 \[飲\] [しんじょう君の麦茶](https://hidie.net/mugicha/)  
+\[用\] [今治毛巾](https://hidie.net/imabaritowel/)  
 
 
   

@@ -7,24 +7,15 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 20 Dec 2022 14:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Wed, 21 Dec 2022 09:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
     
     <item>
-      <title>flavor - say cheese</title>
-      <link>https://hidie.net/tags/flavor-say-cheese/</link>
-      <pubDate>Tue, 20 Dec 2022 14:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
-      <description></description>
-    </item>
-    
-    <item>
       <title>flavor - 行膳積腹</title>
       <link>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</link>
-      <pubDate>Tue, 20 Dec 2022 09:30:00 +0800</pubDate>
+      <pubDate>Wed, 21 Dec 2022 09:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</guid>
       <description></description>
@@ -33,7 +24,7 @@
     <item>
       <title>flavor - 飲！</title>
       <link>https://hidie.net/tags/flavor-%E9%A3%B2/</link>
-      <pubDate>Tue, 20 Dec 2022 09:30:00 +0800</pubDate>
+      <pubDate>Wed, 21 Dec 2022 09:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E9%A3%B2/</guid>
       <description></description>
@@ -42,9 +33,18 @@
     <item>
       <title>satisfaction - 黃店懲罰日</title>
       <link>https://hidie.net/tags/satisfaction-%E9%BB%83%E5%BA%97%E6%87%B2%E7%BD%B0%E6%97%A5/</link>
-      <pubDate>Tue, 20 Dec 2022 09:30:00 +0800</pubDate>
+      <pubDate>Wed, 21 Dec 2022 09:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/satisfaction-%E9%BB%83%E5%BA%97%E6%87%B2%E7%BD%B0%E6%97%A5/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>flavor - say cheese</title>
+      <link>https://hidie.net/tags/flavor-say-cheese/</link>
+      <pubDate>Tue, 20 Dec 2022 14:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
       <description></description>
     </item>
     

@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Fri, 23 Dec 2022 12:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Sun, 25 Dec 2022 11:09:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>handmade - 開伙</title>
+      <link>https://hidie.net/tags/handmade-%E9%96%8B%E4%BC%99/</link>
+      <pubDate>Sun, 25 Dec 2022 11:09:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/handmade-%E9%96%8B%E4%BC%99/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - 飲！</title>
@@ -198,15 +207,6 @@
       <pubDate>Fri, 27 May 2022 18:30:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/amusement-films/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>handmade - 開伙</title>
-      <link>https://hidie.net/tags/handmade-%E9%96%8B%E4%BC%99/</link>
-      <pubDate>Mon, 23 May 2022 11:09:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/handmade-%E9%96%8B%E4%BC%99/</guid>
       <description></description>
     </item>
     

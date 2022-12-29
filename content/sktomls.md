@@ -26,7 +26,7 @@ hello[飛鵝山](https://hidie.net/kowloonpeak/)（揮手揮手）
 
 ![](/images/sktomls5.jpg)
 
-天氣熱先去**Duke of York**飲返杯，cheers！
+天氣熱先去[Duke of York](https://hidie.net/blackthorn/)飲返杯，cheers！
 
 ![](/images/sktomls6.jpg)
 

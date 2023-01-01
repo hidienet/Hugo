@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Sat, 31 Dec 2022 09:22:00 +0800</lastBuildDate>
+    <lastBuildDate>Sun, 01 Jan 2023 08:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>flavor - 小食部</title>
+      <link>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</link>
+      <pubDate>Sun, 01 Jan 2023 08:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>lifestyle - zakka</title>
@@ -81,15 +90,6 @@
       <pubDate>Wed, 14 Dec 2022 12:12:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/amusement-tv/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - 小食部</title>
-      <link>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</link>
-      <pubDate>Wed, 14 Dec 2022 09:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-%E5%B0%8F%E9%A3%9F%E9%83%A8/</guid>
       <description></description>
     </item>
     

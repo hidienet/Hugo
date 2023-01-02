@@ -2,7 +2,7 @@
 title: '[吔孖系] 城門水塘主壩'
 date: 2023-01-02T09:50:00.000+08:00
 draft: false
-images: ["/images/kowloonpeak.jpg"]
+images: ["/images/shingmunreservoir.jpg"]
 tags : [lifestyle - 港女港旅]
 ---
 

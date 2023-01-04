@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Tue, 03 Jan 2023 14:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Wed, 04 Jan 2023 09:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>glamorous - 蛋臉以外</title>
+      <link>https://hidie.net/tags/glamorous-%E8%9B%8B%E8%87%89%E4%BB%A5%E5%A4%96/</link>
+      <pubDate>Wed, 04 Jan 2023 09:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/glamorous-%E8%9B%8B%E8%87%89%E4%BB%A5%E5%A4%96/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>flavor - say cheese</title>
@@ -117,15 +126,6 @@
       <pubDate>Wed, 26 Oct 2022 09:27:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>glamorous - 蛋臉以外</title>
-      <link>https://hidie.net/tags/glamorous-%E8%9B%8B%E8%87%89%E4%BB%A5%E5%A4%96/</link>
-      <pubDate>Sat, 15 Oct 2022 09:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/glamorous-%E8%9B%8B%E8%87%89%E4%BB%A5%E5%A4%96/</guid>
       <description></description>
     </item>
     

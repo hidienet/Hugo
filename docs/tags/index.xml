@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Mon, 02 Jan 2023 09:50:00 +0800</lastBuildDate>
+    <lastBuildDate>Tue, 03 Jan 2023 14:30:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>flavor - say cheese</title>
+      <link>https://hidie.net/tags/flavor-say-cheese/</link>
+      <pubDate>Tue, 03 Jan 2023 14:30:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>lifestyle - 港女港旅</title>
@@ -63,15 +72,6 @@
       <pubDate>Thu, 29 Dec 2022 10:00:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E8%A1%8C%E8%86%B3%E7%A9%8D%E8%85%B9/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>flavor - say cheese</title>
-      <link>https://hidie.net/tags/flavor-say-cheese/</link>
-      <pubDate>Tue, 27 Dec 2022 14:30:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/flavor-say-cheese/</guid>
       <description></description>
     </item>
     

@@ -7,10 +7,19 @@
     <generator>Hugo -- gohugo.io</generator>
     <language>zh-hk</language>
     <copyright>Ḧidie.net - All rights reserved</copyright>
-    <lastBuildDate>Wed, 04 Jan 2023 09:30:00 +0800</lastBuildDate>
+    <lastBuildDate>Thu, 05 Jan 2023 09:27:00 +0800</lastBuildDate>
     
 	<atom:link href="https://hidie.net/tags/index.xml" rel="self" type="application/rss+xml" />
     
+    
+    <item>
+      <title>lifestyle - 生活與生存</title>
+      <link>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</link>
+      <pubDate>Thu, 05 Jan 2023 09:27:00 +0800</pubDate>
+      
+      <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
+      <description></description>
+    </item>
     
     <item>
       <title>glamorous - 蛋臉以外</title>
@@ -117,15 +126,6 @@
       <pubDate>Sat, 26 Nov 2022 09:10:00 +0800</pubDate>
       
       <guid>https://hidie.net/tags/flavor-%E6%8F%80%E9%A3%B2%E5%AE%85%E9%A3%9F/</guid>
-      <description></description>
-    </item>
-    
-    <item>
-      <title>lifestyle - 生活與生存</title>
-      <link>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</link>
-      <pubDate>Wed, 26 Oct 2022 09:27:00 +0800</pubDate>
-      
-      <guid>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</guid>
       <description></description>
     </item>
     

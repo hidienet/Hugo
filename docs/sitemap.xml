@@ -3,6 +3,26 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
+    <loc>https://hidie.net/</loc>
+    <lastmod>2023-01-12T09:27:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</loc>
+    <lastmod>2023-01-12T09:27:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/tags/</loc>
+    <lastmod>2023-01-12T09:27:00+08:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://hidie.net/stairrunningwithbb/</loc>
+    <lastmod>2023-01-12T09:27:00+08:00</lastmod>
+  </url>
+  
+  <url>
     <loc>https://hidie.net/unityramen/</loc>
     <lastmod>2023-01-09T10:00:00+08:00</lastmod>
   </url>
@@ -13,17 +33,7 @@
   </url>
   
   <url>
-    <loc>https://hidie.net/</loc>
-    <lastmod>2023-01-09T10:00:00+08:00</lastmod>
-  </url>
-  
-  <url>
     <loc>https://hidie.net/tags/satisfaction-%E9%BB%83%E5%BA%97%E6%87%B2%E7%BD%B0%E6%97%A5/</loc>
-    <lastmod>2023-01-09T10:00:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/</loc>
     <lastmod>2023-01-09T10:00:00+08:00</lastmod>
   </url>
   
@@ -35,11 +45,6 @@
   <url>
     <loc>https://hidie.net/tags/flavor-%E9%A3%B2/</loc>
     <lastmod>2023-01-06T20:30:00+08:00</lastmod>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/tags/lifestyle-%E7%94%9F%E6%B4%BB%E8%88%87%E7%94%9F%E5%AD%98/</loc>
-    <lastmod>2023-01-05T09:27:00+08:00</lastmod>
   </url>
   
   <url>
@@ -19769,10 +19774,6 @@
   
   <url>
     <loc>https://hidie.net/categories/</loc>
-  </url>
-  
-  <url>
-    <loc>https://hidie.net/stairrunningwithbb/</loc>
   </url>
   
 </urlset>

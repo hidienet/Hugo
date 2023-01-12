@@ -1,6 +1,6 @@
 ---
 title: '雨天 going up！'
-date: 2023-01-012T09:27:00.000+08:00
+date: 2023-01-12T09:27:00.000+08:00
 draft: false
 images: ["/images/stairrunningwithbb.jpg"]
 tags : [lifestyle - 生活與生存]

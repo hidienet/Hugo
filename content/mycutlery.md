@@ -3,7 +3,7 @@ title: 'my cutlery by united colors of benetton '
 date: 2014-03-15T12:30:00.000+08:00
 draft: false
 aliases: [ "/2014/03/my-cutlery-by-united-colors-of-benetton.html" ]
-tags : [lifestyle - zakka]
+tags : [lifestyle - zakka, satisfaction - 自我感覺環保]
 ---
 
 一般的即棄型膠羹膠叉木筷子  

@@ -3,7 +3,7 @@ title: 'Burberry 紅黑格仔手巾'
 date: 2018-04-26T11:27:00.000+08:00
 draft: false
 aliases: [ "/2018/04/burberry.html" ]
-tags : [lifestyle - zakka]
+tags : [lifestyle - zakka, satisfaction - 自我感覺環保]
 ---
 
 紙巾呀抹手紙真係好方便  

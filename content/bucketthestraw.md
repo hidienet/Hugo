@@ -3,7 +3,7 @@ title: 'BUCKET THE STRAW'
 date: 2020-03-23T14:22:00.000+08:00
 draft: false
 aliases: [ "/2020/03/bucket-straw.html" ]
-tags : [lifestyle - zakka]
+tags : [lifestyle - zakka, satisfaction - 自我感覺環保]
 ---
 
 話說，支嘢已經用咗佢幾年...  

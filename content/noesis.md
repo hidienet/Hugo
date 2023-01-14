@@ -3,7 +3,7 @@ title: 'noesis bamboo dish pad'
 date: 2014-11-28T08:00:00.000+08:00
 draft: false
 aliases: [ "/2014/11/noesis-bamboo-dish-pad.html" ]
-tags : [lifestyle - 廚房play]
+tags : [lifestyle - 廚房play, satisfaction - 自我感覺環保]
 ---
 
 喜歡煮食但討厭洗碗  

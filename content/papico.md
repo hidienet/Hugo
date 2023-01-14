@@ -3,7 +3,7 @@ title: '[sherbet] パピコ チョココーヒー'
 date: 2022-08-05T00:10:00.000+08:00
 draft: false
 images: ["/images/papico.jpg"]
-tags : [collections - 螞蟻族]
+tags : [flavor - 螞蟻族]
 ---
 
 パピコの日（PAPICO Day）當然要食パピコ應吓節啦～  

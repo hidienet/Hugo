@@ -3,7 +3,7 @@ title: 'ZTRAW'
 date: 2022-06-01T14:22:00.000+08:00
 draft: false
 images: ["/images/ztraw.jpg"]
-tags : [lifestyle - zakka]
+tags : [lifestyle - zakka, satisfaction - 自我感覺環保]
 ---
 
 支[BUCKET](https://hidie.net/bucketthestraw/)係唔錯嘅  

@@ -3,7 +3,7 @@ title: 'IKEA - VINNINGE 電池充電器 & LADDA 充電池'
 date: 2018-04-18T20:13:00.000+08:00
 draft: false
 aliases: [ "/2018/04/ikea-vinninge-ladda.html" ]
-tags : [lifestyle - zakka]
+tags : [lifestyle - zakka, satisfaction - 自我感覺環保]
 ---
 
 因為唔係所有電器都係叉電嘅  

@@ -3,7 +3,7 @@ title: 'ECO Can Plus - city super x Eva Armisén'
 date: 2015-06-21T15:30:00.000+08:00
 draft: false
 aliases: [ "/2015/06/eco-can-plus-city-super-x-eva-armisen.html" ]
-tags : [lifestyle - zakka]
+tags : [lifestyle - zakka, satisfaction - 自我感覺環保]
 ---
 
 出街當然是要自己帶備水樽啦  

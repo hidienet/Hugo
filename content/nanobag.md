@@ -3,7 +3,7 @@ title: 'Nanobag 5.0 - Ultralight Bags (Swirls)'
 date: 2023-02-22T02:22:00.000+08:00
 draft: false
 images: ["/images/nanobag.jpg"]
-tags : [lifestyle - zakka, satisfaction - 自我感覺環保]
+tags : [glamorous - 裝身, satisfaction - 自我感覺環保]
 ---
 
 响呢個世代仲會走去買一個環保袋好似有啲奇怪...  
